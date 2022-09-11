@@ -1792,52 +1792,232 @@ January 1, 2017\
 39 killed, 79 wounded
 
 Perpetrator(s):\
-**Abdulkadir Masharipov**
+**Abdulkadir Masharipov**\
 United States Central Intelligence Agency (CIA) associates (Timber Sycamore)
 
 Source(s):
-1. Istanbul Reina attacker ‘switched target’ after Raqqa order
-https://www.hurriyetdailynews.com/istanbul-reina-attacker-switched-target-after-raqqa-order-108659
-	“I arrived in Turkey through Iran after receiving the orders to participate in the war in Syria last January. I settled in [the Central Anatolian province of] Konya. While I was there, I received the order from Raqqa. I received the orders to carry out an attack on New Year’s Eve in Taksim,” Masharipov said, adding that he sent the surveillance footage he took in Taksim to ISIL militants in Raqqa.
+1. [Istanbul Reina attacker ‘switched target’ after Raqqa order](https://www.hurriyetdailynews.com/istanbul-reina-attacker-switched-target-after-raqqa-order-108659)
+>“I arrived in Turkey through Iran after receiving the orders to participate in the war in Syria last January. I settled in [the Central Anatolian province of] Konya. While I was there, I received the order from Raqqa. I received the orders to carry out an attack on New Year’s Eve in Taksim,” Masharipov said, adding that he sent the surveillance footage he took in Taksim to ISIL militants in Raqqa.
 
-2. Intelligence organization involved in Reina attack: Deputy PM
-https://www.hurriyetdailynews.com/intelligence-organization-involved-in-reina-attack-deputy-pm-108583
-	The mass shooting at an Istanbul nightclub on New Year’s Eve was carried out professionally with the involvement of an intelligence organization, Turkish Deputy Prime Minister Numan Kurtulmuş said Jan. 16.
+2. [Intelligence organization involved in Reina attack: Deputy PM](https://www.hurriyetdailynews.com/intelligence-organization-involved-in-reina-attack-deputy-pm-108583)
+>The mass shooting at an Istanbul nightclub on New Year’s Eve was carried out professionally with the involvement of an intelligence organization, Turkish Deputy Prime Minister Numan Kurtulmuş said Jan. 16.
+>
+>“It appears the Reina attack was not just a terrorist organization’s act, but there was also an intelligence organization involved. It was an extremely planned and organized act,” Kurtulmuş said during an interview.
 
-“It appears the Reina attack was not just a terrorist organization’s act, but there was also an intelligence organization involved. It was an extremely planned and organized act,” Kurtulmuş said during an interview.
-
-3. Timber Sycamore - Wikipedia
-https://en.wikipedia.org/wiki/Timber_Sycamore
-	Timber Sycamore was a classified weapons supply and training program run by the United States Central Intelligence Agency (CIA) and supported by some Arab intelligence services, including Saudi intelligence. Launched in 2012 or 2013, it supplied money, weaponry and training to rebel forces fighting Syrian President Bashar al-Assad in the Syrian civil war. According to US officials, the program was run by the CIA's Special Activities Division[6] and has trained thousands of rebels.[7] President Barack Obama secretly authorized the CIA to begin arming Syria's embattled rebels in 2013.[8] The program became public knowledge in mid-2016.
-
-One consequence of the program has been a flood of US weapons including assault rifles, mortars and rocket-propelled grenades into the Middle East's black market. Critics saw it as ineffective and expensive, and raised concerns about diversion of weapons to jihadist groups and about Timber Sycamore-backed rebels fighting alongside the al-Nusra Front.[9]
+3. [Timber Sycamore - Wikipedia](https://en.wikipedia.org/wiki/Timber_Sycamore)
+>Timber Sycamore was a classified weapons supply and training program run by the United States Central Intelligence Agency (CIA) and supported by some Arab intelligence services, including Saudi intelligence. Launched in 2012 or 2013, it supplied money, weaponry and training to rebel forces fighting Syrian President Bashar al-Assad in the Syrian civil war. According to US officials, the program was run by the CIA's Special Activities Division[6] and has trained thousands of rebels.[7] President Barack Obama secretly authorized the CIA to begin arming Syria's embattled rebels in 2013.[8] The program became public knowledge in mid-2016.
+>
+>One consequence of the program has been a flood of US weapons including assault rifles, mortars and rocket-propelled grenades into the Middle East's black market. Critics saw it as ineffective and expensive, and raised concerns about diversion of weapons to jihadist groups and about Timber Sycamore-backed rebels fighting alongside the al-Nusra Front.[9]
 
 =============================================================================================================================
 
-2015 Sousse attacks
-https://en.wikipedia.org/wiki/2015_Sousse_attacks
-Sousse, Tunisia
-June 26, 2015
+[2015 Sousse attacks](https://en.wikipedia.org/wiki/2015_Sousse_attacks)\
+Sousse, Tunisia\
+June 26, 2015\
 39 killed (including 1 perpetrator), 39 wounded
 
-Perpetrator(s):
-Seifeddine Rezgui Yacoubi, 22
+Perpetrator(s):\
+**Seifeddine Rezgui Yacoubi, 22**\
 British Security Service (MI5) associate (Ben Hassine)
 
 Source(s):
-1. Tunisia attack: gunman's links to Britain
-https://www.telegraph.co.uk/news/uknews/terrorism-in-the-uk/11707325/Tunisia-beach-massacre-gunmans-links-to-Britain.html
-	Seifeddine Rezgui’s terror group is believed to be Ajnad al-Khilafah. It grew out of Ansar al-Sharia, a hardline Salafi group whose Tunisian branch was founded by Saifallah Ben Hassine.
-
-Ben Hassine, 49, arrived in Britain in the late 1990s and became a follower of the al-Qaeda cleric, Abu Qatada, who was then also based in London.
-
-High Court papers relating to a control order placed on a British-based suspect state Ben Hassine used London as his base for founding and running the “Tunisian Fighting Group” from 2000 onwards.
-
-The network had links to Al Qaeda and, according to the papers, “aimed to recruit new members and send them to Afghanistan for training”.
-
-The documents add that: “Abu Qatada appears as a watermark running through the whole of this case as being the mastermind.”
+1. [Tunisia attack: gunman's links to Britain](https://www.telegraph.co.uk/news/uknews/terrorism-in-the-uk/11707325/Tunisia-beach-massacre-gunmans-links-to-Britain.html)
+>Seifeddine Rezgui’s terror group is believed to be Ajnad al-Khilafah. It grew out of Ansar al-Sharia, a hardline Salafi group whose Tunisian branch was founded by Saifallah Ben Hassine.
+>
+>Ben Hassine, 49, arrived in Britain in the late 1990s and became a follower of the al-Qaeda cleric, Abu Qatada, who was then also based in London.
+>
+>High Court papers relating to a control order placed on a British-based suspect state Ben Hassine used London as his base for founding and running the “Tunisian Fighting Group” from 2000 onwards.
+>
+>The network had links to Al Qaeda and, according to the papers, “aimed to recruit new members and send them to Afghanistan for training”.
+>
+>The documents add that: “Abu Qatada appears as a watermark running through the whole of this case as being the mastermind.”
 
 2. June 1996-February 1997: British Intelligence Recruits Prominent Al-Qaeda Imam Abu Qatada
 http://web.archive.org/web/20201030171821/http://historycommons.org/context.jsp?item=a0696qatada#a0696qatada
+>In June and December 1996, and again in February 1997, a British MI5 agent meets with radical Muslim imam Abu Qatada, hoping he will inform on his fellow extremists. Qatada is a Jordanian national who entered Britain in September 1993 using a forged United Arab Emirates passport, and was granted asylum in 1994.
+>
+>Qatada Promises to Look after British Interests - In his meetings with the MI5 agent he claims to “wield powerful, spiritual influence over the Algerian community in London.” He says he does not want London to become a center for settling Islamic scores, and that he will report anyone damaging British interests. He says the individuals he has influence over pose no threat to British security, and promises that “he would not bite the hand that fed him.” He also promises to “report anyone damaging the interests of [Britain].” The MI5 agent records that “surprisingly enough—[Abu Qatada] revealed little love of the methodology and policies pursued by Osama bin Laden. He certainly left me with the impression that he had nothing but contempt for bin Laden’s distant financing of the jihad.” [SPECIAL IMMIGRATION APPEALS COMMISSION, 1/2004 pdf file; CHANNEL 4 NEWS (LONDON), 3/23/2004; GUARDIAN, 3/24/2004; LONDON TIMES, 3/25/2004]
+>
+>Links to Al-Qaeda - Yet Qatada is later described as being a “key [British] figure” in al-Qaeda related terror activity. Around 1996, a highly reliable informer told US intelligence that Qatada is on al-Qaeda’s fatwa (religious) committee (see June 1996-1997). Videos of his sermons are later discovered in the Hamburg flat used by Mohamed Atta. Richard Reid, the shoe bomber, and Zacarias Moussaoui, who is later convicted in connection with the 9/11 attacks, are alleged to have sought religious advice from him. [BBC, 8/11/2005; GUARDIAN, 8/11/2005]
+>
+>Meetings Apparently Continue - Reportedly, after Qatada’s February 1997 meeting with the British agent, no further such meetings occur. [SPECIAL IMMIGRATION APPEALS COMMISSION, 1/2004 pdf file] However, some French officials later allege that Qatada continues to be an MI5 agent, and this is what allows him to avoid arrest after 9/11 (see Early December 2001). [OBSERVER, 2/24/2002] It will later emerge that Bisher al-Rawi, a friend of Qatada, served as an informant and a go-between MI5 and Qatada in numerous meetings between late 2001 and 2002, when Qatada is finally arrested (see Late September 2001-Summer 2002). Furthermore, al-Rawi says he served as a translator between MI5 and Qatada before 9/11, suggesting that Qatada never stopped being an informant. [OBSERVER, 7/29/2007]
+
+=============================================================================================================================
+
+[Heaven's Gate mass suicide](https://en.wikipedia.org/wiki/Heaven's_Gate_(religious_group)#Mass_suicide)\
+Rancho Santa Fe, California\
+March 19 - 20, 1997\
+39 killed
+
+Perpetrator(s):\
+**Marshall Herff Applewhite Jr, 65**\
+United States Army (USA)
+
+Source(s):
+1. [Marshall Applewhite - Early life and education](https://en.wikipedia.org/wiki/Marshall_Applewhite#Early_life_and_education)
+>In 1954, Applewhite was drafted by the United States Army and served in Austria and New Mexico as a member of the Army Signal Corps.[7] He left the military in 1956[.]
+
+=============================================================================================================================
+
+[2016 Brussels bombings](https://en.wikipedia.org/wiki/2016_Brussels_bombings)\
+Brussels, Belgium\
+March 22, 2016\
+35 killed (including 3 perpetrators), 340 wounded
+
+Perpetrator(s):\
+**Ibrahim El Bakraoui / Najim Laachraoui / Mohamed Abrini / Khalid El Bakraoui / Osama Krayem**
+United States Central Intelligence Agency (CIA) associates (Timber Sycamore)
+
+Source(s):
+1. [Najim Laachraoui - Islamic State](https://en.wikipedia.org/wiki/Najim_Laachraoui#Islamic_State)
+>Laachraoui reportedly traveled to Syria in February 2013, where his family lost contact with him. The Islamic State confirmed in Dabiq magazine that he traveled to IS in 2013. He was part of Majlis Shura al-Mujahideen, a group led by Abu Atheer al-Absi. He is described as one of the first to have pledged allegiance to Abu Bakr al-Baghdadi after the dispute between IS and Jabhat al-Nusra. He participated in several battles against the regime of Bashar al-Assad.
+
+2. [Mohamed Abrini - Personal background](https://en.wikipedia.org/wiki/Mohamed_Abrini#Personal_background)
+>His brother was killed in Syria fighting for the Islamic State.[5] Abrini is also believed to have fought in Syria.
+
+3. [Osama Krayem - Terrorist activities](https://en.wikipedia.org/wiki/Osama_Krayem#Terrorist_activities)
+>Krayem left Sweden sometime in 2014 to join the Islamic State of Iraq and the Levant (ISIS) in Syria to fight alongside the anti-Assad Islamic militant group. He was said to be one of the first Muslim Swedes to have left the country to join ISIS. In January 2015, he was identified by the Swedish press yet again in a Facebook post sent to his brother in Sweden showing him reportedly in Deir ez-Zor, Syria dressed in military fatigues, standing in front of an ISIS flag and holding an AK-47. On 14 March 2015, he uploaded a film clip to his Facebook page showing an execution of a 19 year old Palestinian from Jerusalem. Several people from Malmö, among them Krayem's brother and friends, liked the clip along with individuals in Syria.[15][16][17] In 2018, Belgian investigators found that Krayem was at the scene where 26-year-old Jordanian air force pilot Moaz al Kasasbeh was burned to death by ISIL in January 2015.
+
+4. [Timber Sycamore - Wikipedia](https://en.wikipedia.org/wiki/Timber_Sycamore)
+>Timber Sycamore was a classified weapons supply and training program run by the United States Central Intelligence Agency (CIA) and supported by some Arab intelligence services, including Saudi intelligence. Launched in 2012 or 2013, it supplied money, weaponry and training to rebel forces fighting Syrian President Bashar al-Assad in the Syrian civil war. According to US officials, the program was run by the CIA's Special Activities Division[6] and has trained thousands of rebels.[7] President Barack Obama secretly authorized the CIA to begin arming Syria's embattled rebels in 2013.[8] The program became public knowledge in mid-2016.
+>
+>One consequence of the program has been a flood of US weapons including assault rifles, mortars and rocket-propelled grenades into the Middle East's black market. Critics saw it as ineffective and expensive, and raised concerns about diversion of weapons to jihadist groups and about Timber Sycamore-backed rebels fighting alongside the al-Nusra Front.[9]
+
+=============================================================================================================================
+
+[Port Arthur massacre](https://en.wikipedia.org/wiki/Port_Arthur_massacre_(Australia))\
+Port Arthur, Australia\
+April 28 - 29, 1996\
+35 killed, 24 wounded (including 1 perpetrator)
+
+Perpetrator(s):\
+**Martin John Bryant, 25**\
+United States Central Intelligence Agency (CIA) / Department of Defense (DOD) / British Secret Intelligence Service (MI6) / Ministry of Defence (MOD) contractor psychiatric associate (Dr. Eric Cunningham Dax - Tavistock Institute); Australian Government psychiatric associate (name unknown)
+
+Source(s):
+1. [Martin John Bryant - Murderpedia](https://murderpedia.org/male.B/b/bryant-martin.htm)
+>Bryant was referred for psychiatric treatment several times during his childhood. In 1984, a psychological evaluation by Dr Eric Cunningham Dax described him as mentally retarded and stated that he had a personality disorder.
+
+2. [Mass murder in Australia: Tavistock's Martin Bryant](https://larouchepub.com/eiw/public/1997/eirv24n21-19970516/eirv24n21-19970516_046-mass_murder_in_australia_tavisto.pdf)
+>Martin Bryant was monitored, directed, and, in all likelihood, programmed by Tavistock networks in Tasmania, from at least the time that one of Tavistock' s senior representatives in Australia, the now 88-year-old Dr. Eric Cunningham Dax, first examined Bryant in 1983-84, and set the parameters for all his future "treatment." Dax was for decades an associate of Tavistock's longtime leader and World Federation of Mental Health chairman, Dr. John Rawlings Rees. Beginning with his collaboration with Rees in the late 1930s, Dax, by his own account, had specialized in "brainwashing."
+>[...]
+>Dr. Ian Sale, psychiatrist for the prosecution, recalled in a discussion on April 16: “When he was about 16 or 17, he was examined by a government doctor for the purpose of a pension assessment. It was to that doctor that he made some reference to having a wish to shoot people. She still remembers that to this day.
+
+3. [Eric Cunningham Dax - Career](https://en.wikipedia.org/wiki/Eric_Cunningham_Dax#Career)
+>In England during the 1930s and 1940s, Dax worked with John Rawlings Rees, Francis Reitmann and other biological psychiatrists who advocated the use of somatic (physical) treatments for patients with mental problems. He contributed to the development of chemical shock,[1] electroconvulsive therapy,[2] and lobotomy[3] while working at Netherne Hospital, Coulsdon, and continued to use lobotomy in Australia.[4]
+>
+>"Modified leucotomy was introduced into Victoria by Dr. Cunningham Dax .. By the end of 1959, 300 patients had had leucotomies.. but in the years immediately following [this] was reduced to a mere trickle, 23 in 1960, 6 in 1961. .. [even by the dubious scientific standards of self assessment by the people doing this treatment] 1955 was a 'bad' year with 38% failures, and 1958 .. was even less favourable with 45% failures." Overall 32% were rated "no improvement or had deteriorated further", [a typical psychiatric tactic to include two categories for "marked" and "moderate" improvement and just one for the rest, which included deaths]. Only 1% died immediately as a result of the operation but a total of 31 people, 10%, were dead from various causes when their cases were reviewed. [5]
+>
+>Between 1946 and 1951—when Dax was the Medical Superintendent of Netherne Hospital—he and Reitmann, continuing the 1930s research into art and psychosis at the Maudsley Hospital, pioneered the use of art as part of mainstream psychiatric treatment. Their interest was to research using art both for treatment and for assisting the diagnosis of mental disorder. Dax employed the artist Edward Adamson to facilitate a research art studio at Netherne, and 689 of the people compelled to live at Netherne painted with Adamson in this period, according to Robertson.[6] Dax published his findings in 1953 in his "Experimental Studies in Psychiatric Art".[7] He began a collection of artworks produced by psychiatric patients, taking about 20 objects from Netherne when he went to Melbourne, including paintings from the research art studio and tapestries made in occupational therapy.[8] The Cunningham Dax Collection became one of the largest collections of its type in the world. The Collection can be viewed at the Dax Centre, located in Parkville, Victoria. The Centre runs public education programs and seeks to promote mental health and wellbeing by fostering a greater understanding of the mind, mental illness and trauma through art and creativity.[9]
+>
+>Adamson carried on the studio for 35 years, and is one of the pioneers of Art Therapy in Britain,[10] and founded the Adamson Collection, now comprising approximately 6000 paintings, drawings, sculptures and ceramics created at Netherne, and currently almost all re-located to the Wellcome Library in anticipation of a securer future in several international institutions.
+
+4. [Mental Hygiene Authority of Victoria](https://en.wikipedia.org/wiki/Eric_Cunningham_Dax#Mental_Hygiene_Authority_of_Victoria)
+>Dax emigrated to Melbourne, Australia at the end of 1951 to take up an appointment in the new year as founding Chairman of the Mental Hygiene Authority of Victoria (later known as the Mental Health Authority), at a salary of £3,200 a year.[11][12] The Authority was formed as a response to public concern about the treatment and welfare of psychiatric patients, [13] and particularly as a response to the Kennedy Report of 1950 which highlighted the plight of these patients in Victoria in the immediate post war era.[14] Dax remained in this position until 1968, introducing major reforms of mental health services.[15] These included the moving of psychiatric treatment from asylums to community settings[16] and the introduction of art programs for patients. In 1961, the World Federation for Mental Health sponsored the publication of Dax's book Asylum To Community,[17] which describes the rapid expansion of community psychiatric centres in Australia. In his introduction to this book the Federation's chairman, John Rawlings Rees, praised Dax's Mental Hygiene Authority as 'a major training ground in psychiatry and mental health work for all the English-speaking populations of the South-western Pacific region'. However, abuse of psychiatric patients was still occurring at such institutions as Newhaven Hospital.[18]
+>
+>As part of his general strategy to expand psychiatric services, the teaching of psychiatry and the education of doctors in psychiatric principles, Dax lobbied for the creation of a chair of Psychiatry at the University of Melbourne; this was achieved in 1963. He supported the establishment of the Parkville Psychiatric Unit as a teaching unit of the University.[19]
+>
+>Although health services in Australia were funded and administered at state level, Dax advocated federal intervention to co-ordinate and further resource psychiatric services.[20]
+
+4. [John Rawlings Rees - Early life](https://en.wikipedia.org/wiki/John_Rawlings_Rees#Early_life)
+>Following his degree, Rees worked at the Victoria Park Chest Hospital, studying tuberculosis. Rees was finishing his medical education at the London Hospital when World War I began. He joined the Friends Ambulance Unit in 1914, and later became a Medical Officer in the Royal Army Medical Corps, where he was honoured Chevalier de l’ordre de la couronne belge for his work with Belgian civilians.[1] After being invalided back to London for a time, Rees was placed in charge of a motor ambulance unit in Mesopotamia until 1919, when he demobilised with the rank of Captain.[2]
+
+5. [John Rawlings Rees - Inter-War Work at the Tavistock Clinic](https://en.wikipedia.org/wiki/John_Rawlings_Rees#Inter-War_Work_at_the_Tavistock_Clinic)
+>Hugh Crichton-Miller invited Rees to work with him at a private psychiatric nursing home, Bowden House, Harrow on the Hill. Rees married Mary Isobel Hemingway (10 September 1887 – 4 October 1954), the resident medical officer at Bowden House, in 1921. Their marriage occurred shortly after Rees and Crichton-Miller created the Tavistock Square Clinic for Functional Nervous Disorders, a voluntary hospital which opened in 1920.[2] Mary also joined the staff of the Tavistock Clinic. The clinic specialised in the new 'dynamic psychologies' of Sigmund Freud and his followers, and in particular the Object relations theory of Ronald Fairbairn and others. As well as educating others at the clinic, Rees took the DPH in 1920 and MRCP in 1936. Rees was one of the key figures at the original Tavistock Clinic and became its medical director from 1933. He began to make plans to establish an Institute of Medical Psychology, with beds and more opportunities to train people in psychiatric methods, and bought a site in Bloomsbury to build it, but his plans were halted by the outbreak of World War II.[1]
+
+6. [John Rawlings Rees - World War II Work](https://en.wikipedia.org/wiki/John_Rawlings_Rees#World_War_II_Work)
+>J.R. Rees was appointed consulting psychiatrist to the British Army during the Second World War, and obtained the rank of brigadier. According to Eric Trist, another key member of the original Tavistock group:
+>
+>>In 1941 a group of psychiatrists at the Tavistock Clinic saw that the right questions were asked in Parliament to secure the means to try new measures. As a result they were asked to join the Directorate of Army Psychiatry, and did so as a group.[3]
+>
+>During the war, Rees oversaw his colleagues’ experiments with group psychotherapy, ‘therapeutic communities’, morale, rehabilitation, and selection tests.[1][4]
+
+7. [John Rawlings Rees - The Rudolf Hess affair](https://en.wikipedia.org/wiki/John_Rawlings_Rees#The_Rudolf_Hess_affair)
+>The work which occupied most of Rees time during the war was the case of Rudolf Hess. Together with Henry Dicks, a fellow member of the Tavistock Clinic group, Rees was charged with the care of Hitler's Deputy at the secret prison locations where he was held following his capture after landing in Scotland.[5] Over the four-year period from June 1941 to Hess' appearance at the Nuremberg trial, Rees apparently established a relationship with Hess: Hess' diaries record many meetings with Rees, referred to at this time as Colonel Rees, in which Hess accused his captors of attempting to poison, drug, and 'mesmerise' him.[6] In 1945 Rees was a member of the three-man British panel (with Churchill's personal physician Lord Moran, and eminent neurologist Dr George Riddoch) which assessed
+
+8. [John Rawlings Rees - The end of the War and Operation Phoenix](https://en.wikipedia.org/wiki/John_Rawlings_Rees#The_end_of_the_War_and_Operation_Phoenix)
+>After the war, the Tavistock Clinic underwent considerable changes, in which Rees played a key role. He was a member of a group who referred to themselves as the ‘invisible college’, in reference to the 17th century precursor to the Royal Society.[8] This group orchestrated "Operation Phoenix", making plans for Tavistock to rise from the ashes of war. After the war, this group, including Rees and five others, formed the Interim Planning Committee of the Tavistock Clinic. This committee was chaired by Wilfred Bion, meeting twice a week to formulate a new way forward for their work at Tavistock, based on war-time experience.[3] Rees’ plans for the Institute of Medical Psychology were never realised; instead, the group went on to found the Tavistock Institute, with funding from the Rockefeller Foundation. Rees left shortly afterwards in 1947.
+
+=============================================================================================================================
+
+[Mikenskaya shootings](https://en.wikipedia.org/wiki/Mikenskaya_shootings)\
+Mikenskaya, Chechnya\
+October 8, 1999\
+34+ killed, 20+ wounded
+
+Perpetrator(s):\
+**Ahmed Ibragimov, 43**\
+Russian Ministry of Communications contractor employer (Postman)
+
+Source(s):
+1. [Mikenskaya shootings - Massacre](https://en.wikipedia.org/wiki/Mikenskaya_shootings#Massacre)
+>On October 8, a battle between Chechen government rebels and the Russian Army occurred in the Mikenskaya area. After the battle had ceased, people came out of their hiding places, and Ibragimov first approached a group of people sitting on a bench, and after a little chat with them he took out a Kalashnikov rifle and shot four of them. Ibragimov, who was reportedly drunk, then went through the village and shot those whom he recognized as being Russians, while sparing those who were Chechens. After taking a bicycle from one of his victims, he methodically rode to houses occupied by Russians, called out their inhabitants, and shot them.[1][2] Whenever he wounded his victims, he would kill them by shooting them again in the head.[3] The victims were left lying in the streets, in yards, and in their homes. In less than an hour, Ibragimov had killed at least 34 Russian inhabitants of the village, aged from 10 to 89 years. He fled when he ran out of ammunition, though two days later, he was captured by Chechen rebels and handed over to the village elders. Without going through a trial, he was handcuffed to a pole at the village square, where he was beaten to death with iron rods by two Russian brothers whose parents he had killed. Ibragimov's corpse was then left lying in the street since the local mullahs forbade to bury him.[4][5][6]
+
+2. [Mikenskaya shootings - Perpetrator](https://en.wikipedia.org/wiki/Mikenskaya_shootings#Perpetrator)
+>Ahmed Ibragimov was born in 1956, and was a native of Mikenskaya, Chechnya, a village about 30 miles northwest of Grozny. During the privatization after the collapse of the Soviet Union in the early 90s, he acquired some farm machinery and worked as a driver, later on running a small shop, and at one point was also the local postman.[7] Ibragimov had a brother who was killed in the First Chechen War, and at the time of the killings he was living in Chernokozovo.[8] In August 1999, the Second Chechen War began, and on October 1 the Russian Federation invaded Chechnya as part of the conflict.
+>
+>The reason for the shooting apparently was the villagers' refusal to dig trenches, and actions of the Russian forces.[9] Ibragimov, according to one villager, stated that "Russians are killing Chechens, so now I am going to kill Russians."[10] Various higher death tolls have been reported, ranging from 35 (34 Russians and a Meskhetian Turk), and 39, to up to 41, and it was also reported that he had shot 42 Russians and five Chechens.[8][11][12][10]
+>
+>Ibragimov reportedly had already killed several members of a family named Allenov in another village called Alpatovo a few days prior, though this claim may be erroneously referring to a previous massacre committed by Chechen militants in that same village.
+
+3. [Ministry of Digital Development, Communications and Mass Media (Russia)](https://en.wikipedia.org/wiki/Ministry_of_Digital_Development,_Communications_and_Mass_Media_(Russia))
+>The Ministry of Digital Development, Communications and Mass Media of the Russian Federation[2] (Russian: Министерство цифрового развития, связи и массовых коммуникаций Российской Федерации), also known as MinTsifry Rossii (Russian: Минцифры России[3]), is a ministry of the Government of Russia responsible for telecommunications, media and the post.
+
+=============================================================================================================================
+
+[Virginia Tech shooting](https://en.wikipedia.org/wiki/Virginia_Tech_shooting)\
+Blacksburg, Virginia\
+April 16, 2007\
+33 killed (including 1 perpetrator), 23 wounded
+
+Perpetrator(s):\
+**Seung-Hui Cho, 23**
+United States Department of State (DOS) / Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor sister (Sun-kyung Cho - Bureau of Near Eastern Affairs / Iraq Reconstruction Management Office / McNeil Technologies)
+
+Source(s):
+1. [Virginia Tech Killer's Sister Speaks](https://abcnews.go.com/US/story?id=3057057&page=1)
+>Sun-kyung Cho, the older sister of Seung-hui Cho, the man accused of carrying out the deadliest campus shooting in U.S. history, has finally come forward, according to a report in Princeton University's daily newspaper, the Daily Princetonian.
+>[...]
+>In an interview with the Princeton Weekly Bulletin, Cho said that in 2003 she spent the "most amazing three months of my life" as an unpaid intern in the economics section of the U.S. Embassy in Bangkok. According to the online article, Cho also interned the previous summer at the State Department's international labor office.According to The AP, the Princeton graduate now works as a contractor for a State Department office, the Iraq Reconstruction Management Office, which oversees billions of dollars in American aid for Iraq. She calls herself "Sun Cho" on her work voice mail.
+>
+>Cho is listed in the State Department directory as a personnel assistant at the Bureau of Near Eastern Affairs, but sources say she reports to McNeil Technologies, which is one of the many administrative/managerial support contractors used for Iraq reconstruction management projects.
+
+2. [McNeil Technologies](https://www.cbinsights.com/company/mcneil-technologies)
+>Provider of professional services to the Federal Government. The company offers language, intelligence, information technology (IT), records management and aviation services. It provides intelligence support services to assist customers in planning and conducting operations on the national, theater, and tactical levels; language translation and interpretation services to the Department of Defense, the Intelligence Community, and other federal agencies; and end-user and telecommunications support services, as well as system engineering and development services to address mission-critical and performance-based requirements.
+
+3. [Seung-Hui Cho - Early life and education](https://en.wikipedia.org/wiki/Seung-Hui_Cho#Early_life_and_education)
+>Cho was born on January 18, 1984, in the city of Asan, in South Korea's South Chungcheong Province.[19] Cho and his family lived in a basement apartment in the city of Seoul for a couple of years before immigrating to the United States. Cho's father was self-employed as a bookstore owner, but made minimal profits from the venture. Seeking better education and opportunities for his three children,[20][21] Cho's father immigrated to the United States with his family in 1992, when Cho was eight years old. The family lived in Detroit, then moved to the Washington metropolitan area after learning that it had one of the largest South Korean expatriate communities in the U.S. Cho's family settled in Centreville, an unincorporated community in western Fairfax County, Virginia, west of Washington, D.C.[22] Cho's father and mother opened a dry-cleaning business. After they moved to Centreville, Cho and his family became permanent residents of the United States as South Korean nationals.[23][24] His parents became members of a local Christian church, and Cho himself was raised as a member of the religion,[25] although in a note Cho "railed against his parents' strong Christian faith."[26]
+
+4. [Fairfax County, Virginia - Wikipedia](https://en.wikipedia.org/wiki/Fairfax_County,_Virginia)
+>Fairfax County, officially the County of Fairfax, is a county in the Commonwealth of Virginia in the United States. Part of Northern Virginia, Fairfax County borders both the City of Alexandria and Arlington County and forms part of the suburban ring of Washington, D.C. 
+>[...]
+>The county is home to the headquarters of intelligence agencies such as the Central Intelligence Agency, National Geospatial-Intelligence Agency, and National Reconnaissance Office, as well as the National Counterterrorism Center and Office of the Director of National Intelligence. The county is also home to seven Fortune 500 companies, including three in the Falls Church area, though not in the independent municipality of Falls Church.[6]
+
+5. [Seung-Hui Cho - Selective mutism diagnosis, possible autism](https://en.wikipedia.org/wiki/Seung-Hui_Cho#Selective_mutism_diagnosis,_possible_autism)
+>Cho was diagnosed with selective mutism.[41][42] The Virginia Tech Review Panel report, released in August 2007, placed this diagnosis in the spring of Cho's eighth-grade year; his parents sought treatment for him through medication and therapy.[18] In high school, Cho was placed in special education under the "emotional disturbance" classification. He was excused from oral presentations and class conversation and received speech therapy.[33] He continued receiving mental health therapy as well until the end of his junior year.[18]
+
+6. [Seung-Hui Cho - Court-ordered psychiatric assessment](https://en.wikipedia.org/wiki/Seung-Hui_Cho#Court-ordered_psychiatric_assessment)
+>On December 13, 2005, Cho was taken by police to the psychiatric hospital of New River Valley Community Services Board. There, Crouse, the physician who examined Cho the same day, declared Cho was found "mentally ill and in need of hospitalization." He noted that Cho had a flat affect and depressed mood, and that Cho "denies suicidal ideation" and "does not acknowledge symptoms of a thought disorder." The physician also noted: "His insight and judgment are normal." Cho, suspected of being "an imminent danger to himself or others", was detained temporarily at Carilion St. Albans Behavioral Health Center in Radford, Virginia, pending a commitment hearing before the Montgomery County, Virginia district court.[57][71][70] On December 14, 2005, Cho was released from the mental health facility; after Cho's release, on the same day Virginia Special Justice Paul Barnett certified in an order that Cho "presented an imminent danger to himself as a result of mental illness," and ordered treatment for Cho as an outpatient.[72][70][57][73] However, Cho did not receive the treatment which had been ordered, as due to Virginia's health system "[n]either the court, the university nor community services officials followed up on the judge's order".[70]
+>
+>Virginia state law on mental health disqualifications to firearms purchases, however, is worded slightly differently from the federal statute. So the form that Virginia courts use to notify state police about a mental health disqualification addresses only the state criteria, which list two potential categories that would warrant notification to the state police: someone who was "involuntarily committed" or ruled mentally "incapacitated".[74]
+>
+>Because Cho was not involuntarily committed to a mental health facility as an inpatient, he was still legally eligible to buy guns under Virginia law.[74] However, according to Virginia law, "[a] magistrate has the authority to issue a detention order upon a finding that a person is mentally ill and in need of hospitalization or treatment." The magistrate also must find that the person is an imminent danger to himself or others.[57][75] Virginia officials and other law experts have argued that, under United States federal law, Barnett's order meant that Cho had been "adjudicated as a mental defective" and was thus ineligible to purchase firearms under federal law; and that the state of Virginia erred in not enforcing the requirements of the federal law.[74]
+
+7. [Seung-Hui Cho - Review of Cho's medical records](https://en.wikipedia.org/wiki/Seung-Hui_Cho#Review_of_Cho's_medical_records)
+>The investigation panel had sought Cho's medical records for several weeks, but due to privacy laws, Virginia Tech was prohibited from releasing them without permission from Cho's family, even after his death.[112] The panel had considered using subpoenas to obtain his records. On June 12, 2007, Cho's family released his medical records to the panel, although the panel said that the records were not enough.[113][114] The panel obtained additional information by court order.[115] Cho had been prescribed paroxetine years before the shooting but had been taken off it after one year.[18] The toxicology test from the official autopsy later showed that neither psychiatric nor any kind of illegal drugs were in his system during the time of the shooting.[116]
+
+=============================================================================================================================
+
+[Akshardham Temple attack](https://en.wikipedia.org/wiki/Akshardham_Temple_attack)
+Gujarat, India\
+September 24 - 25, 2002\
+32 killed (including 2 perpetrators), 80 wounded
+
+Perpetrator(s):\
+**Murtaza Hafiz Yasin / Ashraf Ali Mohammad Farooq**
+Pakistani Inter-Services Intelligence (ISI); United States Drug Enforcement Administration (DEA) associate (David Headley)
+
+Source(s):
+	
 
 =============================================================================================================================
