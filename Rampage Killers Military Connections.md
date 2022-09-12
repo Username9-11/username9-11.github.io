@@ -217,17 +217,17 @@ Source(s):
 >She led her children — Martin, 8 years old; Christa, 10, and Leanne, 22 — into a bathroom, and motioned to Charles Beikman, a 43‐year‐old former marine, to follow.
 
 13. [‘How Did This Happen, and How Did I Not See It Coming?’](https://jonestown.sdsu.edu/?page_id=64894)
->Tim Carter was one of the few eyewitnesses to survive the day of the massacre at the Jonestown settlement.
->[...]
+>Tim Carter was one of the few eyewitnesses to survive the day of the massacre at the Jonestown settlement.\
+>[...]\
 >Prior to joining the Peoples Temple, Carter spent three years with the U.S. Marine Corps in Vietnam. He got out in 1968, three days before the Tet Offensive.
 
 14. [Michael Prokes’ Additional Statement](https://jonestown.sdsu.edu/?page_id=13679)
->A few days later I received a call at my office from a man who asked if I would meet with him to discuss the Peoples Temple. I found the request very curious; I said o.k. and we met the next day in a Stockton restaurant. The man told me his name was Gary Jackson. I asked him what he did and he said that he worked for the government, but I couldn’t get him to be more specific. He asked what prompted my interest in Peoples Temple. I asked him how he knew that I was interested in the Temple. He paused for a few moments, then said something to the effect – “There are ways if you think about it.” The answer was obvious – Jim Jones’ phone was tapped.
->[...]
->He said if I could be successful at joining the Temple full-time as a staff member and report regularly on what was going on inside the organization, he would arrange for me to be paid $200 a week.
->[...]
->As time passed, I gradually began to feel conflict over my role as an informant, even though I wasn’t providing what one might call valuable or sensitive information. I was starting to identify with the problems and sufferings of the members.
->[...]
+>A few days later I received a call at my office from a man who asked if I would meet with him to discuss the Peoples Temple. I found the request very curious; I said o.k. and we met the next day in a Stockton restaurant. The man told me his name was Gary Jackson. I asked him what he did and he said that he worked for the government, but I couldn’t get him to be more specific. He asked what prompted my interest in Peoples Temple. I asked him how he knew that I was interested in the Temple. He paused for a few moments, then said something to the effect – “There are ways if you think about it.” The answer was obvious – Jim Jones’ phone was tapped.\
+>[...]\
+>He said if I could be successful at joining the Temple full-time as a staff member and report regularly on what was going on inside the organization, he would arrange for me to be paid $200 a week.\
+>[...]\
+>As time passed, I gradually began to feel conflict over my role as an informant, even though I wasn’t providing what one might call valuable or sensitive information. I was starting to identify with the problems and sufferings of the members.\
+>[...]\
 >I could no longer justify informing on Jones and his organization. During my next contact, I told Jackson what I thought of Jones and he desperately tried to convince me I was wrong. [...] He urged me not to tell Jones about him and I told him I saw no reason why I should do that unless I suspected someone else was taking my place.
 
 13. [Peoples Temple in San Francisco - Political beginnings](https://en.wikipedia.org/wiki/Peoples_Temple_in_San_Francisco#Political_beginnings)
@@ -258,8 +258,8 @@ Source(s):
 >Mr Kibweteere had a brief fling with politics, campaigning for the opposition Democratic Party in the 1980 election, but he dropped out after their defeat.
 
 2. [Kanungu massacre: How government missed the red flags](https://www.monitor.co.ug/uganda/magazines/people-power/kanungu-massacre-how-government-missed-the-red-flags-1745746)
->In its report, the UHRC made 10 recommendations to government among which was “for government to establish the true facts that led to the then RDC of Rukungiri, Kitaka Gawera, to fraternise with the cult leadership in Kanungu to the extent that he laid a foundation stone on one of their buildings dedicated to Jesus Christ and Mary in memory of the late Paulo Kashaku on June 28, 1997, notwithstanding his predecessor’s letter to the NGO Registration Board advising against the registration of the cult.” 
->[...] 
+>In its report, the UHRC made 10 recommendations to government among which was “for government to establish the true facts that led to the then RDC of Rukungiri, Kitaka Gawera, to fraternise with the cult leadership in Kanungu to the extent that he laid a foundation stone on one of their buildings dedicated to Jesus Christ and Mary in memory of the late Paulo Kashaku on June 28, 1997, notwithstanding his predecessor’s letter to the NGO Registration Board advising against the registration of the cult.”\
+>[...]\
 >As early as 1994, Rukungiri RDC Yoram Kamacerere refused to approve the church’s registration as an NGO, and he went ahead to close its school. But two months after his transfer, his successor Kitaka Gawera approved the registration, and laid a foundation stone at one of the cult’s buildings.” Kanungu was still under Rukungiri District at the time.
 
 ------------------------------------
@@ -350,8 +350,8 @@ Saudi Arabian National Guard; Ikhwan militia family
 
 Source(s):
 1. [Juhayman al-Otaybi - Biography](https://en.wikipedia.org/wiki/Juhayman_al-Otaybi#Biography)
->Otaybi was born in al-Sajir, Al-Qassim Province,[5] a settlement established by King Abdulaziz to house Ikhwan bedouin tribesmen who had fought for him. This settlement (known as a hijra) was populated by members of Otaybi's tribe, the 'Utaybah tribe,[6] one of the most pre-eminent tribes of the Najd region.[7] Many of Otaybi's relatives participated in the Battle of Sabilla during the Ikhwan uprising against King Abdulaziz, including his father, as well as his grandfather, Sultan bin Bajad al-Otaybi. 
->[...] 
+>Otaybi was born in al-Sajir, Al-Qassim Province,[5] a settlement established by King Abdulaziz to house Ikhwan bedouin tribesmen who had fought for him. This settlement (known as a hijra) was populated by members of Otaybi's tribe, the 'Utaybah tribe,[6] one of the most pre-eminent tribes of the Najd region.[7] Many of Otaybi's relatives participated in the Battle of Sabilla during the Ikhwan uprising against King Abdulaziz, including his father, as well as his grandfather, Sultan bin Bajad al-Otaybi.\
+>[...]\
 >He served in the Saudi Arabian National Guard from 1955[10] to 1973.[11][12] [...] His son, Hathal bin Juhayman al-Otaybi, who works for the National Guards, was promoted to the rank of colonel in 2018.[13]
 
 2. [Grand Mosque seizure - Background](https://en.wikipedia.org/wiki/Grand_Mosque_seizure#Background)
@@ -393,8 +393,8 @@ Source(s):
 >In its February 14-20, 2000, issue, the Russian newsweekly Novaya Gazeta reports that Ryazan police officers insist that the bomb they uncovered and defused was real. On September 22, 1999, a bomb was discovered in the city of Ryazan, about 100 miles south of Moscow. After the chief bomb suspects were discovered to be FSB agents, the government claimed the bomb was a dummy and the incident was a training exercise (see September 22-24, 1999). But the bomb-squad officer, Yuri Tkachenko, is adamant that it was a professionally-prepared, military-style bomb. He defends the accuracy of his sophisticated gas-testing device which identified the explosives as hexogen. The article provokes much comment in Russia but is ignored by the government. [SATTER, 2003, PP. 29]
 
 4. [Ibn al-Khattab - Early life](https://en.wikipedia.org/wiki/Ibn_al-Khattab#Early_life)
->He would retain the title during his militant activities, which began in 1987, at the age of 17, by joining the Afghan Arabs against the Soviet Union. 
->[...]
+>He would retain the title during his militant activities, which began in 1987, at the age of 17, by joining the Afghan Arabs against the Soviet Union.\
+>[...]\
 >At the age of 17, Khattab left Saudi Arabia to participate in the fight against the Soviet Union during the Soviet invasion of Afghanistan.[7] During this time, he permanently incapacitated his right hand and lost several fingers after an accident with improvised explosives. The injury was treated with honey by Khattab on himself.[8]
 
 5. [The Soviet-Afghan War's Connections to the United States Central Intelligence Agency](http://web.archive.org/web/20200727193621/http://www.historycommons.org/timeline.jsp?timeline=afghanwar_tmln&afghanwar_tmln_soviet_occupation_of_afghanistan=afghanwar_tmln_us_aid_to_islamist_mujaheddin)
@@ -423,8 +423,8 @@ Source(s):
 >
 >“Information has been revealed that the suspect arrested had a close relationship with … Zahran and had been operating financial transactions,” said a police statement late on Friday.
 >
->The statement said Aliyar was “involved” with training in the southern town of Hambantota for the group of suicide bombers who attacked hotels and churches on Easter, killing more than 250 people.
->[...]
+>The statement said Aliyar was “involved” with training in the southern town of Hambantota for the group of suicide bombers who attacked hotels and churches on Easter, killing more than 250 people.\
+>[...]\
 >Aliyar founded the centre in 1990, a year after he graduated from the Imam Muhammad ibn Saud Islamic University in Riyadh, in what one resident said marked a key moment in the spread of Salafi doctrine in Kattankudy. The centre was partly funded by Saudi and Kuwaiti donors, according to a plaque outside.
 
 2. [Leaked Diplomatic Cable Suggests Saudi Foreknowledge of Sri Lanka Easter Bombings](https://www.mintpressnews.com/leaked-memo-suggests-saudi-government-role-sri-lanka-easter-bombings/258524/)
@@ -708,27 +708,27 @@ Source(s):
 5. [Were There More OKC Conspirators?: The Elohim City Connection](http://law2.umkc.edu/faculty/PROJECTS/FTRIALS/mcveigh/moreconspirators.html)
 >Elohim City ("The City of God") is a 400-acre compound located in isolated and rugged hill country on the Oklahoma-Arkansas border.  The compound was founded by white supremacist Robert Millar as a Christian Identity settlement in 1973.  The compound, which has had at times over 100 residents, has been considered to be a hotbed of anti-government and criminal activities.
 >
->Phone record showing calls made by Timothy McVeigh from the Imperial Motel in Kingman, Arizona on April 5, 1995, exactly two weeks before the Oklahoma City bombing.  The first call is to the Ryder Truck Rental Company and the second, just two minutes later, is a call placed to the "Elohim City" compound in Muldrow, Oklahoma. The call was an unsuccessfull attempt to reach the man pictured below, Elohim City resident, Andreas Strassmeir.
->[...]
->What McVeigh's "authorized biography" says about the Elohim City connection: 
+>Phone record showing calls made by Timothy McVeigh from the Imperial Motel in Kingman, Arizona on April 5, 1995, exactly two weeks before the Oklahoma City bombing.  The first call is to the Ryder Truck Rental Company and the second, just two minutes later, is a call placed to the "Elohim City" compound in Muldrow, Oklahoma. The call was an unsuccessfull attempt to reach the man pictured below, Elohim City resident, Andreas Strassmeir.\
+>[...]\
+>What McVeigh's "authorized biography" says about the Elohim City connection:\
 >McVeigh admitted calling Elohim City for Andreas ("Andy the German") Strassmeir on 4/5/95.  He says the purpose of the call was ask Strassmeir,who he met at a Tulsa gun show in 1994, whether he could use Elohim City as a hideout after the bombing (p244).  McVeigh admitting discussing political issues with Strassmeir, the grandson of a founder of the Nazi party, but claimed that Strassmeir had nothing to do with the bombing itself.  A polygraph test taken by McVeigh, however, showed that while he was truthful in discussing his own role in the bombing, he "showed signs of evasion" when he said no persons, other than those already charged, were involved in the bombing (p351).
 >
->What federal agents said in a memo written on 4/20/1995:
+>What federal agents said in a memo written on 4/20/1995:\
 >"It is suspected that members of Elohim City are involved either directly or indirectly through conspiracy..."
 >
->What McVeigh's defense attorney, Steven Jones, said:
+>What McVeigh's defense attorney, Steven Jones, said:\
 >"I don't doubt Tim's role in the conspiracy.  But I think he clearly aggrandized his role, enlarged it, to cover for others who were involved." (AP, 2/13/2003)
 >
->What the FBI's scene commander for the Oklahoma City investigation, Danny Coulson, said in 2003:
+>What the FBI's scene commander for the Oklahoma City investigation, Danny Coulson, said in 2003:\
 >"I think you have too many coincidences here that raise questions about whether other people are involved.  The close associations with Elohim City  and the earlier plan [of Elohim City residents] to do the same Murrah Building all suggest the  complicity of other people." (AP, 2/13/2003)
 >
->What Dan Defenbaugh, retired FBI Chief of the Oklahoma City bombing investigation said in 2003:
+>What Dan Defenbaugh, retired FBI Chief of the Oklahoma City bombing investigation said in 2003:\
 >"If I were still in the bureau, the investigation would be reopened."
 >
->What two fellow inmates on death row say McVeigh revealed to them (from Secrets Worth Dying For, by David Hammer and Jeffrey Paul (2004)): 
+>What two fellow inmates on death row say McVeigh revealed to them (from Secrets Worth Dying For, by David Hammer and Jeffrey Paul (2004)):\
 >After receiving a tour of the Elohim City compound on 10/12/1993, McVeigh and Nichols had a meeting with Andreas Strassmeir and several other men to discuss "direct action against the federal government" (p158). Within months, McVeigh had joined two of the men he met at Elohim City in robbing banks (McVeigh served as the getaway driver)around the Midwest (p159).  In April 1994, in a meeting with Strassmeir and White Aryan Resistance leader Dennis Mahon, McVeigh first discussed blowing up the Murrah Building in Oklahoma City (p164). In September 1994, McVeigh attended a series of planning meetings in Elohim City (p167).  In early 1995,McVeigh and members of the Aryan Resistance (ARA) from Elohim City were conducting practice runs of the bombing (p173).  Michael Brescia was chosen to accompany McVeigh on his bombing run (p174).  On April 8, McVeigh met in Tulsa with Brescia and Strassmeir to discuss the bombing [and watch strippers?--see box to lower left](p175). Brescia and other ARA members assisted McVeigh in loading explosives into the Ryder truck and mixing them (p177-78). Brescia rode into Oklahoma City in the Ryder truck with McVeigh on 4/19/95, exiting at a stoplight and NW 5th Street and Harvey.  McVeigh then parked the truck in front of the Murrah Building and quickly walked in the direction of his getaway car (p182-83).
 >
->What a 2003 AP report said about McVeigh's connection to Elohim City and white supremacists: 
+>What a 2003 AP report said about McVeigh's connection to Elohim City and white supremacists:\
 >AP writer John Solomon's investigation led him to conclude that white supremacists from Elohim City played a major role in the bombing conspiracy. Solomon noted, for example, an FBI teletype showed that on April 16, 1995 two Elohim City gang members left the compound for a location in Kansas close to "where McVeigh was doing the final assembly of his bomb."  Solomon also reported that two Elohim City gang members, Kevin Langan and Mark Thomas, told federal agents that they could provide information linking McVeigh to Ayran Resistance.  Even more compelling evidence, Solomon reported, came from informant John Shults, who "told agents in 1997 that he was sure 'beyond a shadow of a doubt' he saw McVeigh at Elohim City in 1994 at a meeting about a mysterious delivery and use of a Ryder truck."
 
 6. [Oklahoma City bombing conspiracy theories - Additional conspirators](https://en.wikipedia.org/wiki/Oklahoma_City_bombing_conspiracy_theories#Additional_conspirators)
@@ -764,16 +764,16 @@ Source(s):
 >
 >As a psychological specimen, Langan is fascinating: a changeling of ideology and identity. He's the imaginative, multilingual boy who grew up in Saigon amid a privileged community of U.S. intelligence agents and military advisers; the pre-teen hippie who spouted leftist slogans and marched for peace and brotherhood; the runaway who had been shot and served prison time by the age of 21.
 >
->Years later, he's a weapons fetishist and neo-Nazi government hater -- who's slick enough to convince the feds that he's on their side. In 1993, the U.S. Secret Service sprang Langan from jail, allowing Commander Pedro and his ragtag revolutionary army to launch their bank-robbery spree.
-[...]
+>Years later, he's a weapons fetishist and neo-Nazi government hater -- who's slick enough to convince the feds that he's on their side. In 1993, the U.S. Secret Service sprang Langan from jail, allowing Commander Pedro and his ragtag revolutionary army to launch their bank-robbery spree.\
+[...]\
 >They lived cheaply, but the four-man army didn't skimp on business needs. Testimony and evidence shows that Langan established a separate cash trove dedicated to what he called "the Company" to cover expenses: getaway vehicles, police scanners, bulletproof vests, pagers, phone cards, walkie-talkies, phony IDs, hotel rooms, safe houses, storage lockers and, of course, weapons.
 >
 >The Company name resonates on two levels. It's the code word Bob Mathews used for the Order, and Langan believes his father, Eugene, was a CIA agent: "Yes, the Commander grew up in the Company," he says in the video. (Other Langan family members say this is true, though the CIA won't discuss anyone's employment.)
 >
 >Pete Langan ran the Company with his longtime friend Richard Guthrie -- a holdup man and fraud artist who liked to be called "Wild Bill." Langan and Guthrie grew up within blocks of each other in Wheaton, although they didn't become close until years later. "They were more than friends -- they were brothers," says Norman Smith, a felon who knew them both.
 >
->Some say Wild Bill was even more unstable and politically extreme than Langan -- a bad influence, if that's possible. Guthrie was kicked out of the Navy in 1983 -- for painting a swastika on the side of a ship and threatening superiors, Smith says.
->[...]
+>Some say Wild Bill was even more unstable and politically extreme than Langan -- a bad influence, if that's possible. Guthrie was kicked out of the Navy in 1983 -- for painting a swastika on the side of a ship and threatening superiors, Smith says.\
+>[...]\
 >Summer 1963: As the Diem government of South Vietnam totters, the capital is inflamed by civil and religious strife: riots, bombings, a wave of self-immolations by Buddhist monks, martial law. Eugene F. Langan and his wife, Mary Ann, are at the center of the crisis. So are their six children.
 >
 >A retired Marine Corps major, Langan is a public safety official attached to the International Cooperation Administration (the forerunner of the Agency for International Development). He provides intelligence and helps to train local police. Mary Ann is a receptionist in the U.S. Embassy annex; she narrowly escapes injury when the building is bombed.
@@ -790,18 +790,18 @@ Source(s):
 >
 >In the woods along the creek, Pete plays soldier, enlisting other boys. "We used to involve the whole neighborhood in large-scale army battles," he recalls with a wistful smile. This is how he bonds with his father: "I used to go and hunt down the Viet Cong, then come in the living room and give him the body counts."
 >
->Within a few months, everything changes. Maj. Langan, much-decorated veteran of World War II and Korea, dies of a heart attack at age 50. Pete gets to keep his father's Marine Corps ring.
-[...]
->At 12 he is caught joyriding in a stolen car. He's sent to military school but goes AWOL. He sews peace signs on an old Army jacket. He steals a copy of Abbie Hoffman's yippie tract, "Steal This Book."
->[...]
->After five years in prison, Pete emerged as a racial separatist. He tried the straight life -- college, marriage, honest labor -- and failed at them all. His siblings pursued military careers and jobs with federal agencies. He struggled as a handyman while raising a son after his divorce.
->[...]
+>Within a few months, everything changes. Maj. Langan, much-decorated veteran of World War II and Korea, dies of a heart attack at age 50. Pete gets to keep his father's Marine Corps ring.\
+[...]\
+>At 12 he is caught joyriding in a stolen car. He's sent to military school but goes AWOL. He sews peace signs on an old Army jacket. He steals a copy of Abbie Hoffman's yippie tract, "Steal This Book."\
+>[...]\
+>After five years in prison, Pete emerged as a racial separatist. He tried the straight life -- college, marriage, honest labor -- and failed at them all. His siblings pursued military careers and jobs with federal agencies. He struggled as a handyman while raising a son after his divorce.\
+>[...]\
 >Langan moved to Ohio, where he converted to Mormonism in 1988 but later became an ordained minister in what authorities describe as a Ku Klux Klan-affiliated church. He lived with his sister, Leslie, an IRS employee in Cincinnati. He then moved in with a girlfriend, Faith Ford, who also worked for the IRS and described herself as a "white Christian."
 >
 >At Ford's house, Langan stockpiled guns and 10,000 rounds of ammunition. He dressed his young son in military camouflage.
 >
->In October 1992, Guthrie and Langan hooked up to rob a small-town Pizza Hut in Georgia. That puny-paying job (about $900 each) whetted their appetite for bigger jackpots and grander accomplishments. Double Cross
->[...]
+>In October 1992, Guthrie and Langan hooked up to rob a small-town Pizza Hut in Georgia. That puny-paying job (about $900 each) whetted their appetite for bigger jackpots and grander accomplishments. Double Cross\
+>[...]\
 >By August 1993, Georgia authorities had Langan cold on the Pizza Hut holdup. He faced a potential life sentence. Ohio also wanted him on weapons violations. Then the Secret Service intervened.
 >
 >The deal was unbelievably sweet. The local prosecutor would let Langan out of jail free, recommending that his bail be lowered from $150,000 to $8,000, allowing him a signature bond. The local cops deferred to the Secret Service, which put Langan on a bus back to Ohio and gave him $50 traveling money.
@@ -849,8 +849,8 @@ Source(s):
 >
 >Investigators working for the Nichols defense team spent two years unearthing everything they could about Roger Moore. And the more they dug, the more bewilderingly complex the man became. He had spent years working for the federal government he later professed to hate, first for the Social Security Administration in Iowa, and then for the air force. In the 1960s, he and his wife, Carol, had jobs and top-secret security clearances at North American Aviation. From there, they moved to Florida, where they made a fortune in the boat-building business, cashing out in 1977 to settle into a long retirement.
 >
->The impression Moore gave to his neighbors and acquaintances in Arkansas was of an angry, suspicious, conspiracy-spewing, tight-fisted gun nut who did not know how to make friends or observe basic rules of civility. He would fire high-powered rifle- rounds and mortars on his ranch after dark, which even in rural Arkansas was regarded as eccentric. Once, he let off a smoke bomb and knocked one of his neighbors unconscious for twenty minutes. He never apologized.
->[...]
+>The impression Moore gave to his neighbors and acquaintances in Arkansas was of an angry, suspicious, conspiracy-spewing, tight-fisted gun nut who did not know how to make friends or observe basic rules of civility. He would fire high-powered rifle- rounds and mortars on his ranch after dark, which even in rural Arkansas was regarded as eccentric. Once, he let off a smoke bomb and knocked one of his neighbors unconscious for twenty minutes. He never apologized.\
+>[...]\
 >Still, rumors about Moore abounded. Some of the more fantastical—and unverified—stories that circu- lated after the bombing suggested he might have taught sabotage techniques for the CIA at the Camp Peary military base in Virginia, or had been a participant in the Reagan administration’s illicit efforts to sell arms to the Nicaraguan contras, or had manufactured pontoon boats used by the CIA to mine three Nicaraguan ports in 1984, or had funneled information to the government on Barry Seal, a former CIA pilot who organized drug transports to Central America from Mena, Arkansas, not far from Moore’s ranch.
 >
 >The Nichols team did not know what to make of such stories, but they found more reasons of their own to question Moore’s connections and activities. Despite his background as a successful businessman, and the existence of at least two bank accounts in his name, they found he had almost no credit history. They never figured out why. They also puzzled over a line Moore had given to Rodney Bowers of the Arkansas Democrat-Gazette shortly after his first FBI interviews became public.
@@ -913,8 +913,8 @@ Source(s):
 >Notes from a 1997 FBI investigation state that sometime after the bombing, CIA pilot Dave Halloway flew Andreas Strassmer out of the United States.[35] While that same report records that Strassmeir was flown to Berlin, many have speculated that he was instead flown to Mexico.[36] However, in a letter to the McCurtain Gazette from Strassmeir's attorney Kirk Lyons, he says his client's sudden departure from the U.S. was aided by members of Germany's elite counterterrorism unit, GSG 9.[37]
 
 23. [1150_001.pdf](http://web.archive.org/web/20190106010711/http://bobmccarty.com/wp-content/uploads/2014/08/NOTICE-OF-SUPPLEMENTATION-OF-RECORD-MOTION-TO-STRIKE-EXHIBIT-3-FBI-302-HOLLADAY-CIA-PILOT-ECF.pdf)
->HOLLAWAY is employed as an applications engineer for the THRUSTMASTER (a marine propulsion Concern) in Houston, Texas. He purported to have had a variety of life experiences include eight years in the United States Army (Special Forces) with EOD training; working two years on the research vessel "KNOOR" operated by the University of North Carolina; one year of mechanical engineering studies at the University of North Carolina: six years of work in purcuit of a PhD; one year of employment with the Corpus Christi Texas Police Department (with assignment as a diver); two years with the Central Intelligence Agency (CIA) as a pilot; and the ownership of a company selling computer equipment- HOLLANAY also claimed a three year affiliation with a Foundation known as "CADSEN and having been an intermediary for negotiations, between government representatives and far right individuals and groups at various times.
->[...]
+>HOLLAWAY is employed as an applications engineer for the THRUSTMASTER (a marine propulsion Concern) in Houston, Texas. He purported to have had a variety of life experiences include eight years in the United States Army (Special Forces) with EOD training; working two years on the research vessel "KNOOR" operated by the University of North Carolina; one year of mechanical engineering studies at the University of North Carolina: six years of work in purcuit of a PhD; one year of employment with the Corpus Christi Texas Police Department (with assignment as a diver); two years with the Central Intelligence Agency (CIA) as a pilot; and the ownership of a company selling computer equipment- HOLLANAY also claimed a three year affiliation with a Foundation known as "CADSEN and having been an intermediary for negotiations, between government representatives and far right individuals and groups at various times.\
+>[...]\
 >At one point during their discussions, HOLLAWAY admitted to have spoken to TIMOTHY MCVEIGH on the telephone two days before the detonation of a truck bomb outside the Oklahoma City Federal Building. In reference to that particular event, HOLLAWAY stated "the fucking truck was too far away" and indicated that it was not parked in the position which would inflict the most damage on the building. While describing the Oklahoma City bombing, HOLLAWAY was able to provide technical details concerning the truck bomb and ANFO (ammonium nitrate/fuel oil) to include its blast over-pressure, fragmentation distances and deflagration with an alarming degree of specificity. Additionally, changes in HOLLAWAY'S body language while describing the Oklahoma City bombing, to include the rolling of his eyes when describing the truck not being parked in a place to wreck maximum destruction, provided the indication HOLLAWAY was attempting to communicate and involvement on his part in that bombing without verbally acknowledging participation.
 
 24. [Terry Nichols - Adulthood](https://en.wikipedia.org/wiki/Terry_Nichols#Adulthood)
@@ -1249,10 +1249,10 @@ Source(s):
 >Paddock worked as a letter carrier for the U.S. Postal Service from 1975 to 1978. After that, he worked as an Internal Revenue Service (IRS) agent until 1984. He was a Defense Contract Audit Agency auditor for one year, in 1985. Toward the end of the 1980s, Paddock worked for three years as an internal auditor for a company that later merged to form Lockheed Martin.[24]
 
 2. [Las Vegas Gunman’s Criminal Father Vanished From Sons’ Lives](https://www.nytimes.com/2017/10/02/us/benjamin-paddock-stephen-paddock.html)
->The father of Stephen Paddock, the man the police identified as the Las Vegas gunman, was a grifter, a con artist, a bank robber and a jail-breaker who spent years on the F.B.I.’s most-wanted list — a life nothing like the 64 years Stephen spent without apparently acquiring even a hint of a police record.
->[...]
->Benjamin Hoskins Paddock was born in Sheboygan, Wis., in 1926, and served in the Navy during World War II. Afterward, he landed in Chicago on the wrong side of the law: he was imprisoned in 1946 for stealing cars and running a confidence game. He was out long enough to marry in Reno, Nev., in 1952 and to father Stephen, before being imprisoned again in 1953 for a fraudulent check scheme, according to an Associated Press report.
->[...]
+>The father of Stephen Paddock, the man the police identified as the Las Vegas gunman, was a grifter, a con artist, a bank robber and a jail-breaker who spent years on the F.B.I.’s most-wanted list — a life nothing like the 64 years Stephen spent without apparently acquiring even a hint of a police record.\
+>[...]\
+>Benjamin Hoskins Paddock was born in Sheboygan, Wis., in 1926, and served in the Navy during World War II. Afterward, he landed in Chicago on the wrong side of the law: he was imprisoned in 1946 for stealing cars and running a confidence game. He was out long enough to marry in Reno, Nev., in 1952 and to father Stephen, before being imprisoned again in 1953 for a fraudulent check scheme, according to an Associated Press report.\
+>[...]\
 >Patrick Paddock II said that he and his brothers all grew up with anger that they had to learn how to manage, in his case through military training over 17 years of service in the Air Force. But he said he thought Stephen seemed the least affected. “My brother was the most boring one in the family,” Patrick said of Stephen. “He was the least violent one.”
 
 3. [Stephen Paddock - Possible contributing factors](https://en.wikipedia.org/wiki/Stephen_Paddock#Possible_contributing_factors)
@@ -1263,8 +1263,8 @@ Source(s):
 >
 >Though not a lot of information about Paddock’s psychological health has been released, the newspaper stated that “records from the Nevada Prescription Monitoring Program obtained Tuesday show Paddock was prescribed 50 10-milligram diazepam tablets by Henderson physician Dr. Steven Winkler on June 21.”
 >
->The brand name for diazepam is Valium, which runs the risk of causing aggressive behavior in some people according to benzo.org.uk, who cited examples of the drug and similar classes of medications in connection with aggression for those who were reportedly taking it.
->[...]
+>The brand name for diazepam is Valium, which runs the risk of causing aggressive behavior in some people according to benzo.org.uk, who cited examples of the drug and similar classes of medications in connection with aggression for those who were reportedly taking it.\
+>[...]\
 >The circumstances of why Paddock was prescribed diazepam or if he took it the day of or leading up to the massacre are not known at this time. It is also unknown if the shooter was prescribed or on any other medications.
 
 =============================================================================================================================
@@ -1412,16 +1412,16 @@ Source(s):
 >As part of his work there, he participated in a seminar led by Harry Stack Sullivan. Sullivan's theories on the role of disturbances in interpersonal relationships with "significant others" in the etiology of mental disorders had a profound effect on Mowrer's thinking. When Mowrer returned to Harvard, he began counseling students in addition to his faculty duties. He used the principles he had learned from Sullivan, questioning them about their interpersonal relationships and confronting them when he felt they were being dishonest.[9]
 
 5. [William Clement Stone - Wikipedia](https://en.wikipedia.org/wiki/W._Clement_Stone)
->William Clement Stone (May 4, 1902 – September 3, 2002) was an American businessman, philanthropist and New Thought self-help book author.
->[...]
->In 1947, after his business had grown significantly, Stone built the Combined Insurance Company of America, which provided both accident and health insurance coverage.[3] By 1979, his insurance company exceeded $1 billion in assets. Combined later merged with the Ryan Insurance Group to form Aon Corporation in 1987,[2] and Combined was later spun off by Aon to ACE Limited in April 2008 for $2.56 billion.[4]
->[...]
+>William Clement Stone (May 4, 1902 – September 3, 2002) was an American businessman, philanthropist and New Thought self-help book author.\
+>[...]\
+>In 1947, after his business had grown significantly, Stone built the Combined Insurance Company of America, which provided both accident and health insurance coverage.[3] By 1979, his insurance company exceeded $1 billion in assets. Combined later merged with the Ryan Insurance Group to form Aon Corporation in 1987,[2] and Combined was later spun off by Aon to ACE Limited in April 2008 for $2.56 billion.[4]\
+>[...]\
 >In 1951, Stone founded the interfaith group "The Washington Pilgrimage", which later became the "Religious Heritage of America". It successfully advocated the Eisenhower administration to add the "under God" to the Pledge of Allegiance.[5]
 >
 >Stone contributed up to $10 million to President Richard Nixon's election campaigns in 1968 and 1972; they were cited in Congressional debates after the Watergate scandal to institute campaign spending limits.[1]
 >
->According to Tim Weiner, in One Man Against the World: The Tragedy of Richard Nixon, in 1972 President Nixon's lawyer, Herbert Kalmbach, helped raise money for Nixon's presidential campaign by selling ambassadorships to large donors, including "W. Clement Stone, [who] pledged $3 million." Stone wanted to become ambassador to Great Britain, "which already was occupied by Ambassador Walter Annenberg, who gave $254,000 in order to stay on" (p. 160).
->[...]
+>According to Tim Weiner, in One Man Against the World: The Tragedy of Richard Nixon, in 1972 President Nixon's lawyer, Herbert Kalmbach, helped raise money for Nixon's presidential campaign by selling ambassadorships to large donors, including "W. Clement Stone, [who] pledged $3 million." Stone wanted to become ambassador to Great Britain, "which already was occupied by Ambassador Walter Annenberg, who gave $254,000 in order to stay on" (p. 160).\
+>[...]\
 >Stone provided much of the initial funding for the self-help organization, GROW.[22] Stone was inducted into the Horatio Alger Association of Distinguished Americans, and was a Freemason.[23]
 
 6. [Lions Clubs International - Wikipedia](https://en.wikipedia.org/wiki/Lions_Clubs_International)
@@ -1430,8 +1430,8 @@ Source(s):
 7. [Melvin Jones (Lions Club) - Wikipedia](https://en.wikipedia.org/wiki/Melvin_Jones_(Lions_Club))
 >Melvin Jones (January 13, 1879 - June 1, 1961) was Secretary-treasurer[1] of Lions Clubs International.
 >
->He was born in Fort Thomas, Arizona (at that time the Arizona Territory). His father was a captain in the United States Army. In 1886 or '87, the family moved east when his father was transferred. Melvin Jones settled in Chicago, where he studied at the Union Business and Chaddock colleges of Quincy, Illinois. At age 33 he was the sole owner of his own insurance agency in Chicago and became a member of the local business circle, and was elected secretary shortly thereafter. Melvin Jones was also a Freemason.[2]
->[...]
+>He was born in Fort Thomas, Arizona (at that time the Arizona Territory). His father was a captain in the United States Army. In 1886 or '87, the family moved east when his father was transferred. Melvin Jones settled in Chicago, where he studied at the Union Business and Chaddock colleges of Quincy, Illinois. At age 33 he was the sole owner of his own insurance agency in Chicago and became a member of the local business circle, and was elected secretary shortly thereafter. Melvin Jones was also a Freemason.[2]\
+>[...]\
 >In 1945, Jones represented Lions Clubs International as a consultant at the United Nations Conference on International Organization in San Francisco.
 
 =============================================================================================================================
@@ -1464,20 +1464,20 @@ Source(s):
 >Mateen held an active concealed carry permit and an armed security guard license.[48][49] It was also noted that Mateen had no adult criminal record.[50] According to licensing records, he was a proficient shooter who scored at or above the 98th percentile with a 9mm semiautomatic pistol.[51]
 
 4. [How America’s Afghan crusade came home to Orlando](https://medium.com/insurge-intelligence/how-americas-afghan-crusade-came-home-to-orlando-b1b9aba680ad)
->The US-Afghan military industrial complex surrounding Orlando terrorist Omar Mateen’s father stretches from Blackwater to Donald Trump. 
->[...] 
+>The US-Afghan military industrial complex surrounding Orlando terrorist Omar Mateen’s father stretches from Blackwater to Donald Trump.\
+>[...]\
 >This investigation throws light on the complex political, cultural, religious and personal forces that likely nurtured the Orlando terrorist into a man capable of tremendous violence. 
 >
 >The story opens up from an exclusive analysis of the network of companies surrounding Omar Mateen’s father.
 >
->Company records obtained by INSURGE intelligence reveal that Mateen’s father has longstanding ties to a network of powerful Afghan expatriates connected to the US government, private American defense contractors, and pro-Taliban warlords.
->[...] 
+>Company records obtained by INSURGE intelligence reveal that Mateen’s father has longstanding ties to a network of powerful Afghan expatriates connected to the US government, private American defense contractors, and pro-Taliban warlords.\
+>[...]\
 >Omar Mateen had also worked as an armed security officer for G4S — the world’s largest government security contractor by revenues — for the last 9 years.
 >
 >G4S in Florida has been contracted by the US State Department and British Foreign Office for security operations in Afghanistan.
 >
->In 2010, a US Senate investigation heavily criticized the State Department for hiring G4S subsidiary ArmorGroup, which had been sub-contracting Afghan warlords tied to the Taliban and al-Qaeda to outsource certain security functions.
->[...]
+>In 2010, a US Senate investigation heavily criticized the State Department for hiring G4S subsidiary ArmorGroup, which had been sub-contracting Afghan warlords tied to the Taliban and al-Qaeda to outsource certain security functions.\
+>[...]\
 >Omar Mateen’s father, Mir Seddique Mateen, is part of a network of influential Afghan expatriates working closely with a vast range of US government departments and agencies. The expatriates also have direct connections to the US-backed government in Afghanistan, as well as with warlords opposed to the Afghan regime and sympathetic to the Taliban.
 >
 >Some of these expatriates were close to the late Mohammed Zahir Shah, the last King of Afghanistan, who was deposed in a 1973 coup covertly backed by the Soviet Union. As such, they were at first particularly close to the Hamid Karzai regime in Kabul, which had appointed many of Shah’s relatives to government posts.
@@ -1625,8 +1625,8 @@ Source(s):
 >
 >Mir Seddique did not respond to request for clarification on which government officials he met in these meetings, and why.
 >
->The Daily Mail has posted some of these photos showing Mir Seddique with senior Congressional figures such as Dana Rohrabacher, the Republican stalwart who played a major role in the US government’s Cold War support for the Afghan mujahideen.
->[...]
+>The Daily Mail has posted some of these photos showing Mir Seddique with senior Congressional figures such as Dana Rohrabacher, the Republican stalwart who played a major role in the US government’s Cold War support for the Afghan mujahideen.\
+>[...]\
 >In one photo that was posted with an earlier version of the Daily Mail article — but which is no longer available — Mir Seddique can be seen posing next to Abdul Sattar Sirat as part of a UFMOA gathering.
 >
 >Many other key photographs released here exclusively raise further questions about the extent of Mir Seddique’s access to Washington officialdom due to his work with Sirat and Tarin.
@@ -1656,11 +1656,11 @@ Source(s):
 5. [Orlando gunman tied to radical imam released from prison last year, say law enforcement sources](https://www.foxnews.com/us/orlando-gunman-tied-to-radical-imam-released-from-prison-last-year-say-law-enforcement-sources)
 >Omar Mateen, whose bloody siege inside a packed Orlando gay nightclub ended when SWAT teams stormed the building and killed him, was a radical Muslim who followed Marcus Dwayne Robertson, a law enforcement source said.
 >
->“It is no coincidence that this happened in Orlando,” said a law enforcement source familiar with Robertson’s history of recruiting terrorists and inciting violence. “Mateen was enrolled in [Robertson’s online] Fundamental Islamic Knowledge Seminary.” 
->[...] 
+>“It is no coincidence that this happened in Orlando,” said a law enforcement source familiar with Robertson’s history of recruiting terrorists and inciting violence. “Mateen was enrolled in [Robertson’s online] Fundamental Islamic Knowledge Seminary.”\
+>[...]\
 >Robertson, a former U.S. Marine who served as a bodyguard to the Blind Sheik involved in the 1993 World Trade Center Attack and led a gang of New York bank robbers called “Ali Baba and the 40 Thieves” before resurfacing in Orlando, where he started an Islamic seminary. 
->[...] 
->After he was arrested in 1991 [...] prosecutors cut a deal with Robertson, and let him serve four years in prison before going to work undercover for the FBI between 2004 and 2007 to document terrorists’ plans and networks in Africa, Egypt and the United States.
+>[...]\
+>After he was arrested in 1991 [...] prosecutors cut a deal with Robertson, and let him serve four years in prison before going to work undercover for the FBI between 2004 and 2007 to document terrorists’ plans and networks in Africa, Egypt and the United States.\
 
 6. [Omar Abdul-Rahman's (AKA the "Blind Sheikh") Connections to the United States Central Intelligence Agency](http://web.archive.org/web/20201105064217/http://historycommons.org/entity.jsp?entity=sheikh_omar_abdul-rahman)
 
@@ -1699,8 +1699,8 @@ Georgian Intelligence Service (GIS); United States Central Intelligence Agency (
 
 Source(s):
 1. [Mastermind of Istanbul Airport Attack Had Been Georgian Informant, Official Says](https://www.thedailybeast.com/mastermind-of-istanbul-airport-attack-had-been-georgian-informant-official-says)
->Akhmed Chatayev is blamed for planning the deadly attack in Turkey, and an official says he was on the government payroll before returning to jihad.
->[...]
+>Akhmed Chatayev is blamed for planning the deadly attack in Turkey, and an official says he was on the government payroll before returning to jihad.\
+>[...]\
 >Here in the Black Sea port of Odessa, in Ukraine, Police Chief Gen. Giorgi Lortkipanidze knows all about Chatayev. The general used to be the deputy interior minister in Georgia, and for a while, he says, had Chatayev on the government payroll.
 >
 >“A few years ago I recruited Chatayev, who was a good informer and negotiator between us and Islamist underground of the Northern Caucasus; with his help we prevented several terrorist attacks on Georgia,” Gen. Lortkipanidze told The Daily Beast in an exclusive interview on Friday.
@@ -1899,8 +1899,8 @@ Source(s):
 >Bryant was referred for psychiatric treatment several times during his childhood. In 1984, a psychological evaluation by Dr Eric Cunningham Dax described him as mentally retarded and stated that he had a personality disorder.
 
 2. [Mass murder in Australia: Tavistock's Martin Bryant](https://larouchepub.com/eiw/public/1997/eirv24n21-19970516/eirv24n21-19970516_046-mass_murder_in_australia_tavisto.pdf)
->Martin Bryant was monitored, directed, and, in all likelihood, programmed by Tavistock networks in Tasmania, from at least the time that one of Tavistock' s senior representatives in Australia, the now 88-year-old Dr. Eric Cunningham Dax, first examined Bryant in 1983-84, and set the parameters for all his future "treatment." Dax was for decades an associate of Tavistock's longtime leader and World Federation of Mental Health chairman, Dr. John Rawlings Rees. Beginning with his collaboration with Rees in the late 1930s, Dax, by his own account, had specialized in "brainwashing."
->[...]
+>Martin Bryant was monitored, directed, and, in all likelihood, programmed by Tavistock networks in Tasmania, from at least the time that one of Tavistock' s senior representatives in Australia, the now 88-year-old Dr. Eric Cunningham Dax, first examined Bryant in 1983-84, and set the parameters for all his future "treatment." Dax was for decades an associate of Tavistock's longtime leader and World Federation of Mental Health chairman, Dr. John Rawlings Rees. Beginning with his collaboration with Rees in the late 1930s, Dax, by his own account, had specialized in "brainwashing."\
+>[...]\
 >Dr. Ian Sale, psychiatrist for the prosecution, recalled in a discussion on April 16: “When he was about 16 or 17, he was examined by a government doctor for the purpose of a pension assessment. It was to that doctor that he made some reference to having a wish to shoot people. She still remembers that to this day.
 
 3. [Eric Cunningham Dax - Career](https://en.wikipedia.org/wiki/Eric_Cunningham_Dax#Career)
@@ -1976,8 +1976,8 @@ United States Department of State (DOS) / Central Intelligence Agency (CIA) / De
 
 Source(s):
 1. [Virginia Tech Killer's Sister Speaks](https://abcnews.go.com/US/story?id=3057057&page=1)
->Sun-kyung Cho, the older sister of Seung-hui Cho, the man accused of carrying out the deadliest campus shooting in U.S. history, has finally come forward, according to a report in Princeton University's daily newspaper, the Daily Princetonian.
->[...]
+>Sun-kyung Cho, the older sister of Seung-hui Cho, the man accused of carrying out the deadliest campus shooting in U.S. history, has finally come forward, according to a report in Princeton University's daily newspaper, the Daily Princetonian.\
+>[...]\
 >In an interview with the Princeton Weekly Bulletin, Cho said that in 2003 she spent the "most amazing three months of my life" as an unpaid intern in the economics section of the U.S. Embassy in Bangkok. According to the online article, Cho also interned the previous summer at the State Department's international labor office.According to The AP, the Princeton graduate now works as a contractor for a State Department office, the Iraq Reconstruction Management Office, which oversees billions of dollars in American aid for Iraq. She calls herself "Sun Cho" on her work voice mail.
 >
 >Cho is listed in the State Department directory as a personnel assistant at the Bureau of Near Eastern Affairs, but sources say she reports to McNeil Technologies, which is one of the many administrative/managerial support contractors used for Iraq reconstruction management projects.
@@ -1989,8 +1989,8 @@ Source(s):
 >Cho was born on January 18, 1984, in the city of Asan, in South Korea's South Chungcheong Province.[19] Cho and his family lived in a basement apartment in the city of Seoul for a couple of years before immigrating to the United States. Cho's father was self-employed as a bookstore owner, but made minimal profits from the venture. Seeking better education and opportunities for his three children,[20][21] Cho's father immigrated to the United States with his family in 1992, when Cho was eight years old. The family lived in Detroit, then moved to the Washington metropolitan area after learning that it had one of the largest South Korean expatriate communities in the U.S. Cho's family settled in Centreville, an unincorporated community in western Fairfax County, Virginia, west of Washington, D.C.[22] Cho's father and mother opened a dry-cleaning business. After they moved to Centreville, Cho and his family became permanent residents of the United States as South Korean nationals.[23][24] His parents became members of a local Christian church, and Cho himself was raised as a member of the religion,[25] although in a note Cho "railed against his parents' strong Christian faith."[26]
 
 4. [Fairfax County, Virginia - Wikipedia](https://en.wikipedia.org/wiki/Fairfax_County,_Virginia)
->Fairfax County, officially the County of Fairfax, is a county in the Commonwealth of Virginia in the United States. Part of Northern Virginia, Fairfax County borders both the City of Alexandria and Arlington County and forms part of the suburban ring of Washington, D.C. 
->[...]
+>Fairfax County, officially the County of Fairfax, is a county in the Commonwealth of Virginia in the United States. Part of Northern Virginia, Fairfax County borders both the City of Alexandria and Arlington County and forms part of the suburban ring of Washington, D.C.\
+>[...]\
 >The county is home to the headquarters of intelligence agencies such as the Central Intelligence Agency, National Geospatial-Intelligence Agency, and National Reconnaissance Office, as well as the National Counterterrorism Center and Office of the Director of National Intelligence. The county is also home to seven Fortune 500 companies, including three in the Falls Church area, though not in the independent municipality of Falls Church.[6]
 
 5. [Seung-Hui Cho - Selective mutism diagnosis, possible autism](https://en.wikipedia.org/wiki/Seung-Hui_Cho#Selective_mutism_diagnosis,_possible_autism)
@@ -2008,16 +2008,304 @@ Source(s):
 
 =============================================================================================================================
 
-[Akshardham Temple attack](https://en.wikipedia.org/wiki/Akshardham_Temple_attack)
+[Akshardham Temple attack](https://en.wikipedia.org/wiki/Akshardham_Temple_attack)\
 Gujarat, India\
 September 24 - 25, 2002\
 32 killed (including 2 perpetrators), 80 wounded
 
 Perpetrator(s):\
 **Murtaza Hafiz Yasin / Ashraf Ali Mohammad Farooq**
-Pakistani Inter-Services Intelligence (ISI); United States Drug Enforcement Administration (DEA) associate (David Headley)
+Pakistani Inter-Services Intelligence (ISI)
 
 Source(s):
-	
+1. [Gujarat High Court upholds death sentence in Akshardham Temple attack](https://www.ndtv.com/india-news/gujarat-high-court-upholds-death-sentence-in-akshardham-temple-attack-419574)
+>All accused were alleged to have links with banned terrorist organisation like Jaish-e-Mohammad and Lashkar-e-Taiba. Some were also alleged to be linked to Pakistan intelligence agency Inter-Services Intelligence (ISI).
 
 =============================================================================================================================
+
+[Tsuyama massacre](https://en.wikipedia.org/wiki/Tsuyama_massacre)\
+Kamo, Japan\
+May 21, 1938\
+31 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**Mutsuo Toi, 21**\
+Imperial Japanese Army (IJA) applicant
+
+Source(s):
+1. [The List: The World’s Worst Shooting Rampages](https://web.archive.org/web/20070429132101/https://foreignpolicy.com/story/cms.php?story_id=3822)
+>Mutsuo Toi, a 21-year-old from a wealthy family, had been shunned by women and rejected from military service for having tuberculosis.
+
+2. [After failing the medical examination for joining the army, he killed 30 people in one day, and only one person was spared in the end](https://min.news/en/world/df1666181f03b13c6ae9eac2f6e1b299.html)
+	In 1937, Japan launched a full-scale war of aggression against China. The Japanese government began to call on the young and middle-aged in Japan to enlist in the army. Toi Mutsuo also came to the enlistment office to undergo an enlistment test. However, I don't know if he was infected by his parents, and Mutsuo Toi was also diagnosed with tuberculosis. Therefore, the conscription office assessed Mutsuo Toi's physical condition as "Class C" (equivalent to unqualified) and rejected his application to join the army.
+
+=============================================================================================================================
+
+[Cave of the Patriarchs massacre](https://en.wikipedia.org/wiki/Cave_of_the_Patriarchs_massacre)\
+Hebron, Occupied Palestinian Territories\
+February 25, 1994\
+30 killed (including 1 perpetrator), 125 wounded
+
+Perpetrator(s):\
+**Baruch Goldstein, 37**\
+Israel Defense Forces (IDF)
+
+Source(s):
+1. [Baruch Goldstein - Immigration to Israel](https://en.wikipedia.org/wiki/Baruch_Goldstein#Immigration_to_Israel)
+>Goldstein immigrated to Israel in 1983.[1] He served as a physician in the Israel Defense Forces (IDF), first as a conscript, then in the reserve forces. Following the end of his active duty, Goldstein worked as a physician, and lived in the Israeli settlement of Kiryat Arba near Hebron, where he worked as an emergency doctor, and was involved in treating victims of Arab-Israeli violence.[12] He changed his name from Benjamin to Baruch, married a Soviet immigrant named Miriam,[13] and had four children. Israeli press reports claimed that Goldstein refused to treat Arabs, even Arab soldiers serving in the IDF, believing it was against Jewish laws to treat non-Jews even for payment.[14][15] This was also reflected in comments by his acquaintances.[16] Goldstein was active in Kahane's Kach party, and was third on the party list for the Knesset during the 1984 elections.[17] He compared Israel's democracy to the Nazi regime, and was in the habit of wearing a yellow star with the word JUDE on it.[18]
+
+=============================================================================================================================
+
+[Nakhon Ratchasima shootings](https://en.wikipedia.org/wiki/Nakhon_Ratchasima_shootings)\
+Nakhon Ratchasima Province, Thailand\
+February 8 - 9, 2020\
+30 killed (including 1 perpetrator), 57 wounded
+
+Perpetrator(s):\
+**Jakrapanth Thomma, 31**\
+Royal Thai Army (RTA)
+
+Source(s):
+1. [Nakhon Ratchasima shootings - Perpetrator](https://en.wikipedia.org/wiki/Nakhon_Ratchasima_shootings#Perpetrator)
+>Sergeant Major 1st Class Jakrapanth Thomma (จักรพันธ์ ถมมา, RTGS: Chakkraphan Thomma; 4 April 1988 – 9 February 2020), age 31, was identified as the gunman. His hometown was Kaeng Khro, located in Chaiyaphum Province. He was stationed at the Suratham Phithak Military Base, where the first shooting took place. Thomma previously received training as a non-commissioned officer and was an expert marksman.
+>
+>Thomma's acquaintances said he was upset over being allegedly cheated out of a property deal and not being given back his money by his commanding officer, Colonel Anantharot Krasae, and Krasae's mother-in-law, who were both shot dead. During the livestream of the shooting, Thomma shouted, "Rich from cheating and taking advantage of people ... Do they think they can take money to spend in hell?"[11]
+
+=============================================================================================================================
+
+[Restaurant Pozzetto shooting](https://en.wikipedia.org/wiki/Campo_El%C3%ADas_Delgado#Killing_spree)\
+Bogota, Colombia\
+December 4, 1986\
+30 killed (including 1 perpetrator), 12 wounded
+
+Perpetrator(s):\
+**Campo Elías Delgado, 52**\
+United States Army (USA)
+
+Source(s):
+1. [Campo Elías Delgado - Military service](https://en.wikipedia.org/wiki/Campo_El%C3%ADas_Delgado#Military_service)
+>According to the National Personnel Records Center, Delgado served with the United States Army from 12 August 1975, to 11 August 1978. He was honorably discharged as a Sergeant first class. According to these dates, it is impossible for him to have fought in Vietnam.[1]
+>
+>Fellow soldier Art Fealey, claims to have met Delgado in the 5th Infantry, 3rd Battalion while in the Panama Canal Zone in 1975. He said Delgado was later stationed at the Army's medical center in El Paso, Texas, until 1978.[2]
+
+=============================================================================================================================
+
+[Jian'guo Gate shooting](https://en.wikipedia.org/wiki/Tian_Mingjian_incident)\
+Beijing, China\
+September 20, 1994\
+29 killed (including 1 perpetrator), 200 wounded\
+
+Perpetrator(s):\
+**Tian Mingjian**\
+Chinese People's Liberation Army (PLA)
+
+Source(s):
+1. [Jian'guo Gate shooting - Background](https://en.wikipedia.org/wiki/Tian_Mingjian_incident#Background)
+>Tian Mingjian (born in 1964) was a first lieutenant stationed at an army base in Tongxian County, a suburb of Beijing. He had been in the military for over ten years, originally as a sharpshooter and was highly skilled in the military technology field. He was once promoted to regimental staff officer for military affairs but due to his bad temper and irritability was eventually demoted to acting company commander. At the time of the shooting he served in this position in the 12th Regiment of the 3rd Guard Division of PLA Beijing Garrison [zh].[4] He was said to have violated discipline by beating other soldiers and had a grievance against his superiors for being reprimanded about this.
+
+=============================================================================================================================
+
+[Sandy Hook Elementary School shooting](https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting)\
+Newtown, Connecticut\
+December 14, 2012\
+28 killed (including 1 perpetrator), 2 wounded
+
+Perpetrator(s):\
+Adam Peter Lanza, 20\
+United States Marine Corps (USMC) aspirant; United States Department of Defense (DOD) contractor father (Peter Lanza - General Electric); United States Marine Corps (USMC) / Kingston Police Department (KPD) maternal uncle (James Champion); United States Central Intelligence Agency (CIA) psychiatric associates (Yale Child Study Center)
+
+Source(s):
+1. [Revisiting Adam Lanza: The Official Sandy Hook Report](https://www.psychologytoday.com/us/blog/keeping-kids-safe/201311/revisiting-adam-lanza-the-official-sandy-hook-report)
+>In addition, like many school shooters, he had a relative who served in the military whom he sought to emulate. Many school shooters had military aspirations that were thwarted. Lanza wanted to join the Marines and follow in the footsteps of his uncle, but his mother dissuaded him from applying. Lanza liked to dress up in military gear starting at a young age, and was so dressed during his attack.
+
+2. [Pictured: Adam Lanza's father and new wife as it's revealed couple fled their home and haven't been back since massacre](https://www.dailymail.co.uk/news/article-2249217/Sandy-Hook-shooting-Adam-Lanzas-father-Peter-new-wife-Shelley-Cudiner-fled-Connecticut-home.html)
+>Father: Peter Lanza, a wealthy executive for General Electric, who is believed to earn $1million a year, moved out of the family home in 2006\
+>[...]\
+>Peter Lanza grew up in Kingston in Rockingham County, New Hampshire.
+>
+>His late father, Adam Lanza's grandfather, Peter S. Lanza, was an investment broker and insurance salesman and Peter Jr followed him into a career in finance.
+>
+>According to his resume on LinkedIn, Peter Lanza is tax director and vice president of taxes for GE Energy Financial Services in the New York City area.
+>
+>He has been an adjunct faculty member at Northeastern University in Boston since 1995 and also teaches a partnership tax class in the master's in taxation degree program at Fairfield University in Fairfield, Connecticut, according to CNN.
+>
+>On LinkedIn, Peter wrote of his experience: 'Career dedicated to developing and refining partnership tax planning and transactional skills' and 'Work closely with many of the preeminent partnership tax advisers in the United States on a daily basis.'
+>
+3. [General Electric's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=General+Electric+Department+of+Defense)
+
+4. [Newtown Killer’s Obsessions, in Chilling Detail](https://www.nytimes.com/2013/03/29/nyregion/search-warrants-reveal-items-seized-at-adam-lanzas-home.html)
+>Marvin LaFontaine, 53, a mechanical engineer who considered himself a friend of Nancy Lanza from Kingston, N.H., where Ms. Lanza grew up, kept in touch with her chiefly by e-mail, Facebook and phone until 2010. He remembered that Adam Lanza deeply admired one of his mother’s brothers, a retired Kingston police officer named James Champion. Mr. LaFontaine said Mr. Lanza was keen on joining the military, as his uncle, Mr. Champion, had done.
+
+5. [Patterns Among School Shooters: Body-Related Issues and the Military - Aberrant Adult Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Adam Lanza [-] Uncle: Marines and law enforcement\
+>[...]\
+>Adam Lanza [-] Wanted to enlist in Marines but mother talked him out of it; he took this harder than she expected
+
+6. [Sandy Hook Elementary School shooting - Developmental and mental health problems](https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting#Developmental_and_mental_health_problems)
+>Lanza exhibited developmental challenges before the age of three. These included communication and sensory difficulties, socialization delays, and repetitive behaviors. He was seen by the New Hampshire Birth to Three intervention program and referred to special education preschool services.[163] Once at elementary school, he was diagnosed with a sensory-integration disorder. Sensory-processing disorder does not have official status by the medical community as a formal diagnosis but is a common characteristic of autism.[164] His anxiety affected his ability to attend school and in 8th grade he was placed on "homebound" status, which is reserved for children who are too disabled, even with supports and accommodations, to attend school.[165]
+>
+>When he was 13, Lanza was diagnosed with Asperger syndrome by a psychiatrist, Paul Fox.[156] When he was 14, his parents took him to Yale University's Child Study Center, where he was also diagnosed with obsessive-compulsive disorder (OCD). He frequently washed his hands and changed his socks 20 times a day, to the point where his mother did three loads of laundry a day.[166] He also sometimes went through a box of tissues in a day because he could not touch a doorknob with his bare hand.[167]
+>
+>Lanza was treated by Robert King, who recommended extensive support be put in place and prescribed the antidepressant Celexa. He took the medication for three days. His mother Nancy reported: "On the third morning he complained of dizziness. By that afternoon he was disoriented, his speech was disjointed, he couldn't even figure out how to open his cereal box. He was sweating profusely ... it was actually dripping off his hands. He said he couldn't think ... He was practically vegetative."[156] He never took the medication again.[168] A report from the Office of the Child Advocate found that "Yale's recommendations for extensive special education supports, ongoing expert consultation, and rigorous therapeutic supports embedded into (Lanza's) daily life went largely unheeded."[163]
+>
+>In a 2013 interview, Peter Lanza said he suspected his son might have also had undiagnosed schizophrenia in addition to his other conditions. Lanza said that family members might have missed signs of the onset of schizophrenia and psychotic behavior during his son's adolescence because they mistakenly attributed his odd behavior and increasing isolation to Asperger syndrome.[156][162][169][170][171] Because of concerns that published accounts of Lanza's autism could result in a backlash against others with the condition, autism advocates campaigned to clarify that autism is a brain-related developmental disorder rather than a mental illness.[172] The violence Lanza demonstrated in the shooting is generally not seen in the autistic population[173] and none of the psychiatrists he saw detected troubling signs of violence in his disposition.[156]
+>
+>Lanza appears to have had no contact with mental health providers after 2006. The report from the Office of the Child Advocate stated: "In the course of Lanza's entire life, minimal mental health evaluation and treatment (in relation to his apparent need) was obtained. Of the couple of providers that saw him, only one—the Yale Child Study Center—seemed to appreciate the gravity of (his) presentation, his need for extensive mental health and special education supports, and the critical need for medication to ease his obsessive-compulsive symptoms."[165]
+
+7. [Yale’s Forgotten Master of Mind Control](https://www.ctinsider.com/connecticutmagazine/health/article/Yale-s-Forgotten-Master-of-Mind-Control-17039481.php)
+
+8. [Newly released FBI documents reveal disturbing details about Sandy Hook shooter Adam Lanza - Neighbors say agents previously questioned Lanza for hacking](https://www.usatoday.com/story/news/politics/2017/10/24/newly-released-fbi-documents-reveal-disturbing-details-sandy-hook-shooter-adam-lanza/794585001/)
+>Years before the Sandy Hook shooting, law enforcement agents visited Lanza's family home after he hacked into a government computer system in ninth grade, his neighbors told FBI agents investigating the Sandy Hook shooting. 
+>
+>Lanza's mother, Nancy, told neighbors at a party that her son made it to the second level of security on a government site. A third layer of security was able to thwart his hack. 
+>
+>Nancy Lanza believed the authorities came from either the FBI or CIA – but neighbors told the FBI that she couldn't remember which agency. When they came to Lanza's house to investigate the potential cybercrime, Nancy Lanza told officials her son was extremely intelligent and he was trying to challenge himself, according to the documents. 
+>
+>Agents then apparently told Nancy Lanza that if her son was that smart, he could have a job with them someday. The FBI Tuesday found no immediate record of a contact with Lanza prior to the shooting.
+
+=============================================================================================================================
+
+Sutherland Springs church shooting
+https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting
+Sutherland Springs, Texas
+November 5, 2017
+27 killed (including 1 perpetrator), 22 wounded
+
+Perpetrator(s):
+Devin Patrick Kelley, 26
+United States Air Force (USAF); United States Department of Defense (DOD) contractor psychiatric associates (Peak Behavioral Health Services)
+
+Source(s):
+1. Sutherland Springs church shooting - Military service and violent behavior
+https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting#Military_service_and_violent_behavior
+	After graduating, Kelley enlisted in the United States Air Force (USAF). He served in logistics readiness at Holloman Air Force Base in New Mexico from 2009 until 2014. He married in April 2011.[39][40] In October 2012, he was charged with assaulting his wife and fracturing his toddler stepson's skull. In response, Kelley made death threats against the superior officers who charged him, and he was caught sneaking firearms onto Holloman Air Force Base.[41] Around that same time, he made threats of self-harm to a coworker.[37] He was then admitted to Peak Behavioral Health Services, a mental health facility in Santa Teresa, New Mexico.[41]
+
+In June 2012, Kelley escaped from Peak Behavioral Health Services but was soon apprehended ten miles away at a bus terminal in El Paso, Texas.[41][42] The facility's director of military affairs later recalled that Kelley had stayed at the facility for several weeks, until he was brought to court-martial. While there, he had expressed a desire for "some kind of retribution to his chain of command" and was discovered to have used computers to order "weapons and tactical gear to a P.O. box in San Antonio".[42]
+
+Kelley and his wife divorced in October 2012.[39] In an interview with Inside Edition, his ex-wife said she lived in constant fear of him, as their marriage was filled with abuse. He once threatened her at gunpoint over a speeding ticket, and later threatened to kill her and her entire family.[43]
+
+Kelley was brought before a general court-martial on four charges: assault on his wife, aggravated assault on his stepson, two charges of pointing a loaded gun at his wife, and two counts of threatening his wife with an unloaded gun. In November 2012, Kelley pleaded guilty to two counts of Article 128 UCMJ, for the assault of his wife and stepson. In return, the weapons charges were dropped.[44][45][46] He was sentenced to 12 months of confinement and a reduction in rank to Airman Basic. He appealed to the U.S. Court of Appeals for the Armed Forces, but was unsuccessful.[47] In 2014, he was dismissed from the Air Force with a bad conduct discharge.[48][49]
+
+2. Sutherland Springs church shooting - Ability to purchase and carry firearms
+https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting#Ability_to_purchase_and_carry_firearms
+	Kelley's general court-martial guilty plea should have made it illegal for him to own, buy, or possess a firearm or ammunition. The conviction should have been flagged by NICS and prevented the purchase.[66][69] Federal law prohibits those convicted of domestic violence–even if it is only a misdemeanor–from possessing firearms.[70][71]
+
+However, the Air Force failed to relay the court-martial convictions to the FBI. In a statement admitting the oversight, the Air Force said, "Initial information indicates that Kelley's domestic violence offense was not entered into the National Crime Information Center (NCIC) database by the Holloman Air Force Base Office of Special Investigations."[5][72] One day after the shooting, the Air Force said it had "launched a review of how the service handled the criminal records of former Airman Devin P. Kelley following his 2012 domestic violence conviction".[5][71] Three days after the shooting, Vice President Mike Pence visited the crime scene, and said, "We will find why this information was not properly recorded in 2012, and we will work with leaders in Congress to ensure that this never happens again."[73]
+
+3. Peak Behavioral Health Services - Military Services
+https://www.peakbehavioral.com/who-we-help/military/
+	The Military Recovery Program at Peak Behavioral Health Services' campus treats all branches of the military and veterans. The Mission Recovery Program’s goal is for the service member to be capable of returning to duty while having addressed the issues that initially brought them to our facility; providing each individual with the necessary tools to achieve a more productive and fulfilling life. We are honored to treat those service members who have served our country and we have developed a military mental health program to meet each individual's unique needs.
+
+=============================================================================================================================
+
+Kampala wedding massacre
+https://en.wikipedia.org/wiki/Kampala_wedding_massacre
+Naguru, Uganda
+June 26, 1994
+27 killed (including 1 perpetrator), 13 wounded
+
+Perpetrator(s):
+Richard Komakech
+Ugandan Military Police
+
+=============================================================================================================================
+
+Senlis massacre
+https://fr-m-wikipedia-org.translate.goog/wiki/Louis_Michel_Rieul_Billon?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US
+Senlis, France
+December 13, 1789
+26 killed, 41 wounded
+
+Perpetrator(s):
+Louis Michel Rieul Billon
+French Militia (Knights of the Arquebuse)
+
+=============================================================================================================================
+
+Luby's Cafeteria shooting
+https://en.wikipedia.org/wiki/Luby's_shooting
+Killeen, Texas
+October 16, 1991
+24 killed (including 1 perpetrator), 27 wounded
+
+Perpetrator(s):
+George Pierre Hennard, 35
+United States Navy (USN); United States Merchant Marine (USMM); United States Army (USA) father
+
+Source(s):
+1. Luby's shooting - Perpetrator
+https://en.wikipedia.org/wiki/Luby's_shooting#Perpetrator
+	George Pierre Hennard was born on October 15, 1956, in Sayre, Pennsylvania, in a wealthy family.[11] Hennard was the son of a Swiss-born surgeon and a homemaker.[16] He had two younger siblings, brother Alan and sister Desiree.[17] Since the age of 5, Hennard and his family moved across the country as his father worked at several army hospitals.[11] Hennard's family later moved to New Mexico, where his father worked at the White Sands Missile Range near Las Cruces. After graduating from Mayfield High School in 1974, he enlisted in the U.S. Navy and served for three years, until he was honorably discharged.[18] Hennard later worked as a merchant mariner, but was dismissed for drug use.[6] Several months later, Hennard enrolled in a drug treatment program in Houston.[11]
+
+=============================================================================================================================
+
+Giska school bombing
+https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A2%D0%B5%D1%80%D0%B0%D0%BA%D1%82_%D0%B2_%D1%88%D0%BA%D0%BE%D0%BB%D0%B5_%E2%84%96_20?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US
+Giska, Soviet Union
+April 5, 1950
+24 killed (including 1 perpetrator)
+
+Perpetrator(s):
+Vladimir Georgievich Tatarnikov
+Soviet Red Army
+
+Source(s):
+1. Terror attack at school No. 20 - Identity of the culprit (Translated from the Russian)
+https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A2%D0%B5%D1%80%D0%B0%D0%BA%D1%82_%D0%B2_%D1%88%D0%BA%D0%BE%D0%BB%D0%B5_%E2%84%96_20?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US#%D0%9F%D1%80%D0%B5%D0%B4%D1%88%D0%B5%D1%81%D1%82%D0%B2%D1%83%D1%8E%D1%89%D0%B8%D0%B5_%D1%81%D0%BE%D0%B1%D1%8B%D1%82%D0%B8%D1%8F
+	Vladimir Georgievich Tatarnikov was born on July 25, 1920 in Tulun (Irkutsk region). He grew up in an orphanage, in April 1940 he was drafted into the Red Army , served in Kyzyl (Tyva), fought at the WWII front (second lieutenant in the 3rd Guards Motor Rifle Regiment) [2] , then was a reserve officer. The commission established that in 1948 he was expelled from the party for some misconduct in Tashkent, where, according to his colleagues, he worked in the fire department. He had a wife and a son; the couple divorced, after which the ex-wife and son lived in Kuibyshev [3] .
+
+In autumn 1949 Tatarnikov arrived in Moldova . In search of work, he arrived in Bendery , where on September 15 he met the head of the district department of DOSARM (later DOSAAF ) Sedenko, who told him that they might be recruiting miners. Having not settled anywhere, in October Tatarnikov came to Sedenko and was hired, after which he simultaneously worked as a miner in the DOSARM and as a military instructor (teacher of military affairs) at school No. 20 in the village of Gyska .
+
+=============================================================================================================================
+
+Haditha massacre
+https://en.wikipedia.org/wiki/Haditha_massacre
+Haditha, Iraq
+November 19, 2005
+24 killed
+
+Perpetrator(s):
+Squad from K Company, 3rd Battalion 1st Regiment, 1st Marine Division
+United States Marine Corps (USMC)
+
+=============================================================================================================================
+
+2017 Barcelona attacks
+https://en.wikipedia.org/wiki/2017_Barcelona_attacks
+La Rambla / Barcelona / Cambrils / Catalonia, Spain
+August 17 - 18, 2017
+24 killed (including 8 perpetrators), 152 wounded
+
+Perpetrator(s):
+Abdelbaki Es Satty (ringleader) / Younes Abouyaaqoub / Houssaine Abouyaaqoub / Moussa Oukabir / Said Aallaa / Youssef Aallaa / Mohamed Hychami
+Spanish National Intelligence Centre (CNI)
+
+Source(s):
+1. Barcelona terror attack leader was an informer for Spanish intelligence till the end
+https://www.elnacional.cat/en/news/barcelona-terror-attack-informer-spanish-intelligence_404155_102.html
+	The leader of the Jihadi terrorist group which on August 17th, 2017 attacked Barcelona's Rambla, Abdelbaki Es Satty, was an informer for the Spanish secret service, the CNI, right up until the attacks in which 15 people were murdered.
+
+According to exclusive information published by the Spanish digital newspaper Público.es, Spain's CNI knew that a terrorist group based in the Catalan town of Ripoll was preparing an attack. The newspaper has had access to information that confirms this relationship between the Spanish intelligence agency and the attack mastermind, as well as showing that the CNI spies were monitoring the group's movements to and from the location of their bomb factory.
+
+The intelligence agency communicated with Satty, the imam of Ripoll, through a hard-to-detect communication system known as "dead mail drops", which consists of writing draft emails without sending them. The two people who want to communicate enter the same mailbox and add to their drafts, but since they never hit 'send', the data does not circulate on the internet. As Público.es notes, this system was invented by Bin Laden.
+
+The newspaper has obtained screenshots from the gmail account that was used for communications between the imam and the CNI: adamperez27177@gmail.com. The new revelations are the result of a year of investigation during which the newspaper has opened up intelligence sources, gathered confidential documents and extracted data from the investigations into the attacks.
+
+The email address adamperez27177@gmail.com was active until at least two months before the 2017 terror attack. The last message left in the dead mail was from June 19th, 2017, when the bombs used for the attack were already being manufactured. The passwords to access this email address were found in the remains of the group's bomb factory in the town of Alcanar, whose accidental explosion on August 16th, 2017 killed Satty and one other terror group member. As a result of the explosion, the cell moved quickly and the next day improvised the horrific Rambla van attack and a second deadly attack in the town of Cambrils, instead of the high-powered bomb explosion they had been working towards, possibly aimed at Barcelona's Sagrada Família.
+
+Confidential CNI reports that the newspaper has obtained demonstrate that the Ripoll terror cell was monitored by Spanish intelligence. These documents show that the Spanish agency listened to their conversations and followed their movements. The CNI was aware of the trips made by the members of the Jihadi group from Ripoll to Alcanar and knew about the existence of the villa where explosives were being manufactured.
+
+Moreover, Público affirms that the Spanish secret services monitored the terrorists until the very day of the attacks and that Satty's name was erased from CNI files after the attacks.
+
+The intelligence reports that the newspaper has obtained on the attacks specify in detail the trips that the members of the terror cell made several months before the August 2017 attacks. The Spanish secret service document list separate journeys by terror group members to Switzerland and Germany, and to France and Belgium, all in December 2016. This second trip was made using the same Audi A-3 car that was later used in the Cambrils attack.
+
+The CNI, according to the newspaper, monitored the movements across four countries of the three young men who made the explosives in Alcanar, not only observing their itineraries, but also with advance knowledge of their plans, through listening to their conversations.
+
+2. Scandal erupts over Público exposure of state complicity in Barcelona attack - Part I: Podemos and the Catalan nationalists cover for Spanish intelligence
+https://www.wsws.org/en/articles/2019/09/10/pub1-s10.html
+
+3. Scandal erupts over Público exposure of state complicity in Barcelona attack - Part II: The Barcelona daily La Vanguardia tries to discredit Público
+https://www.wsws.org/en/articles/2019/09/11/publ-s11.html
+
+4. Scandal erupts over Público exposure of state complicity in Barcelona attack - Part III: The class issues posed by state foreknowledge of Islamist attacks
+https://www.wsws.org/en/articles/2019/09/12/pub3l-s12.html
