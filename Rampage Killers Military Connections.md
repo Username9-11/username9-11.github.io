@@ -59,6 +59,36 @@ MILITARY / GOVERNMENT CONNECTIONS TO MASS-KILLINGS ORCHESTRATED BY ORGANIZATIONS
 [Operation Northwoods](https://en.wikipedia.org/wiki/Operation_Northwoods)
 >Operation Northwoods was a proposed false flag operation against American citizens that originated within the US Department of Defense of the United States government in 1962. The proposals called for the CIA operatives to both stage and actually commit acts of terrorism against American military and civilian targets, blaming them on the Cuban government, and using it to justify a war against Cuba. The possibilities detailed in the document included the possible assassination of Cuban immigrants, sinking boats of Cuban refugees on the high seas,[2] hijacking planes to be shot down or given the appearance of being shot down,[2] blowing up a U.S. ship, and orchestrating violent terrorism in U.S. cities.[3] The proposals were rejected by President John F. Kennedy.[4][5][6]
 
+----------------------------------
+
+[MKUltra - WIkipedia](https://en.wikipedia.org/wiki/MKUltra)
+>Project MKUltra (or MK-Ultra)[a] was the code name of an illegal human experimentation program designed and undertaken by the U.S. Central Intelligence Agency (CIA).[1][2][3] The experiments were intended to develop procedures and identify drugs such as LSD that could be used in interrogations to weaken individuals and force confessions through brainwashing and psychological torture. MKUltra used numerous methods to manipulate its subjects' mental states and brain functions, such as the covert administration of high doses of psychoactive drugs (especially LSD) and other chemicals, electroshocks,[4] hypnosis,[5][6] sensory deprivation, isolation, and verbal and sexual abuse, in addition to other forms of torture.[7][8]
+>
+>MKUltra was preceded by two drug-related experiments, Project Bluebird and Project Artichoke.[9][10] It began in 1953, was reduced in scope in 1964 and 1967, and was halted in 1973. It was organized through the CIA's Office of Scientific Intelligence and coordinated with the United States Army Biological Warfare Laboratories.[11] The program engaged in illegal activities,[12][13][14] including the use of U.S. and Canadian citizens as unwitting test subjects.[12]: 74 [15][16][17] MKUltra's scope was broad, with activities carried out under the guise of research at more than 80 institutions, including colleges and universities, hospitals, prisons, and pharmaceutical companies.[18] The CIA operated using front organizations, although some top officials at these institutions were aware of the CIA's involvement.[19]
+>
+>MKUltra was first brought to public attention in 1975 by the Church Committee of the United States Congress and Gerald Ford's United States President's Commission on CIA activities within the United States (also known as the Rockefeller Commission). Investigative efforts were hampered by CIA Director Richard Helms's order that all MKUltra files be destroyed in 1973; the Church Committee and Rockefeller Commission investigations relied on the sworn testimony of direct participants and on the small number of documents that survived Helms's order.[20] In 1977, a Freedom of Information Act request uncovered a cache of 20,000 documents relating to MKUltra, which led to Senate hearings.[12][21] Some surviving information about MKUltra was declassified in July 2001.
+
+[Project ARTICHOKE - Wikipedia](https://en.wikipedia.org/wiki/Project_ARTICHOKE)
+>Project ARTICHOKE (also referred to as Operation ARTICHOKE) was a Central Intelligence Agency (CIA) project that researched interrogation methods.
+>
+>Preceded by Project BLUEBIRD, ARTICHOKE officially arose on August 20, 1951 and was operated by the CIA's Office of Scientific Intelligence.[1] The primary goal of Project ARTICHOKE was to determine whether a person could be involuntarily made to perform an act of attempted assassination.[2] The project also studied hypnosis, forced morphine addiction (and subsequent forced withdrawal) and the use of other chemicals including LSD, to produce amnesia and other vulnerable states in subjects.
+>
+>Project ARTICHOKE led to Project MKUltra, which began in 1953.[3]
+
+[1949 — CIA’s Research in Covert Mind-Control Techniques i.e., Psychological Torture](https://ahrp.org/1949-cias-research-in-covert-mind-control-techniques-i-e-psychological-torture/)
+>In 1949, the Rand Corporation issued a report, “Are Communist Countries Using Hypnosis Techniques to Elicit Confession in Public Trials?” The report relied on old Soviet hypnosis experiments conducted in 1923 (which were translated into English in 1932). The Soviets had reported success in implanting memories of crimes hypnotically. The Rand report helped set the stage for the U.S. government intelligence agencies to invoke national security as the rationale for the use of nefarious destructive mind control methods, such as hypnosis, to manipulate individuals into committing criminal acts on command. (Bowart. Operation Mind Control, 1978; Researcher’s edition, 1994)
+>
+>Beginning in 1949, the CIA initiated a series of Top Secret mind control projects; their names changed as some morphed one into the other. These dubious, often fiendish experiments in “psychological warfare” techniques spanned more than 25 years. Among these: BLUEBIRD, ARTICHOKE, MK-NAOMI, MK-SEARCH, PANDORA, MIDNIGHT CLIMAX, and MK-ULTRA, the best known of CIA’s mind control projects. The unconscionable experiments tested the malleability of human consciousness; they were designed to erase memory and cause total amnesia using electroshock. The experiments sought to discover effective methods for manipulating human will and to probe the limits of human a being’s capacity to withstand extreme stress. They were essentially experimental explorations in mental torture.
+>
+>These were brain damaging experiments; they were conducted on thousands of (mostly) involuntary soldiers, mental patients, prisoners and civilians, including young children who were treated as expendable means to CIA’s dubious ends. The victims of CIA’s diabolical experiments were subjected to a witches’ brew of powerful psychoactive and hallucinatory drugs (e.g., mescaline, sodium pentothal, LSD, ketamine and psilocybin) in the hunt for a “truth serum” (“ego-depressant” drugs). Other techniques used in these grotesque experiments included, rapid induction of hypnosis, multiple high voltage electroshock, electronic brain stimulation (ESB), psychosurgical implanted electrodes in the brain, often combined with psychoactive drugs. The third line of CIA’s experimentation involved extremely stressful psychological “brainwashing” employing sleep deprivation and sensory deprivation in extended isolated confinement, coupled with sensory overstimulation, which induced psychotic hallucinations and mental breakdown. The purpose of these monstrous exercises in torture was to incapacitate human free will and break the human spirit by disorienting, inducing “learned helplessness” and dependency, to enable an interrogator to assume control and take command of a subject’s mind.
+>
+>“Many Americans have heard about the most outlandish and least successful aspect of this research — the testing of LSD on unsuspecting subjects. While these CIA drug experiments led nowhere and the testing of electric shock as a technique led only to lawsuits, research into sensory deprivation proved fruitful indeed. In fact, this research produced a new psychological rather than physical method of torture, perhaps best described as “no-touch” torture.” (McCoy)
+>
+>For decades the nature of these experiments involving CIA’s vast network of contracted academic scientists — mainly psychiatrists, psychologists and neurologists who provided the “scientific” framework for psychological demolition — remained deeply hidden. The CIA deliberately kept Congress and the American people in the dark about its darkest illegal projects; it is a matter of conjecture how much the President of the U.S. during the 1950s through the mid-1970s knew about the nature of these infamous illegal activities. Most of the documents pertaining to CIA’s nefarious mind control projects were destroyed per instructions by Richard Helms in 1973, prior to a Congressional investigation of CIA’s criminal national activities. Some records were deliberately coded to confuse and others remain classified.
+>
+>It bears emphasizing that lurking within CIA’s abominable mind- manipulation projects was a strong element of racism. After all, these experiments were following the Nazi blueprint for experimentation on those deemed inferior undesirable outcasts. Nazi doctors and scientists who had been imported to the U.S. under Operation Paperclip carried over their belief in their own racial superiority, their unbridled hatred for Communism and their determination to prepare for a decisive victory in a war against the Soviet Union. They also transported their ruthless and immoral disregard for the rights and humanity of those they deemed inferior. They found sympathetic allies among high ranking intelligence officials within the Office of Strategic Services (OSS) and its successor, the CIA who, like the Nazis held themselves and their mission above moral precepts.
+
+
 ------------------------------------
 ------------------------------------
 
@@ -1865,7 +1895,7 @@ March 22, 2016\
 35 killed (including 3 perpetrators), 340 wounded
 
 Perpetrator(s):\
-**Ibrahim El Bakraoui / Najim Laachraoui / Mohamed Abrini / Khalid El Bakraoui / Osama Krayem**
+**Ibrahim El Bakraoui / Najim Laachraoui / Mohamed Abrini / Khalid El Bakraoui / Osama Krayem**\
 United States Central Intelligence Agency (CIA) associates (Timber Sycamore)
 
 Source(s):
@@ -1971,7 +2001,7 @@ April 16, 2007\
 33 killed (including 1 perpetrator), 23 wounded
 
 Perpetrator(s):\
-**Seung-Hui Cho, 23**
+**Seung-Hui Cho, 23**\
 United States Department of State (DOS) / Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor sister (Sun-kyung Cho - Bureau of Near Eastern Affairs / Iraq Reconstruction Management Office / McNeil Technologies)
 
 Source(s):
@@ -2014,7 +2044,7 @@ September 24 - 25, 2002\
 32 killed (including 2 perpetrators), 80 wounded
 
 Perpetrator(s):\
-**Murtaza Hafiz Yasin / Ashraf Ali Mohammad Farooq**
+**Murtaza Hafiz Yasin / Ashraf Ali Mohammad Farooq**\
 Pakistani Inter-Services Intelligence (ISI)
 
 Source(s):
@@ -2165,147 +2195,897 @@ Source(s):
 
 =============================================================================================================================
 
-Sutherland Springs church shooting
-https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting
-Sutherland Springs, Texas
-November 5, 2017
+[Sutherland Springs church shooting](https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting)\
+Sutherland Springs, Texas\
+November 5, 2017\
 27 killed (including 1 perpetrator), 22 wounded
 
-Perpetrator(s):
-Devin Patrick Kelley, 26
+Perpetrator(s):\
+**Devin Patrick Kelley, 26**\
 United States Air Force (USAF); United States Department of Defense (DOD) contractor psychiatric associates (Peak Behavioral Health Services)
 
 Source(s):
-1. Sutherland Springs church shooting - Military service and violent behavior
-https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting#Military_service_and_violent_behavior
-	After graduating, Kelley enlisted in the United States Air Force (USAF). He served in logistics readiness at Holloman Air Force Base in New Mexico from 2009 until 2014. He married in April 2011.[39][40] In October 2012, he was charged with assaulting his wife and fracturing his toddler stepson's skull. In response, Kelley made death threats against the superior officers who charged him, and he was caught sneaking firearms onto Holloman Air Force Base.[41] Around that same time, he made threats of self-harm to a coworker.[37] He was then admitted to Peak Behavioral Health Services, a mental health facility in Santa Teresa, New Mexico.[41]
-
+1. [Sutherland Springs church shooting - Military service and violent behavior)(https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting#Military_service_and_violent_behavior)
+>After graduating, Kelley enlisted in the United States Air Force (USAF). He served in logistics readiness at Holloman Air Force Base in New Mexico from 2009 until 2014. He married in April 2011.[39][40] In October 2012, he was charged with assaulting his wife and fracturing his toddler stepson's skull. In response, Kelley made death threats against the superior officers who charged him, and he was caught sneaking firearms onto Holloman Air Force Base.[41] Around that same time, he made threats of self-harm to a coworker.[37] He was then admitted to Peak Behavioral Health Services, a mental health facility in Santa Teresa, New Mexico.[41]
+>
 In June 2012, Kelley escaped from Peak Behavioral Health Services but was soon apprehended ten miles away at a bus terminal in El Paso, Texas.[41][42] The facility's director of military affairs later recalled that Kelley had stayed at the facility for several weeks, until he was brought to court-martial. While there, he had expressed a desire for "some kind of retribution to his chain of command" and was discovered to have used computers to order "weapons and tactical gear to a P.O. box in San Antonio".[42]
+>
+>Kelley and his wife divorced in October 2012.[39] In an interview with Inside Edition, his ex-wife said she lived in constant fear of him, as their marriage was filled with abuse. He once threatened her at gunpoint over a speeding ticket, and later threatened to kill her and her entire family.[43]
+>
+>Kelley was brought before a general court-martial on four charges: assault on his wife, aggravated assault on his stepson, two charges of pointing a loaded gun at his wife, and two counts of threatening his wife with an unloaded gun. In November 2012, Kelley pleaded guilty to two counts of Article 128 UCMJ, for the assault of his wife and stepson. In return, the weapons charges were dropped.[44][45][46] He was sentenced to 12 months of confinement and a reduction in rank to Airman Basic. He appealed to the U.S. Court of Appeals for the Armed Forces, but was unsuccessful.[47] In 2014, he was dismissed from the Air Force with a bad conduct discharge.[48][49]
 
-Kelley and his wife divorced in October 2012.[39] In an interview with Inside Edition, his ex-wife said she lived in constant fear of him, as their marriage was filled with abuse. He once threatened her at gunpoint over a speeding ticket, and later threatened to kill her and her entire family.[43]
+2. [Sutherland Springs church shooting - Ability to purchase and carry firearms](https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting#Ability_to_purchase_and_carry_firearms)
+>Kelley's general court-martial guilty plea should have made it illegal for him to own, buy, or possess a firearm or ammunition. The conviction should have been flagged by NICS and prevented the purchase.[66][69] Federal law prohibits those convicted of domestic violence–even if it is only a misdemeanor–from possessing firearms.[70][71]
+>
+>However, the Air Force failed to relay the court-martial convictions to the FBI. In a statement admitting the oversight, the Air Force said, "Initial information indicates that Kelley's domestic violence offense was not entered into the National Crime Information Center (NCIC) database by the Holloman Air Force Base Office of Special Investigations."[5][72] One day after the shooting, the Air Force said it had "launched a review of how the service handled the criminal records of former Airman Devin P. Kelley following his 2012 domestic violence conviction".[5][71] Three days after the shooting, Vice President Mike Pence visited the crime scene, and said, "We will find why this information was not properly recorded in 2012, and we will work with leaders in Congress to ensure that this never happens again."[73]
 
-Kelley was brought before a general court-martial on four charges: assault on his wife, aggravated assault on his stepson, two charges of pointing a loaded gun at his wife, and two counts of threatening his wife with an unloaded gun. In November 2012, Kelley pleaded guilty to two counts of Article 128 UCMJ, for the assault of his wife and stepson. In return, the weapons charges were dropped.[44][45][46] He was sentenced to 12 months of confinement and a reduction in rank to Airman Basic. He appealed to the U.S. Court of Appeals for the Armed Forces, but was unsuccessful.[47] In 2014, he was dismissed from the Air Force with a bad conduct discharge.[48][49]
-
-2. Sutherland Springs church shooting - Ability to purchase and carry firearms
-https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting#Ability_to_purchase_and_carry_firearms
-	Kelley's general court-martial guilty plea should have made it illegal for him to own, buy, or possess a firearm or ammunition. The conviction should have been flagged by NICS and prevented the purchase.[66][69] Federal law prohibits those convicted of domestic violence–even if it is only a misdemeanor–from possessing firearms.[70][71]
-
-However, the Air Force failed to relay the court-martial convictions to the FBI. In a statement admitting the oversight, the Air Force said, "Initial information indicates that Kelley's domestic violence offense was not entered into the National Crime Information Center (NCIC) database by the Holloman Air Force Base Office of Special Investigations."[5][72] One day after the shooting, the Air Force said it had "launched a review of how the service handled the criminal records of former Airman Devin P. Kelley following his 2012 domestic violence conviction".[5][71] Three days after the shooting, Vice President Mike Pence visited the crime scene, and said, "We will find why this information was not properly recorded in 2012, and we will work with leaders in Congress to ensure that this never happens again."[73]
-
-3. Peak Behavioral Health Services - Military Services
-https://www.peakbehavioral.com/who-we-help/military/
-	The Military Recovery Program at Peak Behavioral Health Services' campus treats all branches of the military and veterans. The Mission Recovery Program’s goal is for the service member to be capable of returning to duty while having addressed the issues that initially brought them to our facility; providing each individual with the necessary tools to achieve a more productive and fulfilling life. We are honored to treat those service members who have served our country and we have developed a military mental health program to meet each individual's unique needs.
+3. [Peak Behavioral Health Services - Military Services](https://www.peakbehavioral.com/who-we-help/military/)
+>The Military Recovery Program at Peak Behavioral Health Services' campus treats all branches of the military and veterans. The Mission Recovery Program’s goal is for the service member to be capable of returning to duty while having addressed the issues that initially brought them to our facility; providing each individual with the necessary tools to achieve a more productive and fulfilling life. We are honored to treat those service members who have served our country and we have developed a military mental health program to meet each individual's unique needs.
 
 =============================================================================================================================
 
-Kampala wedding massacre
-https://en.wikipedia.org/wiki/Kampala_wedding_massacre
-Naguru, Uganda
-June 26, 1994
+[Kampala wedding massacre](https://en.wikipedia.org/wiki/Kampala_wedding_massacre)\
+Naguru, Uganda\
+June 26, 1994\
 27 killed (including 1 perpetrator), 13 wounded
 
-Perpetrator(s):
-Richard Komakech
+Perpetrator(s):\
+**Richard Komakech**\
 Ugandan Military Police
 
+[Kampala wedding massacre - Massacre](https://en.wikipedia.org/wiki/Kampala_wedding_massacre)
+>Richard Komakech, a private in the Ugandan military police, was attending the wedding when he requested a female guest, Irene Ati, to dance with him. Ati declined the offer, but Komakech repeatedly insisted she dance with him to the point he became aggressive and had to be separated from her. Komakech began rioting and was expelled from the festivities. The drunken private then went to fetch a semi-automatic rifle and returned to the party about ten minutes later. Komakech first killed Irene Ati, and then started shooting randomly at the guests, in which 14 people died on the spot (including Irene Ati) and 12 more later died in hospital, while 13 others were seriously wounded.
+>
+>Komakech eventually attempted to commit suicide with his rifle by shooting himself in the mouth, though he suffered only wounds to his forehead and pretended to be dead until police arrived. Although officers who apprehended Komakech tried to prevent the guests from killing him, Irene Ati's father managed to break through the police cordon and killed Komakech by smashing in his skull.
+
 =============================================================================================================================
 
-Senlis massacre
-https://fr-m-wikipedia-org.translate.goog/wiki/Louis_Michel_Rieul_Billon?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US
-Senlis, France
-December 13, 1789
+[Senlis massacre](https://fr-m-wikipedia-org.translate.goog/wiki/Louis_Michel_Rieul_Billon?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)\
+Senlis, France\
+December 13, 1789\
 26 killed, 41 wounded
 
-Perpetrator(s):
-Louis Michel Rieul Billon
+Perpetrator(s):\
+**Louis Michel Rieul Billon**\
 French Militia (Knights of the Arquebuse)
+
+Source(s):
+1. [Senlis massacre (Translated from the French)](https://fr-m-wikipedia-org.translate.goog/wiki/Louis_Michel_Rieul_Billon?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)
+>Louis Michel Rieul Billon (or Rieul-Michel Billon, known as the watchmaker Billon ), born in Senlis (Oise) onSeptember 7, 1750and died in this same city onDecember 13, 1789, is a watchmaker , member of the company of the Knights of the Arquebuse [ 1 ] (before its integration into the National Guard , in 1790) from which he would have been excluded because of usury .
 
 =============================================================================================================================
 
-Luby's Cafeteria shooting
-https://en.wikipedia.org/wiki/Luby's_shooting
-Killeen, Texas
-October 16, 1991
+[Luby's Cafeteria shooting](https://en.wikipedia.org/wiki/Luby's_shooting)\
+Killeen, Texas\
+October 16, 1991\
 24 killed (including 1 perpetrator), 27 wounded
 
-Perpetrator(s):
-George Pierre Hennard, 35
+Perpetrator(s):\
+**George Pierre Hennard, 35**\
 United States Navy (USN); United States Merchant Marine (USMM); United States Army (USA) father
 
 Source(s):
-1. Luby's shooting - Perpetrator
-https://en.wikipedia.org/wiki/Luby's_shooting#Perpetrator
-	George Pierre Hennard was born on October 15, 1956, in Sayre, Pennsylvania, in a wealthy family.[11] Hennard was the son of a Swiss-born surgeon and a homemaker.[16] He had two younger siblings, brother Alan and sister Desiree.[17] Since the age of 5, Hennard and his family moved across the country as his father worked at several army hospitals.[11] Hennard's family later moved to New Mexico, where his father worked at the White Sands Missile Range near Las Cruces. After graduating from Mayfield High School in 1974, he enlisted in the U.S. Navy and served for three years, until he was honorably discharged.[18] Hennard later worked as a merchant mariner, but was dismissed for drug use.[6] Several months later, Hennard enrolled in a drug treatment program in Houston.[11]
+1. [Luby's shooting - Perpetrator](https://en.wikipedia.org/wiki/Luby's_shooting#Perpetrator)
+>George Pierre Hennard was born on October 15, 1956, in Sayre, Pennsylvania, in a wealthy family.[11] Hennard was the son of a Swiss-born surgeon and a homemaker.[16] He had two younger siblings, brother Alan and sister Desiree.[17] Since the age of 5, Hennard and his family moved across the country as his father worked at several army hospitals.[11] Hennard's family later moved to New Mexico, where his father worked at the White Sands Missile Range near Las Cruces. After graduating from Mayfield High School in 1974, he enlisted in the U.S. Navy and served for three years, until he was honorably discharged.[18] Hennard later worked as a merchant mariner, but was dismissed for drug use.[6] Several months later, Hennard enrolled in a drug treatment program in Houston.[11]
+
+2. [Luby's shooting - Possible motive](https://en.wikipedia.org/wiki/Luby's_shooting#Possible_motive)
+>Hennard was described as reclusive and belligerent, with an explosive temper. He was discharged from the Merchant Marine on May 11, 1989[7][10] for possession of marijuana and racial incidents. That same month, Hennard's seaman papers were suspended after he had a racial argument with another shipmate.[11] Numerous reports included accounts of Hennard's expressed hatred of women.[1][6][8] An ex-roommate of his said, "He hated blacks, Hispanics, and gays. He said women were snakes and always had derogatory remarks about them, especially after fights with his mother."[8] Survivors of the shootings later said Hennard had passed over men to shoot women. Fourteen of the twenty three people killed were women, as were many of the wounded. He called two of the victims a "bitch" before shooting them.[8]
+>
+>In 1990, Hennard called Isaiah (Ike) R. Williams, a port agent for the national maritime union in Wilmington, California, stating that he needed a letter of recommendation in order to regain his papers and rejoin the Merchant Marine. "I don't recall having given him one," Williams claimed. Hennard had learned in mid-February that his attempt to be reinstated had been denied.[20] Several months later, Hennard entered a drug treatment program in Houston.[7][11]
+>
+>Around two months before the shooting, Hennard entered a convenience store in Belton to buy breakfast. Mead, the clerk of the store, claimed that Hennard had leaned over the counter and said, "I want you to tell everybody, if they don't quit messing around my house something awful is going to happen."[7]
 
 =============================================================================================================================
 
-Giska school bombing
-https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A2%D0%B5%D1%80%D0%B0%D0%BA%D1%82_%D0%B2_%D1%88%D0%BA%D0%BE%D0%BB%D0%B5_%E2%84%96_20?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US
-Giska, Soviet Union
-April 5, 1950
+[Giska school bombing](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A2%D0%B5%D1%80%D0%B0%D0%BA%D1%82_%D0%B2_%D1%88%D0%BA%D0%BE%D0%BB%D0%B5_%E2%84%96_20?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)\
+Giska, Soviet Union\
+April 5, 1950\
 24 killed (including 1 perpetrator)
 
-Perpetrator(s):
-Vladimir Georgievich Tatarnikov
+Perpetrator(s):\
+**Vladimir Georgievich Tatarnikov**\
 Soviet Red Army
 
 Source(s):
-1. Terror attack at school No. 20 - Identity of the culprit (Translated from the Russian)
-https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A2%D0%B5%D1%80%D0%B0%D0%BA%D1%82_%D0%B2_%D1%88%D0%BA%D0%BE%D0%BB%D0%B5_%E2%84%96_20?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US#%D0%9F%D1%80%D0%B5%D0%B4%D1%88%D0%B5%D1%81%D1%82%D0%B2%D1%83%D1%8E%D1%89%D0%B8%D0%B5_%D1%81%D0%BE%D0%B1%D1%8B%D1%82%D0%B8%D1%8F
-	Vladimir Georgievich Tatarnikov was born on July 25, 1920 in Tulun (Irkutsk region). He grew up in an orphanage, in April 1940 he was drafted into the Red Army , served in Kyzyl (Tyva), fought at the WWII front (second lieutenant in the 3rd Guards Motor Rifle Regiment) [2] , then was a reserve officer. The commission established that in 1948 he was expelled from the party for some misconduct in Tashkent, where, according to his colleagues, he worked in the fire department. He had a wife and a son; the couple divorced, after which the ex-wife and son lived in Kuibyshev [3] .
-
-In autumn 1949 Tatarnikov arrived in Moldova . In search of work, he arrived in Bendery , where on September 15 he met the head of the district department of DOSARM (later DOSAAF ) Sedenko, who told him that they might be recruiting miners. Having not settled anywhere, in October Tatarnikov came to Sedenko and was hired, after which he simultaneously worked as a miner in the DOSARM and as a military instructor (teacher of military affairs) at school No. 20 in the village of Gyska .
+1. [Terror attack at school No. 20 - Identity of the culprit (Translated from the Russian)](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A2%D0%B5%D1%80%D0%B0%D0%BA%D1%82_%D0%B2_%D1%88%D0%BA%D0%BE%D0%BB%D0%B5_%E2%84%96_20?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US#%D0%9F%D1%80%D0%B5%D0%B4%D1%88%D0%B5%D1%81%D1%82%D0%B2%D1%83%D1%8E%D1%89%D0%B8%D0%B5_%D1%81%D0%BE%D0%B1%D1%8B%D1%82%D0%B8%D1%8F)
+>Vladimir Georgievich Tatarnikov was born on July 25, 1920 in Tulun (Irkutsk region). He grew up in an orphanage, in April 1940 he was drafted into the Red Army , served in Kyzyl (Tyva), fought at the WWII front (second lieutenant in the 3rd Guards Motor Rifle Regiment) [2] , then was a reserve officer. The commission established that in 1948 he was expelled from the party for some misconduct in Tashkent, where, according to his colleagues, he worked in the fire department. He had a wife and a son; the couple divorced, after which the ex-wife and son lived in Kuibyshev [3] .
+>
+>In autumn 1949 Tatarnikov arrived in Moldova . In search of work, he arrived in Bendery , where on September 15 he met the head of the district department of DOSARM (later DOSAAF ) Sedenko, who told him that they might be recruiting miners. Having not settled anywhere, in October Tatarnikov came to Sedenko and was hired, after which he simultaneously worked as a miner in the DOSARM and as a military instructor (teacher of military affairs) at school No. 20 in the village of Gyska .
 
 =============================================================================================================================
 
-Haditha massacre
-https://en.wikipedia.org/wiki/Haditha_massacre
-Haditha, Iraq
-November 19, 2005
+[Haditha massacre](https://en.wikipedia.org/wiki/Haditha_massacre)\
+Haditha, Iraq\
+November 19, 2005\
 24 killed
 
-Perpetrator(s):
-Squad from K Company, 3rd Battalion 1st Regiment, 1st Marine Division
+Perpetrator(s):\
+**Squad from K Company, 3rd Battalion 1st Regiment, 1st Marine Division**\
 United States Marine Corps (USMC)
 
 =============================================================================================================================
 
-2017 Barcelona attacks
-https://en.wikipedia.org/wiki/2017_Barcelona_attacks
-La Rambla / Barcelona / Cambrils / Catalonia, Spain
-August 17 - 18, 2017
+[2017 Barcelona attacks](https://en.wikipedia.org/wiki/2017_Barcelona_attacks)\
+La Rambla / Barcelona / Cambrils / Catalonia, Spain\
+August 17 - 18, 2017\
 24 killed (including 8 perpetrators), 152 wounded
 
-Perpetrator(s):
-Abdelbaki Es Satty (ringleader) / Younes Abouyaaqoub / Houssaine Abouyaaqoub / Moussa Oukabir / Said Aallaa / Youssef Aallaa / Mohamed Hychami
+Perpetrator(s):\
+**Abdelbaki Es Satty (ringleader) / Younes Abouyaaqoub / Houssaine Abouyaaqoub / Moussa Oukabir / Said Aallaa / Youssef Aallaa / Mohamed Hychami**\
 Spanish National Intelligence Centre (CNI)
 
 Source(s):
-1. Barcelona terror attack leader was an informer for Spanish intelligence till the end
-https://www.elnacional.cat/en/news/barcelona-terror-attack-informer-spanish-intelligence_404155_102.html
-	The leader of the Jihadi terrorist group which on August 17th, 2017 attacked Barcelona's Rambla, Abdelbaki Es Satty, was an informer for the Spanish secret service, the CNI, right up until the attacks in which 15 people were murdered.
+1. [Barcelona terror attack leader was an informer for Spanish intelligence till the end](https://www.elnacional.cat/en/news/barcelona-terror-attack-informer-spanish-intelligence_404155_102.html)
+>The leader of the Jihadi terrorist group which on August 17th, 2017 attacked Barcelona's Rambla, Abdelbaki Es Satty, was an informer for the Spanish secret service, the CNI, right up until the attacks in which 15 people were murdered.
+>
+>According to exclusive information published by the Spanish digital newspaper Público.es, Spain's CNI knew that a terrorist group based in the Catalan town of Ripoll was preparing an attack. The newspaper has had access to information that confirms this relationship between the Spanish intelligence agency and the attack mastermind, as well as showing that the CNI spies were monitoring the group's movements to and from the location of their bomb factory.
+>
+>The intelligence agency communicated with Satty, the imam of Ripoll, through a hard-to-detect communication system known as "dead mail drops", which consists of writing draft emails without sending them. The two people who want to communicate enter the same mailbox and add to their drafts, but since they never hit 'send', the data does not circulate on the internet. As Público.es notes, this system was invented by Bin Laden.
+>
+>The newspaper has obtained screenshots from the gmail account that was used for communications between the imam and the CNI: adamperez27177@gmail.com. The new revelations are the result of a year of investigation during which the newspaper has opened up intelligence sources, gathered confidential documents and extracted data from the investigations into the attacks.
+>
+>The email address adamperez27177@gmail.com was active until at least two months before the 2017 terror attack. The last message left in the dead mail was from June 19th, 2017, when the bombs used for the attack were already being manufactured. The passwords to access this email address were found in the remains of the group's bomb factory in the town of Alcanar, whose accidental explosion on August 16th, 2017 killed Satty and one other terror group member. As a result of the explosion, the cell moved quickly and the next day improvised the horrific Rambla van attack and a second deadly attack in the town of Cambrils, instead of the high-powered bomb explosion they had been working towards, possibly aimed at Barcelona's Sagrada Família.
+>
+>Confidential CNI reports that the newspaper has obtained demonstrate that the Ripoll terror cell was monitored by Spanish intelligence. These documents show that the Spanish agency listened to their conversations and followed their movements. The CNI was aware of the trips made by the members of the Jihadi group from Ripoll to Alcanar and knew about the existence of the villa where explosives were being manufactured.
+>
+>Moreover, Público affirms that the Spanish secret services monitored the terrorists until the very day of the attacks and that Satty's name was erased from CNI files after the attacks.
+>
+>The intelligence reports that the newspaper has obtained on the attacks specify in detail the trips that the members of the terror cell made several months before the August 2017 attacks. The Spanish secret service document list separate journeys by terror group members to Switzerland and Germany, and to France and Belgium, all in December 2016. This second trip was made using the same Audi A-3 car that was later used in the Cambrils attack.
+>
+>The CNI, according to the newspaper, monitored the movements across four countries of the three young men who made the explosives in Alcanar, not only observing their itineraries, but also with advance knowledge of their plans, through listening to their conversations.
 
-According to exclusive information published by the Spanish digital newspaper Público.es, Spain's CNI knew that a terrorist group based in the Catalan town of Ripoll was preparing an attack. The newspaper has had access to information that confirms this relationship between the Spanish intelligence agency and the attack mastermind, as well as showing that the CNI spies were monitoring the group's movements to and from the location of their bomb factory.
+2. [Scandal erupts over Público exposure of state complicity in Barcelona attack - Part I: Podemos and the Catalan nationalists cover for Spanish intelligence](https://www.wsws.org/en/articles/2019/09/10/pub1-s10.html)
 
-The intelligence agency communicated with Satty, the imam of Ripoll, through a hard-to-detect communication system known as "dead mail drops", which consists of writing draft emails without sending them. The two people who want to communicate enter the same mailbox and add to their drafts, but since they never hit 'send', the data does not circulate on the internet. As Público.es notes, this system was invented by Bin Laden.
+3. [Scandal erupts over Público exposure of state complicity in Barcelona attack - Part II: The Barcelona daily La Vanguardia tries to discredit Público](https://www.wsws.org/en/articles/2019/09/11/publ-s11.html)
 
-The newspaper has obtained screenshots from the gmail account that was used for communications between the imam and the CNI: adamperez27177@gmail.com. The new revelations are the result of a year of investigation during which the newspaper has opened up intelligence sources, gathered confidential documents and extracted data from the investigations into the attacks.
+4. [Scandal erupts over Público exposure of state complicity in Barcelona attack - Part III: The class issues posed by state foreknowledge of Islamist attacks](https://www.wsws.org/en/articles/2019/09/12/pub3l-s12.html)
 
-The email address adamperez27177@gmail.com was active until at least two months before the 2017 terror attack. The last message left in the dead mail was from June 19th, 2017, when the bombs used for the attack were already being manufactured. The passwords to access this email address were found in the remains of the group's bomb factory in the town of Alcanar, whose accidental explosion on August 16th, 2017 killed Satty and one other terror group member. As a result of the explosion, the cell moved quickly and the next day improvised the horrific Rambla van attack and a second deadly attack in the town of Cambrils, instead of the high-powered bomb explosion they had been working towards, possibly aimed at Barcelona's Sagrada Família.
+=============================================================================================================================
 
-Confidential CNI reports that the newspaper has obtained demonstrate that the Ripoll terror cell was monitored by Spanish intelligence. These documents show that the Spanish agency listened to their conversations and followed their movements. The CNI was aware of the trips made by the members of the Jihadi group from Ripoll to Alcanar and knew about the existence of the villa where explosives were being manufactured.
+[Manchester Arena bombing](https://en.wikipedia.org/wiki/Manchester_Arena_bombing)\
+Manchester, England\
+May 22, 2017\
+23 killed (including 1 perpetrator), 1,017 wounded
 
-Moreover, Público affirms that the Spanish secret services monitored the terrorists until the very day of the attacks and that Satty's name was erased from CNI files after the attacks.
+Perpetrator(s):\
+**Salman Abedi / Hashem Abedi**\
+United States Central Intelligence Agency (CIA) associates (Timber Sycamore); British Security Service (MI5) / Secret Intelligence Service (MI6) / North Atlantic Treaty Organization (NATO) associates (2011 Libyan War - February 17th Martyrs Brigade / Libyan Islamic Fighting Group); British Security Service (MI5) / Secret Intelligence Service (MI6) / North Atlantic Treaty Organization (NATO) associated father (Ramadan Abedi - Libyan Islamic Fighting Group); British Royal Navy (RN) associates
 
-The intelligence reports that the newspaper has obtained on the attacks specify in detail the trips that the members of the terror cell made several months before the August 2017 attacks. The Spanish secret service document list separate journeys by terror group members to Switzerland and Germany, and to France and Belgium, all in December 2016. This second trip was made using the same Audi A-3 car that was later used in the Cambrils attack.
+Source(s):
+1. [Manchester bombing investigators hunting network of terrorists swoop on suspect with ‘suspicious package’ in Wigan just hours after dramatic machine gun raid as number arrested reaches seven](https://www.thesun.co.uk/news/3624815/manchester-bombing-suspect-salman-abedi-pictured-terror-threat-level/)
+>The Sun revealed the killer is suspected of receiving terror training in Syria, where he may have visited secretly while seeing family in Libya. 
+>
+>Today French interior minister Gerard Collomb has said the Manchester bomber is believed to have travelled to Syria and had "proven" links with the Islamic State terror group.
+>
+>Mr Collomb said: "He was a British national of Libyan origin, he grew up in Great Britain.
+>
+>"All of a sudden he travelled to Libya and then most likely to Syria, became radicalised and decided to commit this attack."
+>
+>The monster – who was killed when he detonated a bomb at Ariana Grande’s gig on Monday night that killed concert-goers as young as eight – was born and grew up in Britain.
+>
+>Abedi’s family originally hail from Libya and he is thought to have visited the North African country - also a haven for ISIS fighters - regularly in recent years.
+>
+>Sources said there were fears Abedi may have taken advantage of the conflict to make the simple journey across the Med to Syria without alerting the British authorities.
+>
+>One revealed: “His potential ties to Syria now very much forms one line of inquiry.”
 
-The CNI, according to the newspaper, monitored the movements across four countries of the three young men who made the explosives in Alcanar, not only observing their itineraries, but also with advance knowledge of their plans, through listening to their conversations.
+2. [Timber Sycamore - Wikipedia](https://en.wikipedia.org/wiki/Timber_Sycamore)
+>Timber Sycamore was a classified weapons supply and training program run by the United States Central Intelligence Agency (CIA) and supported by some Arab intelligence services, including Saudi intelligence. Launched in 2012 or 2013, it supplied money, weaponry and training to rebel forces fighting Syrian President Bashar al-Assad in the Syrian civil war. According to US officials, the program was run by the CIA's Special Activities Division[6] and has trained thousands of rebels.[7] President Barack Obama secretly authorized the CIA to begin arming Syria's embattled rebels in 2013.[8] The program became public knowledge in mid-2016.
+>
+>One consequence of the program has been a flood of US weapons including assault rifles, mortars and rocket-propelled grenades into the Middle East's black market. Critics saw it as ineffective and expensive, and raised concerns about diversion of weapons to jihadist groups and about Timber Sycamore-backed rebels fighting alongside the al-Nusra Front.[9]
 
-2. Scandal erupts over Público exposure of state complicity in Barcelona attack - Part I: Podemos and the Catalan nationalists cover for Spanish intelligence
-https://www.wsws.org/en/articles/2019/09/10/pub1-s10.html
+3. [Manchester Arena inquiry: Salman Abedi 'trained with Islamist militia'](https://www.bbc.com/news/uk-england-manchester-55232740)
+>Manchester Arena bomber Salman Abedi trained or fought with an Islamist militia in Libya, an inquiry has heard.
+>
+>His cousin Abderahman Forjani told police Abedi travelled to Libya during its 2011 revolution and "obtained a job locating Gaddafi supporters".
+>
+>Abedi had been involved in "raids during that period" and images showed him with weapons, rocket launchers and military vehicles, a court heard.\
+>[...]\
+>The inquiry into the attack was told police concluded Abedi had been involved with the February 17th Martyrs Brigade.\
+>[...]\
+>The inquiry heard that a UK counter-terror investigation into a woman associated with the February 17th Martyrs Brigade had - in January 2017 - seized an image of a person brandishing a rifle in Libya that bears a "strong resemblance" to Salman Abedi, but the likeness was only established in 2018.
+>
+>The court was told three of the woman's children have travelled to Syria and were associated with al-Qaeda aligned groups, with one of them dying there while fighting.
+>
+>When officers searched the Abedi family home after the arena attack, a hard drive was found showing both Salman and Hashem Abedi in military uniform in Libya in 2011.
+>
+>In his statement, Det Ch Supt Barraclough concluded it was not unreasonable to suggest that Salman Abedi had fought with the February 17th Martyrs Brigade, attended a training camp, or both.
+>
+>But he confirmed that Abedi, who had been an MI5 subject of interest, was never stopped when travelling in and out of the UK between 2010 and 2017.\
+>[...]\
+>The inquiry also heard the father of the Abedi brothers was thought to have lied during his asylum application, but later received British citizenship.\
+>[...]\
+>The inquiry heard he was stopped by police when travelling to Libya in 2011 and he claimed he was involved in aid convoys giving medical aid to Libyan rebels, and denied being involved in military activity.
+>
+>But the hearing was told that his sister later told detectives that he had gone to Libya to fight and had received a shrapnel wound while doing so.
 
-3. Scandal erupts over Público exposure of state complicity in Barcelona attack - Part II: The Barcelona daily La Vanguardia tries to discredit Público
-https://www.wsws.org/en/articles/2019/09/11/publ-s11.html
+4. [How Manchester bomber Salman Abedi was radicalised by his links to Libya](https://www.theguardian.com/uk-news/2017/may/28/salman-abedi-manchester-arena-bomber-radicalisation)
+>The 22-year-old was influenced in part by the people who formed the Libyan Islamic Fighting Group, a little-known al-Qaida affiliate outlawed in 2004[.]\
+>[...]\
+>Formed in the early 1990s to fight the Soviet invasion of Afghanistan, the LIFG relocated to Libya where, in 1996, the US treasury department records that it attempted to assassinate Muammar Gaddafi “and replace his regime with a hardline Islamic state”.
+>
+>When that plot – which some claim was backed by MI6 – failed, the LIFG was pursued by Gaddafi’s security forces. A large number fled to the UK, where they were granted asylum on the grounds that as opponents of Gaddafi “our enemy’s enemy is our friend”, and many went to Birmingham and Manchester – home to established Arab communities that had found work in the cities’ engineering industries.\
+>[...]\
+>The LIFG’s main fundraising vehicle was the UK-based Sanabel charity which had offices and shops in Manchester, Middlesbrough, Birmingham and London. In addition to funnelling money around the globe to al-Qaida interests, it acted as an incubator for jihadis. Among those with important roles in Sanabel were Basheer al-Faqih, suspected of helping orchestrate the 2003 suicide bombings in Casablanca which killed more than 40 people. He was jailed in the UK in 2007 for possessing documents on how to make explosives and set up a terror cell.
+>
+>Another crucial member was Abu Anas al-Libi, who ran the Afghanistan end of the Sanabel Relief Agency and had a £20m bounty on his head after his alleged involvement in the 1998 bombings of the US embassies in Tanzania and Kenya which killed 224 people. Libi was close to a third man, Abd al-Baset Azzouz, a father of four from Manchester. According to the US state department, Baset Azzouz “was sent to Libya in 2011 by al-Qaida leader Ayman al-Zawahiri to build a fighting force there, and mobilised approximately 200 fighters”.
+>
+>All three men were close allies of another LIFG member who had fled Libya for Manchester and attended Didsbury mosque: Ramadan Abedi, Salman Abedi’s father.
+>
+>Manchester’s 5,000-strong Libyan community has been left reeling by Abedi’s action, which Quilliam’s Rafiq suggests was the result of layers upon layers of indoctrination that contributed to his radicalisation. “How has he got to this point?” said Rafiq. “By osmosis. Through his father, through his connections, through the mosque, he has been absorbing Salafi ideology and theology.”
+>
+>LIFG members reject the charge that they are extremists. But they do believe Libya should be run along strict Islamic lines. Ramadan Abedi was one of the many who took this view and returned – in a move that some say was tacitly endorsed by MI6 – to take part in the revolution that toppled Gaddafi. A Libyan who observed the return of the UK exiles was struck by the fact that they appeared unchanged by decades abroad.\
+>[...]\
+>After his father returned to Libya, Abedi reportedly shuttled back and forth between a bustling Manchester and a traumatised Tripoli. Some reports suggest he was in Libya for the uprising in 2011 and was injured in 2014 in Ajdabiya in eastern Libya while fighting for an Islamist faction. But in neither country did he find a sense of belonging.
 
-4. Scandal erupts over Público exposure of state complicity in Barcelona attack - Part III: The class issues posed by state foreknowledge of Islamist attacks
-https://www.wsws.org/en/articles/2019/09/12/pub3l-s12.html
+5. [Manchester bomber Salman Abedi was rescued from Libyan civil war by Royal Navy](https://news.sky.com/story/royal-navy-rescued-manchester-bomber-from-the-libyan-civil-war-11454899)
+>The suicide bomber who killed 22 people at an Ariana Grande concert in Manchester last year had been rescued from the Libyan civil war by the Royal Navy.\
+>[...]\
+>It has now emerged that in 2014 Abedi, his brother Hashem and around 100 other British citizens were evacuated from Tripoli by HMS Enterprise as the security situation in Libya deteriorated.
+>
+>They were taken to Malta before returning to the UK.\
+>[...]\
+>Until a month before his rescue, Abedi was being monitored by UK security forces. The review into the Manchester attack found that, based on the information available at the time, the decision to close his case was sound.
+
+6. ['Sorted' by MI5: How UK government sent British-Libyans to fight Gaddafi](https://www.middleeasteye.net/news/sorted-mi5-how-uk-government-sent-british-libyans-fight-gaddafi)
+
+=============================================================================================================================
+
+[2000 Jarafa mosque massacre](https://en.wikipedia.org/wiki/2000_Jarafa_mosque_massacre)\
+Jarafa, Sudan\
+December 8, 2000\
+23 killed, 31 wounded
+
+Perpetrator(s):\
+**Abbas al-Baqir Abbas, 33**\
+Sudanese Armed Forces militia (Popular Defense Forces)
+
+Source(s):
+1. [2000 Jarafa mosque massacre - Abbas al-Baqir Abbas](https://en.wikipedia.org/wiki/2000_Jarafa_mosque_massacre#Abbas_al-Baqir_Abbas)
+>Abbas al-Baqir Abbas [...] was a former member of the Popular Defense Forces, fighting rebels in the southern part of Sudan.[4][6][22][23]
+
+2. [Popular Defence Forces - Wikipedia](https://en.wikipedia.org/wiki/Popular_Defence_Forces)
+>The Popular Defense Forces (PDF, Arabic: قوات الدفاع الشعبي) was a paramilitary force established under the Popular Defense Forces Act of 1989,[1] it was also part of the Sudanese Armed Forces before its dissolution in 2019 following the overthrow of Omar al-Bashir.
+>
+>The force had close links with the National Islamic Front associated with former president Omar al-Bashir, and was originally formed as a dedicated Islamist militia. In 2015, the PDF largely operated as a reserve force for the Sudanese Armed Forces.[2] Upon its foundation in 1989, several tribal militias throughout Sudan were integrated into the PDF, including the Messiria tribe's murahiliin, the Rizeigat tribe's fursan, and the Fertit Army of Peace.[3]
+
+=============================================================================================================================
+
+[2019 El Paso shooting](https://en.wikipedia.org/wiki/2019_El_Paso_shooting)\
+El Paso, Texas\
+August 3, 2019\
+23 killed, 23 wounded
+
+Perpetrator(s):\
+**Patrick Wood Crusius, 21**\
+United States Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor father (Bryan Crusius - Timberlawn Mental Health System / Universal Health Services)
+
+Source(s):
+1. [Follow The Dots: MKUltra & The El Paso Shooting](https://thewashingtonstandard.com/follow-the-dots-mkultra-the-el-paso-shooting/)
+>John Bryan Crusius is Patrick’s father. He is a counselor involved in “Infused Being Therapy” in Dallas, Texas. He specializes in trauma and PTSD. Crusius’ web page notes he worked for the Timberlawn Mental Health System in Dallas.
+>
+>Timberlawn closed down in early 2018. The psychiatric hospital was investigated for patient abuse, including rape. Timberlawn is owned by Universal Health Services, a Fortune 500 corporation in the hospital management business.
+>
+>In 2016, Buzzfeed ran an expose showing the corporation is responsible for a number of questionable practices at its nationwide facilities. In addition to accusations UHS defrauded Medicare, the report lists a number of other serious violations, including holding patients solely for financial gain.  
+>
+>The FBI and DoD teamed up to investigate billings to Tricare, the insurance plan for active military and their families. 
+>
+>“Concerned by the use of psychotropic drugs on military personnel and veterans, [Citizens Commission on Human Rights International]’s complaints noted that UHS developed a Patriot Support Program, providing treatment for active duty members in the Armed Forces. Veterans and their families are also treated in UHS behavioral facilities.”\
+>[...]\
+>The founder and president of the Colin A. Ross Institute for Psychological Trauma, Ross is well-known for treating patients for multiple personality disorder and associated trauma disorders, including depression, self-mutilation and suicide at Timberlawn Mental Health System of Dallas, Texas.\
+>[...]\
+>Ross describes his previous interactions with Sydney Gottlieb. Notoriously accredited with spearheading the CIA’s efforts to control the human mind, Gottlieb took part in numerous military intelligence experiments, from using LSD on unsuspecting Americans, to leading the charge on MK ULTRA.
+
+2. [Universal Health Services' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Universal+Health+Services+Department+of+Defense)
+
+=============================================================================================================================
+
+[2020 Nova Scotia attacks](https://en.wikipedia.org/wiki/2020_Nova_Scotia_attacks)\
+Nova Scotia, Canada\
+April 18 - 19, 2020\
+23 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**Gabriel Wortman, 51**\
+Royal Canadian Mounted Police (RCMP) agent; Royal Canadian Mounted Police (RCMP) paternal uncles (Chris Wortman / Alan Wortman); Canadian Armed Forces (CAF) associates (George Forbes / Brenda Forbes)
+
+Source(s):
+1. [The Nova Scotia shooter case has hallmarks of an undercover operation](https://www.macleans.ca/news/canada/the-nova-scotia-shooter-case-has-hallmarks-of-an-undercover-operation/?utm_source=digg)
+>The withdrawal of $475,000 in cash by the man who killed 22 Nova Scotians in April matches the method the RCMP uses to send money to confidential informants and agents, sources say.
+>
+>Gabriel Wortman, who is responsible for the largest mass killing in Canadian history, withdrew the money from a Brink’s depot in Dartmouth, N.S., on March 30, stashing a carryall filled with hundred-dollar bills in the trunk of his car.
+>
+>According to a source close to the police investigation the money came from CIBC Intria, a subsidiary of the chartered bank that handles currency transactions.
+>
+>Sources in both banking and the RCMP say the transaction is consistent with how the RCMP funnels money to its confidential informants and agents, and is not an option available to private banking customers.
+>
+>The RCMP has repeatedly said that it had no “special relationship” with Wortman. RCMP Supt. Darren Campbell reiterated that statement during an interview with the Toronto Star published online, and in its print newspaper on Sunday, saying: “The gunman had no special relationship with the RCMP whatsoever.” Campbell told the Star: “The investigation has not uncovered any relationship between the gunman and the RCMP outside of an estranged familial relationship and two retired RCMP members.”
+>
+>According to the Star story: “Campbell said the reason for Wortman’s large cash withdrawal, which he confirmed was hundreds of thousands of dollars, was not fully known, ‘however, there are indications that near the time of the withdrawal the gunman believed that due to the worldwide pandemic, that his financial assets were safer under his control.'”
+>
+>Campbell declined to be interviewed by Maclean’s on Friday, prior to this story’s publication online, and again on Tuesday.
+>
+>Court documents show Wortman owned a New Brunswick-registered company called Berkshire-Broman, the legal owner of two of his vehicles (including one of his police replica cars). Whatever the purpose of that company, there is no public evidence that it would have been able to move large quantities of cash. Wortman also ran his own denturist business and there is no reason to believe it also would require him to handle large amounts of cash.
+>
+>If Wortman was an RCMP informant or agent, it could explain why the force appeared not to take action on complaints about his illegal guns and his assault on his common-law wife.
+>
+>A Mountie familiar with the techniques used by the force in undercover operations, but not with the details of the investigation into the shooting, says Wortman could not have collected his own money from Brink’s as a private citizen.
+>
+>“There’s no way a civilian can just make an arrangement like that,” he said in an interview.
+>
+>He added that Wortman’s transaction is consistent with the Mountie’s experience in how the RCMP pays its assets. “I’ve worked a number of CI cases over the years and that’s how things go. All the payments are made in cash. To me that transaction alone proves he has a secret relationship with the force.”
+>
+>A second Mountie, who does not know the first one but who has also been involved in CI operations, also believes that Wortman’s ability to withdraw a large sum of money from Brink’s is an indication that Wortman had a link with the police. “That’s tradecraft,” the Mountie said, explaining that by going through CIBC Intria, the RCMP could avoid typical banking scrutiny, as there are no holds placed on the money.
+>
+>“That’s what we do when we need flash money for a buy. We don’t keep stashes of money around the office. When we suddenly need a large sum of money to make a buy or something, that’s the route we take. I think [with the Brink’s transaction] you’ve proved with that single fact that he had a relationship with the police. He was either a CI or an agent.”
+>
+>A Canadian retail banking expert speaking on condition that they not be identified says it is unlikely that Wortman was cashing out his own savings when he collected the money from Brinks after the money was transferred from CIBC Intria.
+>
+>“When you come into my branch and you want a ton of cash, then I say, you gotta give us a couple of days. We put in our Brink’s order, I order the money through Brink’s, then when the money arrives, you come back into the branch, I bring you into a back room and I count the money out for you,” the banking expert said. “Sending someone to Brink’s to get the money? I’ve never heard of that before. The reason is, if I’m the banker, and you’ve deposited your savings in my bank branch, I’m responsible for making sure the money goes to the right person. If you want this money, I’m going to verify your identity and document that. I can’t do that if I’m transferring the money to Brink’s.”
+>
+>In response to detailed questions from Maclean’s about the transaction, a CIBC spokesperson replied via email: “Our hearts and thoughts are with the families and the entire community as they deal with this senseless tragedy and loss. Unfortunately we are not able to comment on specific client matters.” Brinks did not reply to questions about the transaction.
+>
+>The banking expert speculates that the RCMP could keep transactions relatively quiet by going through Brink’s instead of a bank to transfer money to a confidential informant or an agent.
+>
+>“You can imagine that if someone comes in with large sums of cash, that stuff is not kept quiet. You don’t want that. Maybe what the RCMP was doing is they thought they could keep things quieter simply by transferring funds via Brink’s.”
+>
+>At a press briefing on June 4, the RCMP’s Campbell seemed to rule out the possibility that Wortman was a confidential informant for the force. “The gunman was never associated to the RCMP as a volunteer or auxiliary police officer, nor did the RCMP ever have any special relationship with the gunman of any kind.”
+>
+>The RCMP Operations Manual, a copy of which was obtained by Maclean’s, authorizes the force to mislead all but the courts in order to conceal the identity of confidential informants and agent sources.
+>
+>“The identity of a source must be protected at all times except when the administration of justice requires otherwise, i.e. a member cannot mislead a court in any proceeding in order to protect a source.”
+>
+>A spokeswoman for the Nova Scotia RCMP declined further comment after Maclean’s reported on the financial transaction.
+>
+>“This is still an active, ongoing investigation,” said Cpl. Jennifer Clarke in an email on Friday. “All investigative avenues and possibilities continue to be explored, analyzed, and processed with due diligence. This is to ensure that the integrity of the investigation is not compromised. We cannot release anything more related to your questions.”
+>
+>Maclean’s reported earlier this week that sources say Wortman had social relationships with Hells Angels, and with a neighbour, Peter Alan Griffon, who recently finished serving part of a seven-year sentence for drug and firearm offences linked to La Familia, a Mexican cartel. Sources say Griffon printed the decals that Wortman used on the replica RCMP cruiser he used in his rampage.
+>
+>Sources say that RCMP in New Brunswick, not Nova Scotia, recently took over operational control of investigations into outlaw bikers in the Maritimes, which means that Nova Scotia Mounties may not have been aware of any connection to Wortman.
+>
+>The RCMP Operations Manual identifies two types of sources: informant sources and agent sources. A law enforcement source said the force uses Brink’s to make large payments to agent sources, not informant sources.
+>
+>“Informants are never paid more than a couple hundred at a time,” said a person briefed on RCMP operations. “Anything over $10,000 is agent money.”
+>
+>Agents typically have greater responsibilities than informants. Only officers who have received specialized training are allowed to handle agents.
+>
+>“An agent source is a person tasked by investigators to assist in the development of target operations,” says the manual. “Direct involvement and association with a target may result in his/her becoming a material and compellable witness, ie. a source used to introduce undercover operations, act as a courier for controlled delivers or act in place of an RCMP undercover operator by obtaining evidence.”
+>
+>If the money was a transfer from the RCMP to an agent, there would be a paper trail through FINTRAC, the Financial Transactions and Reports Analysis Centre of Canada, which tracks large cash transactions and suspicious transactions.
+>
+>“Brink’s does the FINTRAC paperwork saying it’s coming from us, it’s from a chartered bank, and the RCMP liaison at FINTRAC signs off, handles the paperwork,” said a source briefed on the system. “The RCMP guys clear it or they refer it for further investigation. They manually clear those FINTRAC reports coming from Brink’s related to paid agents.”
+>
+>The RCMP Operations Manual requires officers handling confidential informants and agents to send reports to the director of the Covert Operations Branch at National Headquarters.
+>
+>Headquarters’ media relations office said in an email Friday that Campbell’s statement that the force never had a “special relationship” with Wortman “still stands.”
+>
+>The attorney general of Nova Scotia, former RCMP staff sergeant Mark Furey, has said the province is in talks with Ottawa about a joint federal-provincial inquiry or review of Wortman’s murderous rampage.
+>
+>Furey’s office did not reply before deadline to a question about whether the terms of the inquiry would allow inquiry counsel to pierce the powerful legal privilege that attaches to confidential informants.
+>
+>Family members of the victims have complained that the process is dragging out. As calls for an inquiry mount, so does speculation about what happened, among both the general public and the RCMP.
+>
+>One former Mountie says he doesn’t understand why Wortman would turn against the Mounties if they were paying him. “What seems inconsistent to me is why are you going to bite the hand that feeds you? If he’s getting money, and that’s a lot of money for an agent, or a CI, that part doesn’t make sense to me.”
+>
+>The former investigator pointed out that if Wortman was acting for the RCMP, and receiving that amount of money, he would eventually be expected to testify.
+>
+>“If he was an agent, he should show up on a witness docket.”
+>
+>But another Mountie says, “This guy always wanted to be a Mountie. He was acting like a Mountie. He was doing Mountie things. It’s clear to me that something went wrong.”
+
+2. [Man behind Nova Scotia mass shooting came from dysfunctional family: uncle](https://atlantic.ctvnews.ca/man-behind-nova-scotia-mass-shooting-came-from-dysfunctional-family-uncle-1.5815902)
+>A close relative of the man who disguised himself as a Mountie and fatally shot 22 people in Nova Scotia says the killer was a lifelong scammer and opportunist raised in a deeply dysfunctional family, newly released documents say.
+>
+>Chris Wortman, a former Mountie who was the gunman's uncle, told police soon after the killings in April 2020 that he wasn't surprised when he learned his nephew, Gabriel Wortman, was responsible for Canada's worst mass shooting.
+>
+>"I knew he was always capable of killing somebody or (causing) serious harm," he told RCMP Sgt. Cory Kilborn during an interview in Invermere, B.C., on April 28, 2020 -- nine days after the killings.
+
+3. [N.S. mass shooter was treated 'like an animal' by his father, family says](https://www.cbc.ca/news/canada/nova-scotia/n-s-mass-shooter-was-treated-like-an-animal-by-his-father-family-says-1.6516528)
+>Gabriel grew up as an only child in the Moncton, N.B., area with parents Paul and Evelyn Wortman. He has one sibling, biological brother Jeff Samuelson, who Paul and Evelyn had in 1970 in the U.S. and placed up for adoption at birth.\
+>[...]\
+>Inquiry documents said Paul has four brothers: Neil, Glynn, Alan and Chris. The two youngest brothers, Alan and Chris, are retired RCMP members.
+
+4. [Nova Scotia shooting: ex-neighbours say they warned police about gunman](https://www.theguardian.com/world/2020/may/13/nova-scotia-shooting-ex-neighbours-warned-police-gunman)
+>Brenda Forbes, a former neighbour of the gunman, told the Canadian Press that his violence was known – and feared – in the community.\
+>[...]\
+>Forbes’s husband – who like his wife is a veteran of the Canadian armed forces – recalled seeing Wortman’s collection of weapons, including pistols and a rifle.\
+>
+>“He knew I had weapons, being in the military, so he was always one of those guys who had to show others that whatever they had, he had something better,” George Forbes told the Canadian Press. “We reported that to the police also,” he said.
+
+5. [Nova Scotia gunman escaped by driving through field after first killings: RCMP](https://nationalpost.com/pmn/news-pmn/canada-news-pmn/newsalert-n-s-gunman-acquired-police-car-last-fall)
+>Gabriel Wortman, who killed 22 people over a span of about 13 hours, drove east from Portapique to Debert, N.S., where he arrived at 11:12 p.m. and spent the night in an industrial park, Campbell said.
+>
+>As for the replica police car, which the gunman used to escape and later surprise victims, it was obtained in the fall of 2019, and was one of four former police vehicles he bought at auctions in the last few years.
+>
+>Campbell said the 51-year-old Halifax-based denturist outfitted the vehicle with an emergency light bar and decals that made the late-model Ford Taurus look almost identical to a genuine RCMP vehicle.
+>
+>“The gunman was a collector of many things, including police memorabilia,” Campbell told reporters. “He was in possession of multiple pieces of police uniforms from a variety of agencies …. How he obtained the decals and how they were produced is an investigative detail that I can’t get into.”
+>
+>Campbell said many witnesses have come forward to confirm the killer had a keen interest in the RCMP.
+>
+>Used RCMP uniforms can be purchased from surplus stores, auctions and through online vendors, but Campbell said it was unclear how the suspect obtained the uniform in question.
+>
+>“He didn’t hide that fact — that he had cars or memorabilia — from people that knew him,” he said. However, the senior Mountie said police were not aware of these collections.
+>
+>The gunman was wearing an authentic RCMP shirt and yellow-striped pants during the initial stage of his 90-kilometre rampage, said Campbell, the officer in charge of support services for Nova Scotia.
+>
+>He confirmed that police had interviewed retired RCMP officers who were related to Wortman, but Campbell said there was no indication they offered any help to the shooter.
+
+=============================================================================================================================
+
+[Canadian Pacific Air Lines Flight 108 bombing](https://en.wikipedia.org/wiki/Albert_Guay#Flight_108)\
+Cap Tourmente, Quebec\
+September 9, 1949\
+23 killed
+
+Perpetrator(s):\
+**Joseph-Albert Guay, 32**\
+Canadian Department of National Defence (DND) contractor employer (Canadian Arsenals Limited)
+
+Source(s):
+1. [Sep 9 1949: Albert Guay Affair](https://worldhistoryproject.org/1949/9/9/albert-guay-affair)
+>Guay had met Rita, nee Morel, during World War II when both were working at Canadian Arsenals Limited in St. Malo, Quebec.
+
+2. [Canadian Arsenals Limited's Connections to the Canadian Department of National Defence - Google](https://www.google.com/search?q=Canadian+Arsenals+Limited+WW2)
+
+=============================================================================================================================
+
+[San Ysidro McDonald's massacre](https://en.wikipedia.org/wiki/San_Ysidro_McDonald%27s_massacre)\
+San Diego, California\
+July 18, 1984\
+22 killed (including 1 perpetrator), 19 wounded
+
+Perpetrator(s):\
+**James Oliver Huberty, 41**\
+United States Department of Defense (DOD) contractor employer (Babcock and Wilcox); United States Army (USA) / Navy (USN) paternal aunt (Eva L. Guerard); United States Army (USA) paternal great-uncle (Walter Ellsworth Blanchard); United States Federal Government associates (federally funded security guard training program)
+
+Source(s):
+1. [San Ysidro McDonald's massacre - Marriage and employment](https://en.wikipedia.org/wiki/San_Ysidro_McDonald%27s_massacre#Marriage_and_employment)
+>In early 1965, Huberty married Etna Markland, whom he had met while attending Malone College. Shortly after his marriage, Huberty obtained employment at a funeral home in Canton. Although proficient at embalming, Huberty's introverted personality made him ill-suited to dealing with members of the public, causing minor conflicts with his superiors. Nonetheless, Huberty worked in this profession for two years before opting to become a welder for a firm in Louisville. He worked for this firm for two years before securing a better-paid position at Babcock & Wilcox in June 1969.[69] Although reclusive and taciturn, Huberty's employers considered him a reliable worker. He willingly took overtime, earned promotions and by the mid-1970s, regularly earned between $25,000 and $30,000 per year ($121,000–$145,000, adjusted for 2021 inflation).
+
+2. [Babcock & Wilcox's Connections to the United States Department of Defense](https://en.wikipedia.org/wiki/Babcock_%26_Wilcox)
+
+3. [San Ysidro McDonald's massacre - Domestic violence and temperament](https://en.wikipedia.org/wiki/San_Ysidro_McDonald%27s_massacre#Domestic_violence_and_temperament)
+>A conspiracy theorist and self-proclaimed survivalist, Huberty believed an escalation of the Cold War was inevitable and that president Jimmy Carter and, later, Ronald Reagan and the United States government were conspiring against him.[75] Convinced of an imminent increase in Soviet aggression, Huberty believed that a breakdown of society was fast approaching, perhaps through economic collapse or nuclear war. He committed himself to prepare to survive this perceived collapse and provisioned his house with ample reserve supplies of non-perishable food and numerous guns—some purchased from co-workers[71]—that he intended to use to defend his home during what he believed was the coming apocalypse.[76] According to one family acquaintance named Jim Aslanes, Huberty's home was bedecked with loaded firearms[77] to such a degree that wherever Huberty was sitting or standing within his home, he "could just reach over and get a gun." Each firearm was loaded, with the safety catch disabled.[71]
+
+4. [San Ysidro McDonald's massacre - Unemployment and relocation to Tijuana](https://en.wikipedia.org/wiki/San_Ysidro_McDonald%27s_massacre#Unemployment_and_relocation_to_Tijuana)
+>In November 1982, Huberty was laid off from his welding job at Babcock & Wilcox, causing him to become despondent over his dire financial situation and general inability to provide for his family.[78][n 6] One co-worker would later recollect that, upon being notified of the impending closure of this engineering firm, Huberty had made a comment indicating that if he was unable to provide for his family, he intended to commit suicide and "take everyone with him."[79] According to Etna, shortly after her husband became unemployed, Huberty began hearing voices.[62] In early 1983, he placed a loaded pistol against his temple, threatening to commit suicide. Etna successfully dissuaded her husband from shooting himself, although he later remarked to her: "You should have let me shoot myself."[18][n 7]
+
+5. [San Ysidro McDonald's massacre - San Ysidro](https://en.wikipedia.org/wiki/San_Ysidro_McDonald%27s_massacre#San_Ysidro)
+>In San Ysidro, the Hubertys rented an apartment within the Cottonwood Apartments as Huberty sought employment. The fact his family were the only Anglo-Americans within this apartment complex irritated Huberty, who was notably ignorant to his neighbors.[83] Shortly thereafter, Huberty applied to a newspaper advertisement offering security guard training in a federally funded program. He completed this course on April 12 and soon obtained employment with a security firm in Chula Vista, assigned with guarding a condominium complex.[13] The money earned enabled the family to have their furniture shipped from Ohio, and the family relocated to a two-bedroom apartment on Averil Road the same month.[83] The monthly rent for this apartment was $450.[62]
+>
+>On July 10, Huberty was summarily dismissed from this job;[3] his employers informed Huberty the reasons for his dismissal were his poor work performance and a noted general physical instability.[66][84]
+
+6. [San Ysidro McDonald's massacre - Aftermath](https://en.wikipedia.org/wiki/San_Ysidro_McDonald%27s_massacre#Aftermath)
+>In July 1986, Etna Huberty filed a lawsuit against both McDonald's and her husband's longtime former employer, Babcock & Wilcox.[115] This civil suit—seeking $5 million in damages—asserted her husband's murder spree had been triggered by a combination of a poor diet and her husband working around highly poisonous metals without adequate protection over the course of many years.[115][n 10]
+>
+>The suit specifically cited that no traces of either drugs or alcohol had been discovered in Huberty's body at his autopsy—negating any possibility of his actions being influenced by either factor[96]—and that the alleged accrual of the high levels of lead and cadmium discovered in Huberty's body at his autopsy had most likely accumulated via an ongoing exposure to the fumes inhaled during the 13 years he had been employed as a welder (without sufficient respiratory protection) by Babcock & Wilcox,[11] and that a combination of Huberty's exposure to these chemicals with his ingesting high levels of monosodium glutamate in the staple McDonald's food he had regularly consumed[115] had induced delusions and an uncontrollable rage. This lawsuit was dismissed in 1987.[116] Etna Huberty died of breast cancer in 2003.[13]
+	
+7. [Eva L “Eve” Guerard - Find a Grave](https://www.findagrave.com/memorial/103689616/eva-l-guerard)
+>Eva L Guerard of Decatur, AL, formerly of Cocoa Beach. Eve was a U.S. Army and U.S. Navy veteran who served as a nurse. She and her husband, Franz, were some of the first residents of Cocoa Beach. Preceded in death by her husband in 1997, she moved to AL in 2008. She is survived by nieces, nephews and cousins. No services are planned. Published in FLORIDA TODAY January 17, 2013.
+
+8. [Pvt Walter Ellsworth Blanchard - Find a Grave](https://www.findagrave.com/memorial/110901977/walter-ellsworth-blanchard)
+>PVT - U.S. Army\
+>Company A, 26th Infantry, 1st Division\
+>World War I\
+
+>Awarded Purple Heart
+
+>Service Record: Enlisted National Army Cleveland, Ohio 28 May 1918. Born Mt. Eaton, Ohio 22 8/12 years. 13th Co., 2nd Infantry Replacement Regiment Camp Gordon, Georgia to 12 Jul 1918; 15th Co. July Automatic Replacement Draft to --; Co. A, 26th Infantry to Discharge Private. St Mihiel; Meuse-Argonne. Wounded In Action severely 14 Oct 1918. American Expeditionary Forces 21 Jul 1918 to 9 Dec 1918. Honorable Discharge 1 May 1920. Surgeon Certified Disability 45% disabled. Cited in General Order 1st Division 1 Jan 1920.
+
+9. [Mass murderer: 'always very sad and very lonely'](https://www.upi.com/Archives/1984/07/22/Mass-murderer-always-very-sad-and-very-lonely/4891459316800/)
+>Three years later he was back in Canton, a welder at Babcock and Wilcox, which made replacement parts for the steel industry. There he earned seniority. This good stretch lasted 13 years. [...] Huberty qualified for a federally funded security guard training program as a low income, unemployed applicant, and on April 12 was issued a permit by the Bureau of Collections and Investigative Services to carry a .38 caliber revolver or a .357 magnum on duty. Huberty got a job guarding a condominium construction project but was fired July 10. 'But that did not seem to worry him too much at the time,' said his wife.
+
+=============================================================================================================================
+
+[Robb Elementary School shooting](https://en.wikipedia.org/wiki/Robb_Elementary_School_shooting)\
+Uvalde, Texas\
+May 24, 2022\
+22 killed (including 1 perpetrator), 18 wounded
+
+Perpetrator(s):\
+**Salvador Rolando Ramos, 18**\
+United States Navy (USN) sister (Marisabelle Ramos); United States Marine Corps aspirant associate
+
+Source(s):
+1. [Gunman bought two rifles, hundreds of rounds in days before massacre](https://www.washingtonpost.com/nation/2022/05/25/uvalde-texas-school-shooting-gunman/)
+>Ramos has an older sister. She is serving in the Navy, military officials confirmed Wednesday.
+
+2. [EXCLUSIVE: REVEALED: Texas school shooter Salvador Ramos' sister is serving in the US Navy and rushed home to be with their grandmother in hospital after he shot the 66-year-old in the face](https://www.dailymail.co.uk/news/article-10864283/Sister-Texas-school-shooter-Salvador-Ramos-serving-Navy-came-home-comfort-grandma.html?ito=social-twitter_mailonline)
+>The Uvalde school mass shooter has an older sister who is currently serving in the United States Navy, DailyMail.com has learned exclusively.
+>
+>Marisabelle Ramos, 21, is three years older than her dead brother Salvador, who was responsible for Tuesday’s massacre at Robb Elementary School.
+>
+>‘My granddaughter Marisabelle is in the Navy and currently stationed in San Diego, California’ her grandfather, Rolando Reyes, exclusively told DailyMail.com.
+
+3. [Salvador Ramos: Everything we know about Texas school mass shooter](https://www.independent.co.uk/news/world/americas/crime/salvador-ramos-texas-shooter-texts-autopsy-b2090112.html)
+>She said [Ramos] once told a friend who wanted to join the Marines that he only had that goal because then he would be able to kill people. The boy ended the friendship then and there.
+
+=============================================================================================================================
+
+[Nainital wedding massacre](https://en.wikipedia.org/wiki/Nainital_wedding_massacre)\
+Nainital, India\
+April 21, 1950\
+22 killed, unknown wounded
+
+Perpetrator(s):\
+**Unnamed assailant**\
+Indian Armed Forces (branch unknown)
+
+Source(s):
+[Nainital wedding massacre - Wikipedia](https://en.wikipedia.org/wiki/Nainital_wedding_massacre)
+>The Nainital wedding massacre was a mass murder that occurred during a wedding in Nainital, India on 21 April 1950, when a drunk Gurkha soldier stabbed 22 guests at a wedding, all of them apparently fatally.
+>
+>The man, who was armed with a machete, was enraged by a low caste money lender marrying a girl of the higher social standing Brahmin caste, and stabbed the Harijan members. All of his victims were members of the Harijan caste.[1][2][3][4]
+
+=============================================================================================================================
+
+[Ponce massacre](https://en.wikipedia.org/wiki/Ponce_massacre)\
+March 21, 1937\
+Ponce, Puerto Rico\
+21 killed, 235 wounded
+
+Perpetrator(s):\
+**Blanton C. Winship**\
+United States Army (USA); Spanish–American War / Pancho Villa Expedition / World War I (WWI) / World War II (WWII) veteran; Governor of Puerto Rico
+
+=============================================================================================================================
+
+[Kerch Polytechnic College massacre](https://en.wikipedia.org/wiki/Kerch_Polytechnic_College_massacre)\
+Kerch, Russia\
+October 17, 2018\
+21 killed (including 1 perpetrator), 70 wounded
+
+Perpetrator(s):\
+**Vladislav Roslyakov, 18**\
+Russian Armed Forces aspirant; Soviet Armed Forces father (Igor Roslyakov)
+
+Source(s):
+1. [Vladislav Roslyakov: A Profile](https://schoolshooters.info/sites/default/files/roslyakov_profile_1.0.pdf)
+>He was raised in the home of his paternal grandparents by his father, Igor, and mother, Galina. A quiet, thin woman, Galina was a low-paid orderly at the hospital in Kerch. Igor was a former soldier who had served in Afghanistan for several years. After he returned, he was assaulted. This resulted in brain damage; he began collecting disability payments.18 
+>
+>After the brain injury, Igor became aggressive toward his family. He reportedly beat his wife and son, as well as his own parents.19 He was also an alcoholic; neighbors said Igor was more often drunk than sober, and he became more violent when intoxicated. On at least one occasion he had taken a sword into the front yard and threatened neighbors, challenging them to duel. Igor and his father were, at one time, both Cossacks (a people of southern Russia and Ukraine noted for their horsemanship and military skill).20\
+>[...]\
+>Roslyakov began displaying an interest in firearms and weapons around the time he began college. According to a media report, he began seeking out military veterans online, pestering them for information about firearms and explosives.34\
+>[...]\
+>Despite previously considering joining the military, Roslyakov expressed disdain at the prospect of joining the armed forces.49
+
+=============================================================================================================================
+
+[Ugandan funeral shooting](https://www.nytimes.com/1983/04/16/world/16-killed-at-ugandan-funeral.html)\
+November 6, 1995\
+Asureti, Uganada\
+21 killed
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Ugandan Police Special Operations Forces (SOF)
+
+Source(s):
+1. [16 Killed at Ugandan Funeral](https://www.nytimes.com/1983/04/16/world/16-killed-at-ugandan-funeral.html)
+>A Ugandan special forces policeman went berserk and shot and killed 16 people at the funeral of a colleague before committing suicide, the police said today.
+
+=============================================================================================================================
+
+[January 2015 Île-de-France attacks](https://en.wikipedia.org/wiki/January_2015_%C3%8Ele-de-France_attacks)\
+Paris / Dammartin-en-Goële / Montrouge, France\
+January 7 - 9, 2015\
+20 killed (including 3 perpetrators), 22 wounded\
+
+Perpetrator(s):\
+**Saïd Kouachi / Chérif Kouachi / Amedy Coulibaly**\
+French Gendarmerie associates (Claude Hermant et al.); French Government associate (Nicolas Sarkozy); British Security Service (MI5) associate (Djamel Beghal)
+
+Source(s):
+1. [Informant Claude Hermant implicates French state in Charlie Hebdo attacks](https://www.wsws.org/en/articles/2017/05/22/herm-m22.html)
+>Claude Hermant, a police informant arrested in the case of the January 7, 2015 attack on Charlie Hebdo in Paris, has implicated the French state in the preparation of the attack. Hermant, who allegedly sold weapons used by Amédy Coulibaly and the Kouachi brothers to commit the attacks, is reportedly charging that three gendarme military policemen and two customs officials, as well as organized crime circles, were involved.
+>
+>The case shatters the official narrative, according to which terror attacks in France, Belgium, and Germany since 2015 have been the work of isolated Islamists.
+>
+>Hermant’s lawyer, Maxime Moulin, does not dispute the fact that weapons that passed through the hands of his client, who was acting for the customs’ intelligence agency until 2013 and then worked for the gendarmerie, reached Coulibaly. The media and established political parties covered up this fact, together with Hermant’s arrest after the attacks due to his relations with Coulibaly. The interior minister in 2015, Bernard Cazeneuve, even invoked the states secrets privilege in regard to investigations of the relations between Hermant and the Islamists.
+>
+>Moulin filed a suit with the state prosecutor’s office in Lille on May 2, accusing the interior minister of endangering his client’s life. He stated, “We are demanding the lifting of the states secrets privilege. Things are being hidden, this was the solution that we found to obtain the truth. … We want to have access to this information. We are officially asking that the Interior Ministry lift the states secrets privilege on all contact reports [between the gendarmerie and Claude Hermant]. We want to know what reports were handled, what information was not transmitted, what reports were ignored, and why.”
+>
+>Moulin said that Hermant had acted purely in the interests of the customs service and of the gendarmerie: “We cannot accept when the gendarmerie ’s work is really borderline. When things work out, they are happy, but when things don’t, they hang you out to dry in the ruins. They can’t abandon a soldier in the field like this.”
+>
+>According to the daily Libération, Moulin justified his client’s suit by citing “a Médiapart article of March 2017. Claude Hermant had warned the gendarmerie that a convoy with weapons was passing through the tollbooths on the Lille to Paris highway, but the gendarmerie only succeeded in intercepting half of the vehicles. The second convoy, which had been warned that the gendarmes had been alerted, managed to evade them. And those weapons were used by Coulibaly.”
+>
+>The Voix du Nord daily published a few extracts of emails exchanged between Hermant and a gendarme in November 2014: “Hey Claude, we talked it over with our superiors. … We’re giving you a green light for the two cases you showed us (weapons—[the city of]Charleroi) ...”
+>
+>These emails suggest that Hermant may have received official approval from some intelligence agency for his actions in the Coulibaly-Kouachi affair. The Voix du Nord encourages its readers to draw their own conclusions: “Suppose you ran across this type of message (of a dozen or so in total), that a gendarme allegedly sent to Claude Hermant on 20 November 2017 at 8:47 a.m., and that a close friend of the accused insists that ‘Claude Hermant has all his bases covered.’”
+
+2. [Paris Attacker Met French President in 2009](https://time.com/3661840/amedy-coulibaly-nicolas-sarkozy/)
+>A gunman killed by French police on Friday after taking a number of hostages at a kosher supermarket in Paris met with then-president Nicolas Sarkozy in 2009. According to local newspaper Le Parisien, Sarkozy met with 500 young French people on July 15, 2009 to talk about work/study training and youth employment; among them was Amedy Coulibaly, then 27 and on contract at a Coca-Cola factory in Grigny, a suburb of Paris. Coulibaly was interviewed by the newspaper in advance of the meeting, saying he was excited to meet the president and hoped he could help get him hired when his contract at the factory ended. He said his nine sisters had charged him with getting autographs and photos for the whole family. “In the cities, with the young people, Sarkozy isn’t really very popular,” Coulibaly said. “But it’s nothing personal. In fact, that’s the case with most politicians.” But the president’s unpopularity didn’t curb Coulibaly’s enthusiasm: “Whether you like him or not, he’s still the president.”
+
+3. [Charlie Hebdo shooting - Chérif and Saïd Kouachi](https://en.wikipedia.org/wiki/Charlie_Hebdo_shooting#Ch%C3%A9rif_and_Sa%C3%AFd_Kouachi)
+>Chérif, also known as Abu Issen, was part of an informal gang that met in the Parc des Buttes Chaumont in Paris to perform military-style training exercises and sent would-be jihadists to fight for al-Qaeda in Iraq after the 2003 invasion.[102][103] Chérif was arrested at age 22 in January 2005 when he and another man were about to leave for Syria, at the time a gateway for jihadists wishing to fight US troops in Iraq.[104] He went to Fleury-Mérogis Prison, where he met Amedy Coulibaly.[105] In prison, they found a mentor, Djamel Beghal, who had been sentenced to ten years in prison in 2001 for his part in a plot to bomb the US embassy in Paris.[104] Beghal had once been a regular worshipper at Finsbury Park Mosque in London and a disciple of the radical preachers Abu Hamza al-Masri[106] and Abu Qatada.
+
+4. June 1996-February 1997: British Intelligence Recruits Prominent Al-Qaeda Imam Abu Qatada
+http://web.archive.org/web/20201030171821/http://historycommons.org/context.jsp?item=a0696qatada#a0696qatada
+>In June and December 1996, and again in February 1997, a British MI5 agent meets with radical Muslim imam Abu Qatada, hoping he will inform on his fellow extremists. Qatada is a Jordanian national who entered Britain in September 1993 using a forged United Arab Emirates passport, and was granted asylum in 1994.
+>
+>Qatada Promises to Look after British Interests - In his meetings with the MI5 agent he claims to “wield powerful, spiritual influence over the Algerian community in London.” He says he does not want London to become a center for settling Islamic scores, and that he will report anyone damaging British interests. He says the individuals he has influence over pose no threat to British security, and promises that “he would not bite the hand that fed him.” He also promises to “report anyone damaging the interests of [Britain].” The MI5 agent records that “surprisingly enough—[Abu Qatada] revealed little love of the methodology and policies pursued by Osama bin Laden. He certainly left me with the impression that he had nothing but contempt for bin Laden’s distant financing of the jihad.” [SPECIAL IMMIGRATION APPEALS COMMISSION, 1/2004 pdf file; CHANNEL 4 NEWS (LONDON), 3/23/2004; GUARDIAN, 3/24/2004; LONDON TIMES, 3/25/2004]
+>
+>Links to Al-Qaeda - Yet Qatada is later described as being a “key [British] figure” in al-Qaeda related terror activity. Around 1996, a highly reliable informer told US intelligence that Qatada is on al-Qaeda’s fatwa (religious) committee (see June 1996-1997). Videos of his sermons are later discovered in the Hamburg flat used by Mohamed Atta. Richard Reid, the shoe bomber, and Zacarias Moussaoui, who is later convicted in connection with the 9/11 attacks, are alleged to have sought religious advice from him. [BBC, 8/11/2005; GUARDIAN, 8/11/2005]
+>
+>Meetings Apparently Continue - Reportedly, after Qatada’s February 1997 meeting with the British agent, no further such meetings occur. [SPECIAL IMMIGRATION APPEALS COMMISSION, 1/2004 pdf file] However, some French officials later allege that Qatada continues to be an MI5 agent, and this is what allows him to avoid arrest after 9/11 (see Early December 2001). [OBSERVER, 2/24/2002] It will later emerge that Bisher al-Rawi, a friend of Qatada, served as an informant and a go-between MI5 and Qatada in numerous meetings between late 2001 and 2002, when Qatada is finally arrested (see Late September 2001-Summer 2002). Furthermore, al-Rawi says he served as a translator between MI5 and Qatada before 9/11, suggesting that Qatada never stopped being an informant. [OBSERVER, 7/29/2007]
+
+=============================================================================================================================
+
+[Tsukui Yamayuri En stabbings](https://en.wikipedia.org/wiki/Sagamihara_stabbings)\
+Sagamihara, Japan\
+July 26, 2016\
+19 killed, 26 wounded
+
+Perpetrator(s):\
+**Satoshi Uematsu, 26**\
+Sagamihara Municipal Government employer (Tsukui Yamayuri En care facility); Japanese Speaker of the House of Representatives associates
+
+1. [Sagamihara stabbings - Location](https://en.wikipedia.org/wiki/Sagamihara_stabbings#Location)
+>Tsukui Lily Garden (津久井やまゆり園, Tsukui Yamayuri En) is a residential care center run by Kanagawa Kyodokai (社会福祉法人かながわ共同会, Shakai Fukushi Hōjin Kanagawa Kyōdōkai), a social welfare organization.[6] Established by the local government, the facility was built in a 30,890 square metres (7.63 acres) area of woodland on the bank of the Sagami River.[7][8] 
+
+2. [Sagamihara stabbings - Perpetrator](https://en.wikipedia.org/wiki/Sagamihara_stabbings#Perpetrator)
+>Satoshi Uematsu (植松 聖, Uematsu Satoshi) (born 20 January 1990)[17][18], a 26-year-old (at the time of the incident) man, used to work at the care home Tsukui Yamayuri En.[3] His father was an elementary school art teacher, and Uematsu had trained and worked as an elementary school teacher as well. He had lived in his house with his parents, but they moved away at some point and he remained there alone.[19] He resigned from working at the facility in February 2016 after having been employed there for over three years.[20]
+
+3. [Sagamihara stabbings - Letter and statements](https://en.wikipedia.org/wiki/Sagamihara_stabbings#Letter_and_statements)
+>In February 2016, Uematsu attempted to hand-deliver a letter to Tadamori Ōshima, the Speaker of the House of Representatives of Japan, at Ōshima's home in Tokyo but was prevented from doing so by security. He returned the following day and this time left the letter with the security guards.[19] Uematsu's letter appealed for the legalization of ending the lives of those with multiple disabilities in cases where it was requested by their guardians, and asked for Ōshima's assistance in delivering his message to Japanese Prime Minister Shinzō Abe. In it, he wrote, "I envision a world where a person with multiple disabilities can be euthanised, with an agreement from the guardians, when it is difficult for the person to carry out household and social activities."[22] He also wrote that the killings of the disabled would be "for the sake of Japan and world peace" as well as to benefit the global economy and prevent World War III.[3][23]
+
+=============================================================================================================================
+
+[University of Texas tower shooting](https://en.wikipedia.org/wiki/University_of_Texas_tower_shooting)\
+Austin, Texas\
+August 1, 1966\
+18 killed (including 1 perpetrator), 31 wounded
+
+Perpetrator(s):\
+**Charles Joseph Whitman, 25**\
+United States Marine Corps (USMC); United States Navy (USN) maternal uncles (Cheatham Eli Hodges Jr. / John Paul Hodges); United States Coast Guard (USCG) maternal uncle (William Michael Hodges Sr.); United States Army (USA) maternal cousin (William Michael Hodges Jr.)
+
+Source(s):
+1. [Charles Whitman - High school](https://en.wikipedia.org/wiki/Charles_Whitman#High_school)
+>Without telling his father beforehand, Whitman enlisted in the United States Marine Corps one month after his June 1959 graduation from high school, where he had graduated seventh in a class of 72 students.[7] Whitman told a family friend that the catalyst for his enlistment was an incident a month earlier, in which his father had beaten him and thrown him into the family swimming pool because Whitman had come home drunk.[8] Whitman left home on July 6, having been assigned an eighteen-month tour of duty with the Marines at Guantánamo Bay, Cuba. As Whitman traveled toward Parris Island, his father, who still had not known of Whitman's enlistment,[7] learned of his action and telephoned a branch of the federal government trying to have his son's enlistment canceled.[12]
+
+2. [Charles Whitman - U.S. Marine and college student](https://en.wikipedia.org/wiki/Charles_Whitman#U.S._Marine_and_college_student)
+>During Whitman's initial eighteen-month service in 1959 and 1960, he earned a sharpshooter's badge and the Marine Corps Expeditionary Medal. He achieved 215 of 250 possible points on marksmanship tests, doing well when shooting rapidly over long distances as well as at moving targets. After completing his assignment, Whitman applied for a scholarship to the Naval Enlisted Science and Education Program (NESEP), an initiative designed to send enlisted personnel to college to train as engineers, and after graduation, be commissioned as officers.[18][19]
+
+3. [Charles Whitman - Documented stressors](https://en.wikipedia.org/wiki/Charles_Whitman#Documented_stressors)
+>In December 1964, Whitman was honorably discharged from the Marines. He returned to UT Austin, enrolling in the architectural engineering program. To support his wife and himself, he worked as a bill collector for the Standard Finance Company. Later, he worked as a bank teller at the Austin National Bank. In January 1965, Whitman took a temporary job with Central Freight Lines as a traffic surveyor for the Texas Highway Department, while his wife worked as a biology teacher at Lanier High School.[35][36][37] He was also a volunteer scout leader with Austin Scout Troop 5.
+
+4. [Charles Whitman - Events leading to the shooting](https://en.wikipedia.org/wiki/Charles_Whitman#Events_leading_to_the_shooting)
+>At 6:45 p.m., Whitman began typing his suicide note, a portion of which read:
+>
+>>"I do not quite understand what it is that compels me to type this letter. Perhaps it is to leave some vague reason for the actions I have recently performed. I do not really understand myself these days. I am supposed to be an average reasonable and intelligent young man. However, lately (I cannot recall when it started) I have been a victim of many unusual and irrational thoughts. These thoughts constantly recur, and it requires a tremendous mental effort to concentrate on useful and progressive tasks.[43]"
+>
+>In his note, Whitman went on to request an autopsy be performed on his remains after he was dead to determine if there had been a discernible biological contributory cause for his actions and for his continuing and increasingly intense headaches. He also wrote that he had decided to kill both his mother and wife. Expressing uncertainty about his reasons, he nonetheless stated he did not believe his mother had "ever enjoyed life as she is entitled to",[42] and that his wife had "been as fine a wife to me as any man could ever hope to have". Whitman further explained that he wanted to relieve both his wife and mother of the suffering of this world, and to save them the embarrassment of his actions. He did not mention planning the attack at the university.[44]
+
+5. [Charles Whitman - Medical history](https://en.wikipedia.org/wiki/Charles_Whitman#Medical_history)
+>Investigating officers found that Whitman had visited several UT Austin physicians in the year before the shootings; they prescribed various medications for him. Whitman had seen a minimum of five doctors between the fall and winter of 1965 before he visited a psychiatrist from whom he received no prescription. At some other time he was prescribed Valium by Jan Cochrum, who recommended he visit the campus psychiatrist.[54]
+>
+>Whitman met with Maurice Dean Heatly, the staff psychiatrist at the University of Texas Health Center, on March 29, 1966.[55] He referred to his visit with Heatly in his final suicide note, writing: "I talked with a Doctor once for about two hours and tried to convey to him my fears that I felt come [sic] overwhelming violent impulses. After one visit, I never saw the Doctor again, and since then have been fighting my mental turmoil alone, and seemingly to no avail."[43]
+>
+>Heatly's notes on the visit said, "This massive, muscular youth seemed to be oozing with hostility [...] that something seemed to be happening to him and that he didn't seem to be himself."[56] "He readily admits having overwhelming periods of hostility with a very minimum of provocation. Repeated inquiries attempting to analyze his exact experiences were not too successful with the exception of his vivid reference to 'thinking about going up on the tower with a deer rifle and start shooting people.'"[57]
+
+6. [Cheatham Eli Hodges Jr. - Find a Grave](https://www.findagrave.com/memorial/51756646/cheatham-eli-hodges)
+>He served in WW II as a Pharmacist Mate 1st Class at Brooklyn Naval Hospital. He served on the USS Panamint AGC 13 in the Pacific. Honorably Discharged, in 1946. [...] He had many careers: an instructor at Millersville State College, real estate and appraisal in Augusta, GA., a field expediter for DuPont, taught for Palm Beach County public schools, business management in Augusta, GA, executive director of the GA Catholic Conference for 25 years and also represented GA. Military College and several other entities to the GA. Legislature. He was a Knight of St. Gregory, a Knight of the Holy Sepulchre and a Knight of Columbus.
+
+7. John Paul Hodges - Find a Grave
+https://www.findagrave.com/memorial/70890358/john-paul-hodges
+>DT2 U.S. NAVY\
+>Korea\
+
+8. [William Michael Hodges Jr. - Find a Grave](https://www.findagrave.com/memorial/162381991/william-michael-hodges)
+>He was a veteran of the U. S. Army, proudly serving in Viet Nam as a Cobra Assault Helicopter Pilot and was a flight instructor.
+
+=============================================================================================================================
+
+[Giuseppe Marco Fieschi shooting](https://en.wikipedia.org/wiki/Giuseppe_Marco_Fieschi)\
+Paris, France\
+February 19, 1836\
+18 killed, 22 wounded
+
+Perpetrator(s):\
+**Giuseppe Marco Fieschi**\
+French Army; French Army brother (Thomas Fieschi)
+
+Source(s):
+1. [Giuseppe Marco Fieschi - Life](https://en.wikipedia.org/wiki/Giuseppe_Marco_Fieschi#Life)
+>His parents were Louis and Marie Lucie, of Pomonti. He had two brothers, Thomas and Anthony. Thomas was killed in the Battle of Wagram.[2] Anthony was mute from birth. Giuseppe spent his childhood and adolescence as a shepherd. In 1808 he joined a Corsican regiment and was sent to Naples, then to Russia to fight in the Napoleonic Wars. In 1812 he held the rank of sergeant. He was discharged from the army in 1814 and returned to Corsica. In September 1815, he was one of around 1000 followers who joined former King of Naples Joachim Murat in an attempt to regain his kingdom, this ended a month later with Murat's capture and execution by forces of Ferdinand IV of Naples.[Note 1]
+
+=============================================================================================================================
+
+[Dunblane Massacre](https://en.wikipedia.org/wiki/Dunblane_massacre)\
+Dunblane, Scotland\
+March 13, 1996\
+18 killed (including 1 perpetrator), 15 wounded
+
+Perpetrator(s):\
+**Thomas Watt Hamilton, 43**\
+Freemason (Garrowhill Lodge No. 1413); Freemason paternal grandfather (James Hamilton - Garrowhill Lodge No. 1413 / Stirling Royal Arch Lodge No. 76); British Government associates (Queen Elizabeth II / George Robertson / Michael Forsyth); British Ministry of Defence (MOD) associates (Queen Victoria School); Central Scotland Police associates
+
+Source(s):
+1. [The Cullen Report - Witnesses & Omissions - YouTube [10 minutes]](https://www.youtube.com/watch?v=xUE3DcP7TEk)
+>A short analysis of the aspects of Lord Cullen's Dunblane Inquiry Report that require further explanation.
+>
+>Lord William Cullen was put in charge of the inquiry into the 1996 Dunblane Primary School shooting and the life of Thomas Hamilton.
+
+2. [Programmed To Kill/Satanic Cover-Up Part 56 (The Dunblane School Massacre - Thomas Hamilton) - YouTube [13 minutes]](https://www.youtube.com/watch?v=RGQyFjDOix0)
+>Hamilton allegedly enjoyed good relations with both local Labour luminary George Robertson and Michael Forsyth, the then Scottish Secretary of State and MP for Stirling. Forsyth congratulated and encouraged Hamilton for running a boy’s club. Hamilton was also found to have exchanged letters with the British monarch, Queen Elizabeth.\
+>[...]\
+>Hamilton's grandfather, James, a welder who joined the Garrowhill Lodge in the working class district of Baillieston in December 1957 and, after moving home, was a regular attendee at the Royal Arch Lodge in Stirling until his death in 2000.\
+>[...]\
+>In March 2004, Dr. Mick North, parent of deceased Dunblane victim Sophie North, brought forth new allegations of a possible cover-up. 
+>
+>North listed six key points that the Cullen Inquiry failed to addres, which included:\
+[...]\
+>(5) The failure to establish who Hamilton's friends in the police were. A number of witnesses testified that police cars often stopped outside his home.
+>
+>(6) The failure to investigate links, revealed by three witnesses, between Hamilton and the Queen Victoria School, a military school at Dunblane with a small shooting range that Hamilton used and where it is claimed by a former teacher that boys were abused.
+
+3. [Dunblane gunman was a regular visitor to elite Scots military school, inquiry told](https://www.scottishdailyexpress.co.uk/news/scottish-news/dunblane-gunman-regular-visitor-elite-27095177)
+>Exclusive: The Scottish Child Abuse Inquiry was told by two witnesses that twisted killer Thomas Hamilton was often seen at Queen Victoria School in Dunblane
+>
+>Evil Dunblane gunman Thomas Hamilton was named by two witnesses in the public inquiry into historic child abuse, the Scottish Express can reveal.
+>
+>One witness told judge Lady Smith that he saw Hamilton with Queen Victoria School housemaster Ben Philip, who is said to have sexually abused pupils before his unusual death in 1993.
+>
+>Another witness told the inquiry that he saw the infamous killer on school grounds “all the time” and he would even take boys out on day trips.
+>
+>However, this remarkable testimony about one of Britain’s most notorious murderers was given little attention by the judge and the lawyers conducting the inquiry.
+>
+>The first witness, former teacher Glenn Harrison, also gave evidence about an alleged paedophile ring operating at the top military school in Dunblane, near Stirling.
+>
+>The school for children of Scots servicemen and women has close ties to the Royal Family and has already apologised for the physical and sexual abuse and bullying that occurred in the past.
+>
+>In his written statement, Mr Harrison told how he challenged a “strange man” walking in a school corridor between 10.30pm and 11pm one night in 1991.
+>
+>After checking the school visitors’ register the next day, he said: “There were no visitors signed in the previous evening. [Redacted] name wasn’t in these registers because he used to come and use the shooting range. I didn’t know who [redacted] was at the time.”
+>
+>The Scottish Express understands the redacted name is that of Hamilton, a gun obsessive who would go on to murder 16 Dunblane Primary pupils and their class teacher in 1996.
+>
+>Mr Harrison said he saw the same man speaking to Philip the following day and then again from a window when he was “with other dignitaries at a passing out parade”.
+>
+>In 1996, Mr Harrison was working as a teacher in Shetland when he saw Hamilton’s photograph in the newspapers.
+>
+>He said: “I recognised him in the picture as being the male that I saw in the corridor at Queen Victoria School.”\
+>[...]\
+>Despite these closing submissions, however, Mr Harrison’s evidence WAS in fact backed up by another witness.
+>
+>‘Alex’, who was sexually abused by an older pupil, also recalled that boys were taken out of the school by “higher up people” known as “the Friends of QV”.
+>
+>He said: “Cars would appear and take the boys away. There were always little rumours flying about… There was mention of boys being taken out for drinks and things like that… Looking back now there was something going on that felt kind of not right.”
+>
+>His written evidence goes on to suggest that Thomas Hamilton was one of the men who took the boys out on “various trips to do different things”.
+>
+>He said: “One of the people who was around the school a lot was [redacted]… He was in the school all the time.”
+>
+>Again, it is understood that the redacted name is that of Thomas Hamilton.
+>
+>Alex (not his real name) waived his anonymity and spoke about his ordeal at QVS in an interview with the Sunday Post in December 2020.
+
+=============================================================================================================================
+
+[Stoneman Douglas High School shooting](https://en.wikipedia.org/wiki/Stoneman_Douglas_High_School_shooting)\
+Parkland, Florida\
+February 14, 2018\
+17 killed, 17 wounded
+
+Perpetrator(s):\
+**Nikolas Jacob Cruz, 19**\
+United States Junior Reserve Officers' Training Corps (JROTC); United States Army (USA) foster-father (James Snead)
+
+Source(s):
+1. [Stoneman Douglas High School shooting - Perpetrator](https://en.wikipedia.org/wiki/Stoneman_Douglas_High_School_shooting#Perpetrator)
+>Cruz was a member of the JROTC and had received multiple awards "including academic achievement for maintaining an A grade in JROTC and Bs in other subjects," according to CNN.[90] He was also a member of his school's varsity air rifle team.[90][91]
+
+2. [Nikolas Cruz: 'We had this monster living under our roof and we didn’t know.'](https://www.sun-sentinel.com/local/broward/parkland/florida-school-shooting/fl-school-shooting-family-helped-nikolas-cruz-20180217-story.html)
+>Nikolas Cruz was immature, quirky and depressed when James and Kimberly Snead took him into their Parkland home. But he was pleasant and seemed to be growing happier, they said.\
+>[...]\
+>James, 48, is a decorated army veteran and a military intelligence analyst who served stints in the Middle East between 1988 and 1996. Kimberly, 49, is a neonatal intensive care nurse who cares for premature and ill babies.
+
+=============================================================================================================================
+
+[Hungerford massacre](https://en.wikipedia.org/wiki/Hungerford_massacre)\
+Hungerford, England\
+August 19, 1987\
+17 killed (including 1 perpetrator), 15+ wounded
+
+Perpetrator(s):\
+**Michael Robert Ryan, 27**\
+British Armed Forces aspirant; British Secret Intelligence Service (MI6) / Government contractor associate (Mick Ranger - Imperial Defence Services)
+
+Source(s):
+1. [Scottish Inquiry's Focus: Why Strict Gun Law Failed](https://www.nytimes.com/1996/03/18/world/scottish-inquiry-s-focus-why-strict-gun-law-failed.html)
+>Michael Ryan, a 27-year-old obsessed with guns and military paraphernalia[.]
+
+2. [Exposed: global dealer in death](https://www.theguardian.com/politics/2003/apr/27/ukguns.armstrade)
+>Mick Ranger sold the gun used in the Hungerford massacre. Now he is selling missiles, machine guns and rifles almost anywhere in the world[.]
+>
+>Anybody passing Frog Hall farm in the pretty Essex village of Takeley would not give it a second glance. But an Observer investigation can reveal that the white farmhouse is the headquarters of an international business that sells weapons in some of the most volatile trouble spots in the world.
+>
+>It is the base of Mick Ranger, an arms dealer who sold Michael Ryan the Chinese-made Kalashnikov AK47 rifle that he used in 1987 to kill 16 people in Hungerford.
+>
+>Ranger, now 56, has kept a low profile since that massacre. However, he runs a lucrative arms brokerage with operations in Bulgaria, Cyprus, Nigeria, Australia, South Africa and Vietnam.
+>
+>The website of his firm, Imperial Defence Services, boasts: 'Our business is truly global, with no geographical limitations... with the sole exception of countries under United Nations embargo.
+>
+>'Apart from countless transactions involving small arms, we have completed transactions for surface-to-air missiles, anti-tank weapons, missile warhead fuses, grenades and heavy machine guns.'
+>
+>Ranger's website claims he sells grenade-launchers for £450 and a collection of rifles from £195 to a £20,000 General Electric mini-gun.
+>
+>A reporter claiming he acted for a security company on the Iraqi border in Syria asked Ranger last February whether he could supply AK47s and land mines to protect an oilfield. The reporter made it clear the weapons might be used in Iraq.
+>
+>Despite the sensitivity of the Middle East situation at the time, Ranger confirmed in writing that he was happy to supply 200 rifles at $275 (£173) each through his Bulgarian office, but not the mines as the 'penalties are very high'. and he would not agree to any deal where Iraq was mentioned in official documents.
+>
+>Ranger wrote: 'There was actually very recently a scandle [sic] in Bulgaria where kit destined for Syria was in fact found to be going to Iraq, so the Bulgaria [sic] government will require very conclusive wording on the EUC [end-user certificate] that the guns being supplied will stay in Syria and will only be used by people so authorised by the Syrian government.'
+>
+>Asked later in a phone call about getting an Iraqi import licence, he replied: 'I don't want to know anything about Iraq. I told you before, do not mention the word Iraq to me. There's a 25-year jail sentence for me. The UN embargo on Iraq is clear. Go and read it on the web.'
+>
+>Ranger told The Observer from Bulgaria last week that he believed this deal was for a peacekeeping operation in Syria which had British government approval. He stressed that he always acted within the law and would never breach UN sanctions.
+>
+>The Observer has also uncovered his involvement in a potential arms deal in Cambodia, which is still awash with guns after the civil war that ended five years ago. Last July Ranger approached the Cambodian authorities trying to buy 150,000 surplus rifle magazines. He offered to exchange them for Land Rovers. The Cambodian government refused to sanction the deal unless it was approved by the European Union.
+>
+>The EU, which has set up an office in the capital, Phnom Penh, to help the government control the spread of small arms, refused to approve the deal. It believed that such a transaction would involve Cambodia in international arms trading.
+>
+>According to an EU source, Ranger was so furious about the decision that he stormed out of talks with officials.
+>
+>The arms broker insists he was operating with the 'blessing of British officials' in Phnom Penh and that he had all the correct export licences. Ranger said he had a client who was interested in buying the rifle magazines, but refused to reveal who this was.
+>
+>There is no suggestion that Ranger has acted illegally in any of his arms deals. Indeed, that is what concerns human rights groups such as Oxfam and Saferworld. They are alarmed that British arms brokers can wander the globe trading weapons without proper scrutiny from the British authorities. They claim that Labour has broken an election pledge to clamp down on such deals.
+>
+>Paul Eavis, director of Saferworld, called on the Government to stop British-based brokers like Ranger 'getting round the law by operating from overseas'.
+>
+>The Government is consulting on changes to the Export Control Act, which includes proposals to control the activities of UK arms brokers by requiring them to be issued with a new 'control order' for each overseas deal. However, campaign groups believe these still leave open significant loopholes.
+>
+>An order will be needed when any part of a transaction takes place in the UK. The Government has not, however, said exactly what this will mean in practice.
+>
+>It is unclear whether the orders would cover deals such as the one in which Ranger was willing to sell arms to Syria through his Bulgarian company.
+>
+>The broker insists he sells only to companies or governments which have proper authority, and that he obeys the law and the UN.
+>
+>'If end-user statements are correct and authenticated by exporting governments, as one would hope they would, then it is a totally legitimate transaction... And that's the only kind of business I'm involved in,' Ranger said. Asked if he was concerned that the equipment he sells might be used for unsavoury purposes, he replied: 'It is true I unwittingly supplied the gun Michael Ryan used. But I didn't supply the licence for him to have it. That was the police. It is always somebody beyond me that makes the decision.'
+>
+>Ranger's website says his company is 'licensed [by the UK Government] to deal in military weapons of all types and to manufacture pistols and fully automatic weapons.
+>
+>'All currently required UK licences are held by this company in connection with arms dealing... [including] an open international import licence that allows us to import into the UK without further reference to government agencies an unlimited quantity of small arms and ammunition of conventional types, and an open licence for large quantities of automatic weapons.'
+>
+>Brendan Cox, an Oxfam spokesman, said: 'Arms brokers are still operating with near impunity and making massive profits at the expense of the 500,000 people killed every year by firearms. It's time the Government made good its promises to crack down on this deadly trade.'
+
+=============================================================================================================================
+
+[Beltway sniper attacks](https://en.wikipedia.org/wiki/D.C._sniper_attacks)\
+Maryland / Virginia / Washington, DC / Arizona\
+February 16 - October 2, 2002\
+17 killed, 10 wounded
+
+Perpetrator(s):\
+**John Allen Muhammad, 41 / Lee Boyd Malvo, 17**\
+Louisiana Army National Guard; United States Army (USA)
+
+Source(s):
+1. [John Allen Muhammad - Military service](https://en.wikipedia.org/wiki/John_Allen_Muhammad#Military_service)
+>In August 1978, Muhammad enlisted in the Louisiana Army National Guard at Baton Rouge as a combat engineer. He transferred to the Regular Army on November 6, 1985, and was trained as a mechanic, truck driver and specialist metalworker. He qualified with the Army's standard rifle, the M16, earning the Expert Rifleman's Badge. This is the Army's highest of three levels of basic rifle marksmanship for a soldier.[14]
+>
+>Muhammad's first tour was with the 15th Engineer Battalion at Fort Lewis in 1985. In 1991, he served in the Gulf War with a company that dismantled Iraqi chemical warfare rockets, service for which he received the Southwest Asia Service Medal, the Kuwait Liberation Medal (Saudi Arabia) and the Kuwait Liberation Medal (Kuwait).[15][16] In 1992, he was at Fort Ord, California, with the 13th Engineers and in 1993 was back at Fort Lewis with the 14th Engineer Battalion.[17]
+>
+>Muhammad was honorably discharged from the Army with the rank of sergeant on April 24, 1994, after 16 years of service. He received the following awards: Army Service Ribbon, National Defense Service Medal, Overseas Ribbon, Noncommissioned Officers Professional Development Ribbon and Army Achievement Medal.[18]
+
+=============================================================================================================================
+
+[Erfurt school massacre](https://en.wikipedia.org/wiki/Erfurt_school_massacre)\
+Erfurt, Germany\
+April 26, 2002\
+17 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Robert Steinhäuser, 19**\
+United States Department of Defense (DOD) / Central Intelligence Agency (CIA) / German Federal Intelligence Service (BND) contractor father (name unknown - Siemens AG)
+
+Source(s):
+1. [How teacher stopped the school slaughter: A look at the horror and heroism in Erfurt school massacre](https://www.theguardian.com/world/2002/apr/28/schools.education)
+>Frau Steinhäuser, who lived with her 19-year-old son Robert on the top floor, worked for a local skin clinic. Her estranged husband heads a department of the giant electronics concern, Siemens.
+
+2. [Siemens' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Siemens+Department+of+Defense)
+
+3. [Siemens' Connections to the United States Central Intelligence Agency and German Federal Intelligence Service - Google](https://www.google.com/search?q=Operation+Rubicon+Siemens)
+
+=============================================================================================================================
