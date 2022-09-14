@@ -442,7 +442,7 @@ April 21, 2019\
 277 killed (including 8 perpetrators), 500+ wounded
 
 Perpetrator(s):
-**Zahran Hashim / Alawdeen Ahmed Muad / Atchchi Muhammadu Muhammadu Hasthun / Mohamed Nassar Mohamed Asad	/ Mohamed Azam Mohamed Mubarak / Mohamed Cassim Mohamed Zahran / Mohamed Ibrahim Inshaf Ahamed / Mohamed Ibrahim Ilham Ahamed / Abdul Lathif Jameel Mohammed / Fathima Ilham**\
+**Zahran Hashim**\
 Saudi Arabian General Intelligence Directorate (GID) associate (Mohamed Aliyar)
 
 Source(s):
@@ -3087,5 +3087,226 @@ Source(s):
 2. [Siemens' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Siemens+Department+of+Defense)
 
 3. [Siemens' Connections to the United States Central Intelligence Agency and German Federal Intelligence Service - Google](https://www.google.com/search?q=Operation+Rubicon+Siemens)
+
+=============================================================================================================================
+
+[2015 San Bernardino attack](https://en.wikipedia.org/wiki/2015_San_Bernardino_attack)\
+San Bernardino, California\
+December 2, 2015\
+16 killed (including 2 perpetrators), 24 wounded\
+
+Perpetrator(s):\
+**Syed Rizwan Farook / Tashfeen Malik**\
+San Bernardino County Department of Public Health; United States Navy (USN) brother (Syed Raheel Farook)
+
+Source(s):
+1. [Rizwan Farook and Tashfeen Malik - Personal life](https://en.wikipedia.org/wiki/Rizwan_Farook_and_Tashfeen_Malik#Personal_life)
+>According to sources, Farook had a "troubled childhood"[15] and grew up in an abusive home in which his father was often violent towards his mother.[16][17][18] Farook grew up in Riverside, California, and attended La Sierra High School, graduating in 2004, one year early.[19][20] He attended California State University, San Bernardino, and received a bachelor's degree in environmental health in either 2009 or 2010.[19][20][21] He was a student for one semester in 2014 at California State University, Fullerton in their graduate program for environmental engineering, but never completed the program.[19]
+>
+>Farook had a profile on the dating website iMilap.com, in which he listed backyard target practice as a hobby. A lawyer for Farook's family also said that he would go to firing ranges by himself.[22]
+>
+>Farook worked as a food inspector for the San Bernardino County Department of Public Health for five years before the shooting.[23][24][25] From July to December 2010, he was a seasonal employee for the county. He was hired as an environmental health specialist trainee on January 28, 2012, and became a permanent employee on February 8, 2014.[19] Coworkers described Farook as quiet and polite, and said that he held no obvious grudges.[26]
+
+2. [2015 San Bernardino attack - Raheel Farook, Tatiana Farook, and Mariya Chernykh](https://en.wikipedia.org/wiki/2015_San_Bernardino_attack#Raheel_Farook,_Tatiana_Farook,_and_Mariya_Chernykh)
+>Syed Raheel Farook, the brother of gunman Rizwan Farook [...] served in the U.S. Navy in the Iraq War from 2003 to 2007, and was awarded two medals for service during the War on Terror. He was described by friends and neighbors as sociable and extroverted compared with his brother Rizwan. In 2011, he married Tatiana, a Russian citizen who immigrated to the U.S. in 2003 from her home village of Vysokiy, located 400 miles (640 km) from Moscow.[158][184][185][186]
+
+=============================================================================================================================
+
+[1996 Timika shooting](https://en.wikipedia.org/wiki/1996_Timika_shooting_incident)\
+Timika, Indonesia\
+April 15, 1996\
+16 killed, 11 - 13 wounded\
+
+Perpetrator(s):\
+**Sanurip**\
+Indonesian Army Special Forces Command (Kopassus)
+
+Source(s):
+1. [1996 Timika shooting - Wikipedia](https://en.wikipedia.org/wiki/1996_Timika_shooting)
+>The 1996 Timika shooting incident (Indonesian: Insiden Penembakan Timika 1996) was a mass shooting that took place on 15 April 1996 at the Mozes Kilangin Airport, Timika, Irian Jaya (currently Papua), Indonesia, by a member of Kopassus Sec. Lt. Sanurip. Sixteen people were killed and eleven others were injured.
+
+=============================================================================================================================
+
+[Albertville-Realschule shooting](https://en.wikipedia.org/wiki/Winnenden_school_shooting)\
+Winnenden, Germany\
+March 11, 2009\
+16 killed (including 1 perpetrator), 9 wounded
+
+Perpetrator(s):\
+**Tim Kretschmer, 17**\
+German Bundeswehr; German Government psychiatric associates (Klinikum am Weissenhof)
+
+Source(s):
+1. [Germany gunman 'had depression'](http://news.bbc.co.uk/2/hi/europe/7941426.stm)
+>On Thursday, Stuttgart district prosecutor Siegfried Mahler revealed that the teenager was supposed to undergo treatment for depression there.
+>
+>He said Kretschmer had attended five sessions between April and September last year at a clinic in the town of Weissenhoff, and was expected to continue outpatient therapy in Winnenden, but broke off the treatment.
+>
+>"At the physical examination for the army, he provided proof of an illness that required a psychiatric treatment," Mr Mahler told a news conference.
+>
+>Under German law, all men are obliged to serve nine months either in the military, which they can refuse, or do civilian service.
+
+2. [Before the bloody act, he played a killer game on the computer (Translated from the German)](https://www-bild-de.translate.goog/news/2009/vor-der-bluttat-zockte-er-killerspiel-eltern-dementieren-psychotherapie-7671218.bild.html?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>Tim was "several times from April 2008 to September 2008 at the Klinikum am Weissenhof in Weinsberg," said the Stuttgart public prosecutor's office and the Waiblingen police on Saturday. They reacted expressly to a preliminary report by the magazine "Focus". In it, the parents' lawyer said that, according to the family, the gunman had never received psychotherapeutic treatment. He was therefore not treated in any clinic.
+>
+>The director of the Klinikum Weissenhof in Weinsberg, Matthias Michel, also explained in various media reports: "The later perpetrator was treated by us, in 2008 on an outpatient basis. That means he had a total of five appointments here with us, depending on his age in the clinic for child and adolescent psychiatry and in the outpatient clinic there.”
+
+3. [Klinikum am Weissenhof - The clinic today](https://en.wikipedia.org/wiki/Klinikum_am_Weissenhof#The_clinic_today)
+>As a federal state operated hospital the psychiatry was called Psychiatrisches Landeskrankenhaus Weinsberg since 1954. Due to a legal reform in 1996 the hospital became a public agency and changed its name to Zentrum für Psychiatrie Weinsberg (psychiatric centre Weinsberg). In 2002 the name was changed again, it is now called Klinikum am Weissenhof (Clinic at the Weissenhof), science the hospital no longer cared for psychiatric patients only. The hospital is a legally independent member of the group ZfP-Gruppe Baden-Württemberg.
+
+=============================================================================================================================
+
+[Dover and Russellville murder spree](https://en.wikipedia.org/wiki/Ronald_Gene_Simmons#Murder_spree)\
+Dover / Russellville, Arkansas\
+December 22 - 28, 1987\
+16 killed, 4 wounded
+
+Perpetrator(s):\
+**Ronald Gene Simmons, Sr., 47**\
+United States Navy (USN); United States Air Force (USAF); United States Army (USA) step-father (William D. Griffen)
+
+Source(s):
+1. [Ronald Gene Simmons - Early life and military career](https://en.wikipedia.org/wiki/Ronald_Gene_Simmons#Early_life_and_military_career)
+>Ronald Gene Simmons was born on July 15, 1940, in Chicago, Illinois, to Loretta and William Simmons. On January 31, 1943, William Simmons died of a stroke and within a year, Simmons's mother had remarried, this time to William D. Griffen, a civil engineer for the U.S. Army Corps of Engineers. In 1946, the corps moved Griffen to Little Rock, Arkansas, the first of several transfers that would take the family across central Arkansas over the next decade.[2]
+>
+>On September 15, 1957, Simmons dropped out of school and joined the U.S. Navy, and was first stationed at Naval Station Bremerton in Washington, where he met Bersabe Rebecca "Becky" Ulibarri, whom he married in New Mexico on July 9, 1960. Over the next 18 years, the couple had seven children. In 1963, Simmons left the navy, and approximately two years later joined the U.S. Air Force. During his 20-year military career, Simmons was awarded a Bronze Star Medal, the Republic of Vietnam Gallantry Cross for his service as an airman, and the Airforce Ribbon for Excellent Marksmanship. Simmons retired from the air force and military service on November 30, 1979, with the rank of master sergeant.
+>
+>On April 3, 1981, Simmons was being investigated by the Cloudcroft, New Mexico Department of Human Services for allegations that he had fathered a child with his 17-year-old daughter, Sheila, whom he had been sexually abusing.[1] Fearing arrest, Simmons fled New Mexico in late 1981 with his family, first to Ward, Arkansas, in Lonoke County, and then to Pope County near Dover, Arkansas in the summer of 1983. The family took up residence on a 13-acre tract of land 6.5 miles north of Dover that would become known as Mockingbird Hill. The residence was constructed of two older-model mobile homes joined to form one large home, neither of which had a telephone nor indoor plumbing, and was surrounded by a makeshift privacy fence which was as high as 10-feet tall in some places.[1]
+>
+>Simmons worked a string of low-paying jobs in the nearby town of Russellville, Arkansas. He quit a position as an accounts receivable clerk at Woodline Motor Freight after numerous reports of inappropriate sexual advances and went to work at a Sinclair Mini Mart for approximately a year and a half before quitting on December 18, 1987.
+
+=============================================================================================================================
+
+[Toulon shooting](https://en.wikipedia.org/wiki/%C3%89ric_Borel)\
+Toulon, France\
+September 23 - 24, 1995\
+16 killed (including 1 perpetrator), 4 wounded
+
+Perpetrator(s):\
+**Éric Borel, 16**\
+French Armed Forces aspirant; French Armed Forces parents / grandfather (Jacques Borel / Marie-Jeanne Parenti / name unknown); French Army stepbrother (Franck Bichet)
+
+Source(s):
+1. [Éric Borel - Childhood](https://en.wikipedia.org/wiki/%C3%89ric_Borel#Childhood)
+>Éric Borel was the son of Marie-Jeanne Parenti and Jacques Borel, who were both working in the military at the time of his birth. However, their liaison was rather short, and after they separated, Borel was sent to Jacques' parents in Limoges, where he stayed until he was five. When his mother, who had visited Borel only occasionally up to that time, began to live with Yves Bichet, she again took care of her son and brought him to their home in Solliès-Pont.[3][4]
+>
+>Borel's mother was an authoritarian and – at least outwardly – a devoutly religious member of the Secours catholique.[5] She mistreated and beat her son, who she believed to be a "child of sin". Borel never developed a close relationship with his mother's new companion, with whom he was said to have frequent rows and who reportedly also beat him on occasions.[6] However, Franck and Jean-Luc Bichet, Yves Bichet's sons, stated that their father had always been nice to Borel, even building him a shack for his chickens and other animals he took home.[4]
+>
+>When Borel broke his arm at the age of eight, he preferred to run away and hide rather than go home; he was eventually found shivering from pain. In this type of situation, Borel, who was known as a quiet and taciturn boy who kept to himself, grew up and developed an increasing admiration for the military. He told lies about the heroic deeds of his father during the Indochina War and adored his stepbrother Franck Bichet, who served in the army. He had an affection for weapons and used to shoot sparrows with an air gun.[4]
+
+2. [Éric Borel - Later years and motive](https://en.wikipedia.org/wiki/%C3%89ric_Borel#Later_years_and_motive)
+>Until his death, Borel attended the lycée professionnel Georges-Cisson in Toulon, where he studied electromechanics and did well academically. He was said to be a disciplined and quiet student. However, in his last year at school, there was a radical change in Borel's behavior. He skipped classes without explanation and became unaffable. He also regularly said that he could not bear it anymore at home, that he had had enough of doing housework and being called names, and often stated his wish to join the military like his father and grandfather. Apparently, the week prior to the shooting, Borel also told one of his classmates that he would kill himself, but not before killing two or three people.[3][6] Borel's only known friend at school was 17-year-old Alan Guillemette, an outgoing and popular classmate.[6]
+
+=============================================================================================================================
+
+[Kandahar massacre](https://en.wikipedia.org/wiki/Kandahar_massacre)\
+Kandahar, Afghanistan\
+March 11, 2012\
+16 killed
+
+Perpetrator(s):\
+**Robert Bales, 39**\
+United States Army (USA)
+
+Source(s):
+1. [Robert Bales - Wikipedia](https://en.wikipedia.org/wiki/Robert_Bales)
+>Robert Bales (born June 30, 1973) is a former United States Army sniper and mass murderer who killed 16 Afghan civilians in Panjwayi District, Kandahar Province, Afghanistan, on March 11, 2012 – an event known as the Kandahar massacre.
+>
+>In order to avoid the death penalty, he pleaded guilty to 16 counts of murder, six counts of attempted murder, and seven counts of assault in a plea deal.[1] On August 23, 2013, he was sentenced to life in prison without the possibility of parole.[2] Before sentencing, Bales expressed his regret by referring to the murders as "an act of cowardice".[3] While Bales has exhausted all military appeals, his attorney announced in 2019 that he would be seeking a new trial in civilian court due to possible side effects of mefloquine, an anti-malaria drug Bales claims to have been taking at the time of the shooting.[3]
+
+=============================================================================================================================
+
+[Columbine High School massacre](https://en.wikipedia.org/wiki/Columbine_High_School_massacre)\
+Columbine, Colorado\
+April 20, 1999\
+15 killed (including 2 perpetrators), 24 wounded
+
+Perpetrator(s):\
+**Eric David Harris, 18**\
+United States Marine Corps (USMC) applicant; United States Air Force (USAF) / Department of Defense (DOD) contractor father (Wayne Harris - Boeing / Flight Safety Services); United States Army (USA) brother (Kevin Harris); United States Armed Forces maternal grandfather (Richard Pool - branch unknown)
+
+**Dylan Bennet Klebold, 17**\
+United States Armed Forces maternal great-grandfather (Leo Yassenoff)
+
+Source(s):
+1. [Eric Harris and Dylan Klebold - Journals and investigation](https://en.wikipedia.org/wiki/Eric_Harris_and_Dylan_Klebold#Journals_and_investigation)
+>Harris began keeping a journal in April 1998, a short time after the pair was convicted of breaking into a van, for which each received ten months of juvenile intervention counseling and community service in January 1998. They began to formulate plans then, as reflected in their journals.[97]
+>
+>Harris wanted to join the United States Marine Corps, but his application was rejected shortly before the shootings because he was taking the drug fluvoxamine, an SSRI antidepressant, which he was required to take as part of court-ordered anger management therapy. Harris did not state in his application that he was taking any medications. According to the recruiting officer, Harris did not know about this rejection. Though some friends of Harris suggested that he had stopped taking the drug beforehand,[111] the autopsy reports showed low therapeutic or normal (not toxic or lethal) blood-levels of fluvoxamine in his system, which was around 0.0031–0.0087 mg/ml,[112] at the time of death.[113] After the shootings, opponents of contemporary psychiatry like Peter Breggin[114] claimed that the psychiatric medications prescribed to Harris after his conviction may have exacerbated his aggressiveness.[115]
+
+2. [Columbine - Tragedy and Recovery](https://extras.denverpost.com/news/shot0502b.htm)
+>Eric David Harris was born on April 9, 1981, in Wichita, Kan., where his dad was working at the Boeing Military Airplane Co. Wayne Harris already was an officer and a heavily decorated pilot lauded for a cool hand during airborne refueling missions.
+>
+In 1983, Wayne and Kathy and their sons, Kevin, then 5, and Eric, moved to Beavercreek, Ohio, where Harris flew for the 4952nd Test Squadron at Wright Air Force Base.
+>
+>Eric attended first and second grade at Valley Elementary School in Beavercreek and his father continued collecting medals. Harris' flying "skill and leadership" helped in the testing of strategic missile and space systems, Air Force records show. He earned the meritorious service medal, four oak leaf clusters, two bronze service stars and an award for small arms marksmanship.
+>
+>His youngest boy would aspire to be a military man too, but would also develop a twisted love for combat gore and battlefield violence.
+>
+>In 1989, Wayne Harris, still flying KC-135 refueling tankers, was transferred to the Wurtsmith Air Force base in Oscoda, Mich., a small city near the shore of Lake Huron. Instead of living on base, he bought a two-story, Cape Cod-style home in a comfortable subdivision next to Cedar Lake.
+>
+>"I just remember they wanted the children to have a normal, off-base relationship in a normal community," says the Rev. Bill Stone, a pastor who lived across the street. "They were just great neighbors - friendly, outgoing, caring."
+>
+>Wayne Harris, a Scoutmaster and baseball coach, got elected to the nine-member Lake Shores Property Owners Association. Kathy Harris was a stay-at-home mom. The family lived on a wooded lot on a street where deer often graze in the flower gardens and kids splash around at the neighborhood beach club. After work, Wayne Harris shot baskets with his two boys. Eric Harris attended third and fourth grades at Cedar Lake Elementary School. But their stay ended when Wurtsmith was shut down at the end of 1991 and Wayne Harris was transferred to the air base in Plattsburgh, N.Y.
+>
+>He served two years with the 380th Operations Support Squadron at the upstate base. While there, Eric Harris attended Stafford Middle School for fifth and sixth grades. As a kid from the base, his friends were a diverse bunch and included some of the same minorities he allegedly would target as a teenager.
+>
+>"His best friends on the base were ... an Asian and ... a black kid," said 18-year-old Mike Condo, who played Little League baseball with Harris and joined him on a whale-watching trip to Boston around 1993.
+>
+>Harris is remembered in Plattsburgh as a "normal" 12-year-old, though so timid he struggled to communicate even on the ball field. At the plate, he rarely swung at pitches, preferring to draw walks, a coach says.
+>
+>"(Eric) was the shyest out of everybody," says Brenden LaPier, a former teammate. "Eric was kind of the total opposite of his brother. I don't really think he wanted to play baseball all that much. It was more of a parent thing."
+>
+>In the fall of 1993, military cutbacks were about to hit Plattsburgh, so Major Wayne Harris decided to retire after 20 years of service. He moved his family to Littleton, renting a home in the 7000 block of West Elmhurst Avenue.
+>
+>It's not clear why they chose Colorado, but it ended a lifetime of military moves for Eric Harris. In his two decades in the Air Force, Wayne Harris held 11 different positions at six different bases from Oklahoma to New York. Eric went to five different schools.
+>
+>Now a civilian, Wayne Harris took a job at Flight Safety in Englewood, where he trained pilots to fly large refueling aircraft. Kathy Harris worked part time at a catering company on West Hampden Avenue.
+
+3. [Fatal Friendship: How two suburban boys traded baseball and bowling for murder and madness](https://pdfslide.us/documents/fatal-friendship.html?page=1)
+>Wayne Harris met Katherine Ann Pool in the days of buzz cuts and beehives. She was a Colorado native, too. George Washington High School, Class of 1967.
+>
+>Her father, Richard Pool, was retired military, and ran a hardware store on Holly Street in southeast Denver. The Pools still live in the house where Kathy and her two sisters grew up.
+>
+>Wayne and Kathy had a church wedding at First Presbyterian in Englewood on April 17, 1970.
+>
+>Three years later, Wayne joined the Air Force and it was off to Oklahoma for pilot training.
+>
+>Harris and his young wife crisscrossed the country -- Washington, Kansas, Ohio. Their first child, Kevin, was born in 1978 in Washington. Eric David came along three years later while the family was stationed in Wichita, Kan.
+>
+>Kathy Harris stayed home when Kevin and Eric were young, busying herself with military-wives luncheons, volunteer projects and school functions.
+>
+>Former friends in military towns describe Eric as a good kid. Smart. And cute, always cute.
+>
+>By the time Wayne Harris retired from the Air Force, he'd risen to the rank of major and tackled some prestigious assignments as a test pilot and flight instructor. He earned a Meritorious Service Medal for his work on B-1 bombers.
+>
+>Then, like many military bases in the early 1990s, Plattsburgh Air Force Base in New York closed.
+>
+>In 1993, after 20 years of military life, Wayne and Kathy returned to Colorado.
+>
+>Wayne got a job at Flight Safety Services, an Englewood company that makes military flight simulators. Eric's friends said his dad worked a lot. Kathy was hired by Everything Goes, an Englewood caterer.
+
+4. [Eric Harris’ Parents & Brother, Wayne, Kathy & Kevin Harris: 5 Fast Facts You Need to Know](https://heavy.com/news/2019/04/eric-harris-parents-brother-wayne-kathy-kevin-harris/)
+>Wayne Harris was an Air Force pilot who flew transport and refueling tanker aircraft. The family moved every few years: Ohio, Kansas, Michigan, and New York among the stops.
+>
+>Major Harris was a decorated airman earning the meritorious service medal, bronze service stars and oak leaf clusters.
+>
+>When Eric was born in 1981, Wayne Harris worked at Boeing in Wichita, which closed in 2013.\
+>[...]\
+>Wayne and Kathy Harris are also the parents of Eric’s older brother, Kevin. Three years older than Eric, when the family arrived in Colorado, Kevin enrolled at Columbine. There he played football. After graduating, he attended studied kinesiology at the University of Colorado, After graduating from college, he followed in his father’s footsteps and joined the military, albeit the Army and while enlisted, got his master’s degree.
+
+5. [Colorado Killer’s Great-grandfather Was Jewish Philanthropist in Ohio](https://www.jta.org/archive/colorado-killers-great-grandfather-was-jewish-philanthropist-in-ohio-2)
+>One of the Littleton, Colo., gunmen who traded Nazi salutes with fellow “Trenchcoat Mafia” members is the great-grandson of a prominent Jewish philanthropist in Columbus, Ohio.
+>
+>The Jewish Community Center in Columbus is named after Leo Yassenoff, the great-grandfather of Dylan Klebold.
+>
+>While Klebold was raised as a Lutheran, he reportedly read the Four Questions at a Passover seder his family held earlier this month.
+>
+>Klebold’s mother was raised in a Jewish home, family members have said.\
+>[...]\
+>Classmates at Columbine High School have said members of the group had been obsessed with World War II-era Germany and had spoken openly about April 20 being Adolf Hitler’s birthday.
+
+6. [Leo Yassenoff, 1930 - Columbus Neighborhoods](https://columbusneighborhoods.org/photograph/leo-yassenoff-1930/)
+>Leo Yassenoff moved to Ohio in 1893 and to Columbus in 1912. He graduated from OSU in 1916, served with the 116th Aerial Squadron in WWI, and co-founded the F & Y Construction Company in December, 1919. Among other projects Yasenoff’s company built the Riverside, Eastside and CCC Auto Theaters. He established a foundation and the Columbus Jewish Center, 1125 College Avenue, opened January 6, 1983 and was dedicated in his honor October 2, 1983.
 
 =============================================================================================================================
