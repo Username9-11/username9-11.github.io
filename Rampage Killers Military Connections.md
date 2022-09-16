@@ -3310,3 +3310,256 @@ In 1983, Wayne and Kathy and their sons, Kevin, then 5, and Eric, moved to Beave
 >Leo Yassenoff moved to Ohio in 1893 and to Columbus in 1912. He graduated from OSU in 1916, served with the 116th Aerial Squadron in WWI, and co-founded the F & Y Construction Company in December, 1919. Among other projects Yasenoff’s company built the Riverside, Eastside and CCC Auto Theaters. He established a foundation and the Columbus Jewish Center, 1125 College Avenue, opened January 6, 1983 and was dedicated in his honor October 2, 1983.
 
 =============================================================================================================================
+
+[Zug massacre](https://en.wikipedia.org/wiki/Zug_massacre)\
+Zug, Switzerland\
+September 27, 2001\
+15 killed (including 1 perpetrator), 18 wounded
+
+Perpetrator(s):\
+**Friedrich Leibacher, 57**\
+Swiss Armed Forces
+
+Source(s):
+1. [Fifteen dead after shootings in Zug parliament](https://www.swissinfo.ch/eng/fifteen-dead-after-shootings-in-zug-parliament/2275034)
+>They said the assailant used a Swiss-made 5.6mm SIG "Sturmgewehr 90", an assault rifle used by the Swiss army. He also carried a pistol with several magazines of ammunition.
+>
+>Police have also seized a car with Swiss licence plates which was found near the parliament building, which contained a number of weapons.
+>
+>Authorities say it is probable that Leibacher had served in the country's militia army when he was younger.
+
+=============================================================================================================================
+
+[École Polytechnique massacre](https://en.wikipedia.org/wiki/%C3%89cole_Polytechnique_massacre)\
+Montreal, Canada\
+December 6, 1989\
+15 killed (including 1 perpetrator), 14 wounded
+
+Perpetrator(s):\
+**Marc Lépine, 25**\
+Canadian Armed Forces (CAF) applicant; Algerian Armed Forces father; Algerian Armed Forces uncle
+
+Source(s):
+1. [Marc Lépine - Childhood](https://en.wikipedia.org/wiki/Marc_L%C3%A9pine#Childhood)
+>Marc Lépine was born Gamil Rodrigue Liass Gharbi on October 26, 1964, in Montreal, Quebec, the son of Algerian immigrant Rachid Liass Gharbi and Canadian nurse Monique Lépine.[3][4] Gamil's sister, Nadia, was born in 1967.[5] Rachid was a mutual funds salesman and was travelling in the Caribbean at the time of his son's birth.[6] During his absence, Monique discovered evidence that her husband had been having an affair.[7] Rachid was a non-practising Muslim, and Monique a former Catholic nun who had rejected organized religion after she left the convent.[8] Their son was baptized a Catholic as an infant, but received no religious instruction during his childhood;[4][9] his mother described her son as "a confirmed atheist all his life".[10]
+>
+>Instability and violence marked the family: it moved frequently, and much of Lépine's early childhood was spent in Costa Rica and Puerto Rico, where his father was working for a Swiss mutual funds company.[4][11] The family returned to Montreal permanently in 1968, shortly before a stock market crash led to the loss of much of the family's assets.[4] Rachid was an authoritarian, possessive and jealous man, frequently violent towards his wife and his children.[12] He had contempt for women and believed that they were intended only to serve men.[13] He required his wife to act as his personal secretary, slapping her if she made any errors in typing, and forcing her to retype documents in spite of the cries of their toddler.[11][14] He was also neglectful and abusive towards his children, particularly his son,[10] and discouraged any tenderness, as he considered it spoiling.[13][15][16]
+>
+>In 1970, following an incident in which Rachid struck Gamil so hard that the marks on his face were visible a week later, Monique decided to leave. The legal separation was finalized in 1971, and the divorce in 1976.[17][18] Following the separation, Gamil lived with his mother and younger sister Nadia; soon after, their home and possessions were seized when Rachid defaulted on mortgage payments. Gamil was afraid of his father, and at first saw him on weekly supervised visits.[17] The visits ended quickly, as Rachid ceased contact with his children soon after the separation.[4][19] Gamil never again saw his father, and in the future refused to discuss him with others.[20]
+>
+>Rachid stopped making child support payments after paying them twice, and to make ends meet, Monique returned to nursing.[21] She subsequently started taking further courses to advance her career. During this time the children lived with other families during the week, seeing their mother only on weekends.[4][22] Concerned about her children and parenting skills, she sought help for the family from a psychiatrist at St. Justine's Hospital in 1976; the assessment concluded there was nothing wrong with the shy and withdrawn Gamil, but recommended therapy for his sister Nadia, who was challenging her authority.[23] Nadia died in 1996 at the age of 28 from a drug overdose of cocaine.
+
+2. [Marc Lépine - Adolescence](https://en.wikipedia.org/wiki/Marc_L%C3%A9pine#Adolescence)
+>After the divorce became final in 1976, the children, then aged 12 and 9, returned to live with their mother, who was director of nursing at a Montreal hospital.[24] [...] Taunted as an Arab because of his name, at the age of 14 he legally changed it to "Marc Lépine", citing his hatred of his father as the reason for taking his mother's surname.[4][26] Lépine was uncommunicative and showed little emotion.[1] He suffered from low self-esteem, exacerbated by his chronic acne.[27] Family relations remained difficult; his younger sister Nadia publicly humiliated him about his acne and his lack of girlfriends. He fantasized about her death, and on one occasion made a mock grave for her.[28] He was overjoyed when in 1981 she was placed in a group home because of her delinquent behaviour and drug abuse.[29]
+>
+>Seeking a good male role model for Lépine, his mother arranged for a Big Brother. For two years, the experience proved positive as Lépine, often with his best friend, enjoyed the time with photography and moto-cross motorcycles. However, in 1979, the meetings ceased abruptly when the Big Brother was detained on suspicion of molesting young boys. Both Lépine and his Big Brother denied that any molestation had occurred.[4][30] Lépine owned an air rifle as a teenager, which he used to shoot pigeons near his home with his friend. They also enjoyed designing and building electronic gadgets.[31] Lépine developed an interest in World War II and an admiration of Adolf Hitler,[32] and enjoyed action and horror movies.[33] He also took considerable responsibility at home, including cleaning and doing repairs while his mother worked.[4][34]
+>
+>Lépine applied to join the Canadian Forces as an officer cadet in September 1981 at the age of 17, but was rejected during the interview process. He later told his friend it was because of difficulties accepting authority, and in his suicide letter noted that he had been found to be "anti-social".[18][35] An official statement from the military after the massacre stated that he had been "interviewed, assessed and determined to be unsuitable".[4]
+
+3. [Patterns Among School Shooters: Body-Related Issues and the Military - Aberrant Adult Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Marc Lépine [-] Uncle: Algerian military [-] Father: possibly in Algerian military
+>[...]\
+>Marc Lépine [-] Rejected by the Canadian Army as “unsuitable” or “asocial”[.]
+
+------------------------------------
+
+[1998 Tehran shooting](https://murderpedia.org/male.A/a/aqdam-siavosh.htm)\
+Tehran, Iran\
+November 28, 1998\
+15 killed (including 1 perpetrator), 11 wounded
+
+Perpetrator(s):\
+**Siavosh Rahmani-Aqdam**\
+Islamic Republic of Iran Air Force (IRIAF)
+
+Source(s):
+1. [Siavosh Rahmani Aqdam - Murderpedia](https://murderpedia.org/male.A/a/aqdam-siavosh.htm)
+>An Iranian army deserter stole a gun, hijacked a van and shot to death six people, including three policemen, the official Islamic Republic News Agency reported Saturday.
+>
+>The soldier, identified as Siavosh Rahmani-Aqdam, fled after the shootings on Thursday in southern Tehran, and police have mounted a manhunt, IRNA said
+
+------------------------------------
+
+[Dieppe shootings](https://amok.fandom.com/wiki/Abd_el_Maleck)\
+Dieppe, France\
+June 10 - 11, 1945\
+15 killed, 9 wounded
+
+Perpetrator(s):\
+**Abd el-Maleck**\
+French Army
+
+Source(s):
+1. [Abd el Maleck - Amok Wiki](https://amok.fandom.com/wiki/Abd_el_Maleck)
+>Abd el Maleck was a North African corporal who killed 15 people and wounded nine others in Dieppe, France on June 10 and June 11, 1945.[1][2]
+>
+>On the evening of June 10 Maleck, a member of the 5th Group of North African Rifles[3] which was stationed at the barracks Duquesne, arrived already drunk at the bar "La Grimpette" located at the Avenue Gambetta. There he made advances towards an 18-year-old waitress, but when she rejected him, he became enraged and at around 9:30 p.m. attacked the girl with a sharp weapon, injuring her in the hand and neck.
+
+------------------------------------
+
+[Pashupatinath Temple shooting](https://en.wikipedia.org/wiki/Pashupatinath_Temple_shooting)\
+Mandsaur, India\
+July 23, 1983\
+15 killed (including 1 perpetrator), 9 wounded
+
+Perpetrator(s):\
+**Ramesh Sharma, 28**\
+Mandsaur Police
+
+Source(s):
+1. [Pashupatinath Temple shooting - Wikipedia](https://en.wikipedia.org/wiki/Pashupatinath_Temple_shooting)
+>Ramesh Sharma, a 28-year-old police constable killed 14 people and wounded nine others, before he was shot and killed by police.[1][2][3][4][5]
+
+=============================================================================================================================
+
+[Edmond post office shooting](https://en.wikipedia.org/wiki/Edmond_post_office_shooting)\
+Edmond, Oklahoma\
+August 20, 1986\
+15 killed (including 1 perpetrator), 6 wounded
+
+Perpetrator(s):\
+**Patrick Henry Sherrill, 44**\
+United States Marine Corps (USMC); United States National Guard (USNG); United States Postal Service (USPS)
+
+Source(s):
+1. [Edmond post office shooting - Perpetrator](https://en.wikipedia.org/wiki/Edmond_post_office_shooting#Perpetrator)
+>Patrick Henry Sherrill (November 13, 1941 – August 20, 1986) was born in Watonga, Oklahoma, and had served in the United States Marine Corps.[12] He was considered an expert marksman and was a member of a National Guard pistol team.[1]
+
+=============================================================================================================================
+
+[Pashupatinath Temple shooting](https://en.wikipedia.org/wiki/Pashupatinath_Temple_shooting)\
+Mandsaur, India\
+July 23, 1983\
+15 killed (including 1 perpetrator), 9 wounded
+
+Perpetrator(s):\
+**Ramesh Sharma, 28**
+Mandsaur Police
+
+Source(s):
+1. [Pashupatinath Temple shooting - Wikipedia](https://en.wikipedia.org/wiki/Pashupatinath_Temple_shooting)
+>Ramesh Sharma, a 28-year-old police constable killed 14 people and wounded nine others, before he was shot and killed by police.[1][2][3][4][5]
+
+=============================================================================================================================
+
+[Arqanqergen mass murder](https://en.wikipedia.org/wiki/Arkankergen_mass_murder)\
+Arqanqergen, Kazakhstan\
+May 28, 2012\
+15 killed
+
+Perpetrator(s):\
+**Vladislav Chelakh, 20**
+Border Service of Kazakhstan
+
+Source(s):
+1. [Vladislav CHELAKH - Murderpedia](https://murderpedia.org/male.C/c/chelakh-vladislav.htm)
+>Chelakh, a former border guard, was convicted in December of killing 14 colleagues and a forest ranger at the Gornyi border outpost in May 2012.
+
+=============================================================================================================================
+
+[Tokyo subway sarin attack](https://en.wikipedia.org/wiki/Tokyo_subway_sarin_attack)\
+Tokyo, Japan\
+March 20, 1995\
+14 killed, 1,050 wounded
+
+Perpetrator(s):\
+**Shoko Asahara / Ikuo Hayashi / Kenichi Hirose / Toru Toyoda / Yasuo Hayashi**\
+Japanese Government registered organization (Aum Shinrikyo); Japanese Ministry of Science and Technology; Japanese Armed Forces / Police / Government associates; Soviet Committee for State Security (KGB) associates; Soviet Armed Forces associates
+
+Source(s):
+1. [Shoko Asahara - Aum Shinrikyo](https://en.wikipedia.org/wiki/Shoko_Asahara#Aum_Shinrikyo)
+>In 1984, Asahara formed Aum Shinsen no Kai(オウム神仙の会). He changed his name from Chizuo Matsumoto to Shoko Asahara and renamed his group Aum Shinrikyo in 1987.[5][16] Asahara applied for government registration and, against the advice of cult experts and government officials,[17] the Tokyo Metropolitan Government granted it legal recognition as a religious corporation in 1989.[16]
+
+2. [Ikuo Hayashi - Background](https://en.wikipedia.org/wiki/Ikuo_Hayashi#Background)
+	Prior to joining Aum, Hayashi was a senior medical doctor with "an active 'front-line' track record" at the Japanese Ministry of Science and Technology (now a part of the Ministry of Education, Culture, Sports, Science and Technology, or MEXT in short). Himself the son of a doctor, Hayashi graduated from Keio University, one of Tokyo's top universities. He was a heart and artery specialist at Keio Hospital, which he left to become head of Circulatory Medicine at the National Sanitorium Hospital in Tokai, Ibaraki (north of Tokyo). Somewhere along the line Hayashi became disillusioned and decided to look beyond conventional medicine. He found AUM during his search.[2]
+
+In 1990 Hayashi resigned his job and left his family to join Aum and become a renunciate. He was believed to be one of Shoko Asahara's favorites and was appointed the group's "Minister of Health" with responsibilities encompassing a broad range of activities from development of a balanced "Aum diet" and supervision over "Aum hospital" to experimentations with the illegal psychedelic drug LSD[citation needed]} (which reportedly was used in one of Aum's initiations sometime in 2002).
+
+3. Aum's Shoko Asahara and the Cult at the End of the World
+https://www.wired.com/1996/07/aum/
+	[Aum] forged relations with Japan's ruthless crime syndicates, the yakuza, and with veterans of the KGB and Russian and Japanese militaries. They enlisted medical doctors to dope patients and perform human experiments that belong in a horror movie. For years this went on, with barely a question from police or the media on three continents. Before long, Aum had become one of the world's richest, most sophisticated, and most murderous religious sects.
+
+4. The Aum Shinrikyo - History
+https://www.watchman.org/profiles/pdf/aumshinrikyoprofile.pdf
+	Startling revelations have come to the surface in the aftermath of the Tokyo gassing. Among these, it was learned that Aum: had accumulated over $1 billion in assets, had successfully “forged relations with Japan’s ruthless crime syndicate” and the Soviet KGB, had “infiltrated various levels of the Japanese government and industry including law enforcement and military,” had regularly used murder and kidnapping to silence its The Aum Shinrikyo, page 2 enemies, and was in the process of developing the biological weapons of anthrax, botulism and ‘Q’ fever.
+
+=============================================================================================================================
+
+Janaúba massacre
+https://en.wikipedia.org/wiki/Jana%C3%BAba_massacre
+Minas Gerais, Brazil
+October 5, 2017
+14 killed (including 1 perpetrator), 37 wounded
+
+Perpetrator(s):
+Damião Soares dos Santos, 50
+Brazilian Civil Service; Menais Gerais State Government psychiatric associates
+
+Source(s):
+1. Psychiatric disorder and obsession: find out who was the watchman who killed children in Janaúba (Translated from the Portuguese)
+https://www-em-com-br.translate.goog/app/noticia/gerais/2017/10/06/interna_gerais,906551/veja-o-perfil-do-vigia-que-matou-criancas-em-incendio-em-janauba.shtml?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp
+	In 2014, according to information gathered by the State of Minas , Damião began to have psychiatric problems and was treated at a clinic in the city. As a public servant, however, he had never faced disciplinary incidents or any deviation, according to the Janaúba City Hall. He has worked as a municipal employee since 2008.
+
+2. Watchman mental disorder that killed children in Janaúba was detected 3 years ago (Translated from the Portuguese)
+https://www-em-com-br.translate.goog/app/noticia/gerais/2017/10/07/interna_gerais,906810/transtorno-de-vigia-que-matou-criancas-foi-detectado-ha-3-anos.shtml?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp
+	In 2014, he even went to the Public Ministry of Minas Gerais (MPMG) to ask for help, as he claimed he was being poisoned by his own mother. The case was analyzed and he was recommended to seek mental treatment.
+
+=============================================================================================================================
+
+2009 Fort Hood shooting
+https://en.wikipedia.org/wiki/2009_Fort_Hood_shooting
+Fort Hood, Texas
+November 5, 2009
+14 killed, 33 wounded (including 1 perpetrator)
+
+Perpetrator(s):
+Nidal Malik Hasan, 39
+United States Army (USA)
+
+Source(s):
+1. Nidal Hassan - Wikipedia
+https://en.wikipedia.org/wiki/Nidal_Hasan
+	Nidal Malik Hasan (born September 8, 1970) is a former United States Army major convicted of killing 13 people and injuring more than 30 others in the Fort Hood mass shooting on November 5, 2009.[3] Hasan was an Army Medical Corps psychiatrist. He admitted to the shootings at his court-martial in August 2013.[4][5] A jury panel of 13 officers convicted him of 13 counts of premeditated murder, 32 counts of attempted murder, and unanimously recommended he be dismissed from the service and sentenced to death.[6][7][8] Hasan is incarcerated at the United States Disciplinary Barracks at Fort Leavenworth in Kansas awaiting execution.
+
+During the six years Hasan was a medical intern and resident at the Walter Reed Army Medical Center, colleagues and superiors were concerned about his job performance and comments. Hasan was not married at the time, and was described as socially-isolated, stressed by his work with soldiers, and upset about their accounts of warfare.[9] Two days before the shooting, less than a month before he was due to deploy to Afghanistan, Hasan gave away many of his belongings to a neighbor.[10][3][11]
+
+Prior to the shooting, Hasan expressed critical views described by colleagues as "anti-American". An investigation conducted by the Federal Bureau of Investigation (FBI) concluded his e-mails with the late Imam Anwar al-Awlaki were related to his authorized professional research and he was not a threat. The FBI, Department of Defense (DoD) and U.S. Senate all conducted investigations after the shootings. The DoD classified the events as "workplace violence", pending prosecution of Hasan in a court-martial.[12] The Senate released a report describing the mass shooting as "the worst terrorist attack on U.S. soil since September 11, 2001".[13][14]
+
+The decision by the Army to not charge Hasan with terrorism is controversial.[15]
+
+2. Nidal Hassan - Military service, higher education and medical career
+https://en.wikipedia.org/wiki/Nidal_Hasan#Military_service,_higher_education_and_medical_career
+	Hasan enlisted in the United States Army in 1988 after graduating from high school. He attended college during this time, earning an Associate's degree in science from Virginia Western Community College in 1992. In 1995, he graduated from Virginia Tech with a Bachelor's degree in biochemistry. He completed both of these programs with Latin honors.[23] He was commissioned as an officer in the Army Medical Department in 1997, and enrolled at the Uniformed Services University of the Health Sciences (USUHS) in Bethesda, Maryland.[20] Hasan's performance was marginal while enrolled at USUHS. He was on academic probation during much of the six years he required to complete the four-year curriculum and graduate medical school.[24]
+
+Upon graduation from USUHS in 2003, Hasan completed his internship and residency in psychiatry at the Walter Reed Army Medical Center (WRAMC). He completed his psychiatry training with a two-year fellowship in disaster & preventive psychiatry, earning a master’s degree in public health. During his training at Walter Reed, he received counseling and extra supervision.[25]
+
+According to The Washington Post, Hasan made a presentation titled "The Quranic World View as It Relates to Muslims in the U.S. Military" during his senior year of residency at WRAMC; it was not well received by some attendees.[26] He suggested the Department of Defense "should allow Muslims [sic] Soldiers the option of being released as "Conscientious objectors" to increase troop morale and decrease adverse events."[27][28] On a previous slide, he explained "adverse events" could be refusal to deploy, espionage, or killing of fellow soldiers. Retired Colonel Terry Lee, after working with Hasan, recalled[29] the fatal shooting of two recruiters in Little Rock, Arkansas greatly affected Hasan. The suspect Abdulhakim Mujahid Muhammad later claimed to be an Al Qaeda terrorist. He was charged with murder. Colonel Lee told Fox News Hasan made "outlandish" statements against the American military presence in Iraq and Afghanistan, "the Muslims should stand up and fight against the aggressor", referring to American soldiers. Hasan reportedly was agitated, and frequently argued with soldiers. He expressed hope President Barack Obama would withdraw troops.[30][31]
+
+Despite these problems, in May 2009, Hasan was promoted to major.[20] In July 2009, Hasan was transferred to Darnall Army Medical Center in Fort Hood, Texas, moving into an undesirable area of the city of Killeen. Two weeks later, he lawfully purchased an FN Herstal 5.7 millimeter handgun.[20] Prior to his transfer, he received a 'poor performance' evaluation from supervisors and medical faculty.[32] Despite concerns, his former army boss, Lt. Col Ben Phillips, graded his performance as "outstanding". This was revealed while Phillips was a witness during Hasan's trial.[33]
+
+3. Nidal Hasan - Religious and ideological beliefs
+https://en.wikipedia.org/wiki/Nidal_Hasan#Religious_and_ideological_beliefs
+	2001-02, Anwar al-Awlaki was the Imam of the Dar al-Hijrah mosque; during that time, he was considered a moderate Muslim. Serving as the Muslim chaplain at George Washington University, he was frequently invited to speak about Islam to audiences in Washington DC and to members of Congress and the government. Hasan reportedly has deep respect for al-Awlaki's teachings.[46]
+
+Six months prior to the shootings, in December 2008, federal intelligence officials captured a series of e-mail exchanges between Al-Awlaki and Hasan. During this period, al-Awlaki was deemed a "radical cleric". However, they determined the e-mails were religious, and did not contain any elements of militancy nor any concerning subject matter.[20] Counter-terrorism specialists for the FBI reading the e-mails stated "they were consistent with authorized research Major Hasan was conducting.".[47][48][49] The e-mails contained general questions about spiritual guidance with regard to conflicts between Islam and military service, and officials judged them to be consistent with his legitimate mental health research about Muslims in the American 'armed' services.[50][51][52]
+
+After the shootings, the Yemeni journalist Abdulelah Hider Shaea interviewed al-Awlaki in November 2009 about their exchanges, and discussed their time with a Washington Post reporter. According to Shaea, Al-Awlaki said he "neither ordered nor pressured ... Hasan to harm Americans".[53] Al-Awlaki said Hasan first e-mailed him on December 17, 2008. By way of introduction, Hasan said: "Do you remember me? I used to pray with you at the Virginia mosque."[53] According to Al-Awlaki, Hasan said he was Muslim around the time the Imam was preaching at Dar al-Hijrah in 2001 and 2002. This coincides with the death of his mother.
+
+Al-Awlaki said, "Maybe Nidal was affected by one of my lectures." He added: "It was clear, from his e-mails, Nidal trusted me. Nidal told me: 'I speak with you about issues I never speak with anyone.'" Al-Awlaki said Hasan arrived at his conclusions regarding the acceptability of violence in Islam, and said he was not the one to initiate this. Shaea summarized their relationship by saying, "Nidal was providing evidence to Anwar, not vice versa."[53]
+
+=============================================================================================================================
+
+Nshili shooting
+https://web.archive.org/web/20140310171307/http://www.e-tools.co.za/newsbrief/1995/news1109
+Nshili, Rwanda
+November 6, 1995
+14 - 17 killed, 19 wounded
+
+Perpetrator(s):
+Unnamed shooter
+Rwanda Defence Force
+
+Source(s):
+1. https://web.archive.org/web/20140310171307/http://www.e-tools.co.za/newsbrief/1995/news1109
+	A Rwandan soldier went on a shooting spree, killing 14 people and wounding 19 before fatally shooting himself, Radio Rwanda says.
+
