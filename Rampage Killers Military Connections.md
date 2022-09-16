@@ -92,6 +92,89 @@ MILITARY / GOVERNMENT CONNECTIONS TO MASS-KILLINGS ORCHESTRATED BY ORGANIZATIONS
 ------------------------------------
 ------------------------------------
 
+[September 11 attacks](https://en.wikipedia.org/wiki/September_11_attacks)\
+New York City, New York / Arlington, Virginia / Shanksville, Pennsylvania\
+September 11, 2001\
+2,996 killed (including 19 perpetrators), 25,000+ wounded\
+
+Perpetrator(s):
+
+-------------------------------------------------------------------------------
+
+AMERICAN AIRLINES FLIGHT 11 HIJACKERS (WTC 1, NORTH TOWER):
+
+**Mohamed Atta**\
+United States Department of Defense (DOD) associates (Maxwell Air Force Base / Norfolk Naval Air Station); United States Department of Defense (DOD) contractor associates; United States Central Intelligence Agency (CIA) associates (Mohamedou Ould Slahi - Operation Cyclone / Rudi Dekkers / Wallace Hilliard / Charlotte County Airport / Wolfgang Bohringer / Luai Sakra / Omar "Blind Sheikh" Abdel-Rahman's network); United States Federal Government / German Federal Government associates (Carl Duisberg Society); Saudi Arabian Monarchical Government contractor associate (Esam Abbas Ghazzawi); Saudi Arabian Ministry of Foreign Affairs / General Intelligence Directorate (GID) associate (Mohammed Rafique Quadir Harunani); United States Central Intelligence Agency (CIA) / Pakistani Inter-Services Intelligence (ISI) associate (Omar Saeed Sheikh); German Federal Office for the Protection of the Constitution (BfV) associate (Mohammed Haydar Zammar); German Army associate (Said Bahaji)
+
+**Abdulaziz al-Omari**\
+United States Department of Defense (DOD) associates (Brooks Air Force Base); United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah / Omar "Blind Sheikh" Abdel-Rahman's network)
+
+**Wail al-Shehri**\
+Royal Saudi Air Force (RSAF); Royal Saudi Air Force (RSAF) brothers; Saudi Arabian Armed Forces (SAAF) uncle (Major General Faez Alshehri); Saudi Arabian Armed Forces (SAAF) family; United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah)
+
+**Waleed al-Shehri**\
+Royal Saudi Air Force (RSAF) brothers (Wail al-Shehri et al.); Saudi Arabian Armed Forces (SAAF) uncle (Major General Faez Alshehri); Saudi Arabian Armed Forces (SAAF) family; United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah)
+
+**Satam al-Suqami**\
+United States Central Intelligence Agency (CIA) associate (Luai Sakra)
+
+-------------------------------------------------------------------------------
+
+UNITED AIRLINES FLIGHT 175 HIJACKERS (WTC 2, SOUTH TOWER):
+
+**Marwan al-Shehhi**\
+United Arab Emirates Army; United Arab Emirates Police half-brother; United States Central Intelligence Agency (CIA) associates (Mohamedou Ould Slahi - Operation Cyclone / Rudi Dekkers / Wallace Hilliard / Charlotte County Airport / Omar "Blind Sheikh" Abdel-Rahman's network / Mohamedou Ould Slahi - Operation Cyclone); Saudi Arabian Monarchical Government / House of Saud contractor associate (Esam Abbas Ghazzawi); Saudi Arabian Ministry of Foreign Affairs / General Intelligence Directorate (GID) associate (Mohammed Rafique Quadir Harunani); German Federal Office for the Protection of the Constitution (BfV) associate (Mohammed Haydar Zammar); German Army associate (Said Bahaji)
+
+**Fayez Banihammad**\
+United States Department of Defense (DOD) associates (Defense Language Institute); Saudi Arabian Monarchical Government / General Intelligence Directorate (GID) associates (International Islamic Relief Organization)
+
+**Mohand al-Shehri**\
+United States Central Intelligence Agency (CIA) associates (Omar "Blind Sheikh" Abdel-Rahman's network)
+
+**Hamza al-Ghamdi**\ 
+United States Central Intelligence Agency (CIA) associate (Luai Sakra); Saudi Arabian House of Saud contractor associate (Fahad Abdullah Saleh Bakala)
+
+**Ahmed al-Ghamdi**\
+United States Central Intelligence Agency (CIA) associates (Luai Sakra / US Consulate in Jeddah); United States Department of Defense (DOD) associates (Pensacola Naval Air Station); Saudi Arabian House of Saud contractor associate (Fahad Abdullah Saleh Bakala)
+
+-------------------------------------------------------------------------------
+
+AMERICAN AIRLINES FLIGHT 77 HIJACKERS (PENTAGON):
+
+**Hani Hanjour**\
+United States Central Intelligence Agency (CIA) associates (Operation Cyclone / US Consulate in Jeddah / Omar "Blind Sheikh" Abdel-Rahman's network); Israel Defense Forces (IDF) associate (Eddie Shalev); Saudi Arabian General Intelligence Directorate (GID) associate (Omar al-Bayoumi); Saudi Arabian Monarchical Government / General Intelligence Directorate (GID) associate (Saleh Ibn Abdul Rahman Hussayen)
+
+**Khalid al-Mihdhar**\
+United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah / Omar "Blind Sheikh" Abdel-Rahman's network / Anwar al-Awlaki); United States Federal Bureau of Investigation (FBI) associate (Abdussattar Shaikh); Saudi Arabian General Intelligence Directorate (GID) associates (Omar al-Bayoumi / Osama Bassnan / Modhar Abdullah); Saudi Arabian Ministry of Defense (MOD) associate (Hamad Alotaibi - Saudi Embassy Military Division); Royal Saudi Navy (RSN) associates (Osama Nooh / Lafi al-Harbi); Saudi Arabian Ministry of Foreign Affairs / General Intelligence Directorate (GID) associate (Fahad al-Thumairy); Saudi Arabian Monarchical Government / General Intelligence Directorate (GID) associate (Saleh Ibn Abdul Rahman Hussayen)
+
+**Majed Moqed**\
+United States Central Intelligence Agency (CIA) associate (Luai Sakra)
+
+**Nawaf al-Hazmi**\
+United States Central Intelligence Agency (CIA) associate (Luai Sakra / US Consulate in Jeddah / Omar "Blind Sheikh" Abdel-Rahman's network / Anwar al-Awlaki); United States Federal Bureau of Investigation (FBI) associate (Abdussattar Shaikh); Saudi Arabian General Intelligence Directorate (GID) associates (Omar al-Bayoumi / Osama Bassnan / Modhar Abdullah); Royal Saudi Navy (RSN) associates (Osama Nooh / Lafi al-Harbi); Saudi Arabian Ministry of Foreign Affairs / General Intelligence Directorate (GID) associate (Fahad al-Thumairy); Saudi Arabian Monarchical Government / General Intelligence Directorate (GID) associate (Saleh Ibn Abdul Rahman Hussayen)
+
+**Salem al-Hazmi**\
+United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah)
+
+-------------------------------------------------------------------------------
+
+UNITED AIRLINES FLIGHT 93 HIJACKERS (FIELD IN SHANKSVILLE, PA):
+
+**Ziad Jarrah**\
+Lebanese Government father / uncle (Samir Jarrah / Gazi Jarrah - social security system officials); Israeli Institute for Intelligence and Special Operations (Mossad) paternal cousins (Ali Jarrah / Yusuf Jarrah); East German State Security Service (Stasi) / German Federal Intelligence Service (BND) paternal cousin (Assem Jarrah); Lebanese Government paternal uncle (Jamal Jarrah - Saudi-backed Lebanese Prime Minister Rafik Hariri / Saudi-backed Lebanese Future Movement); Lebanese Government family relative (Nesim Jarrah - senior customs officer); United States Special Operations Forces (SOF) / Central Intelligence Agency (CIA) associates (US 1 Fitness Center / Bert Rodriguez); United States Central Intelligence Agency (CIA) associates (Mohamedou Ould Slahi - Operation Cyclone / Huffman Aviation / Arne Kruithof / Omar "Blind Sheikh" Abdel-Rahman's network); Saudi Arabian Monarchical Government / Saudi House of Saud contractor associate (Esam Abbas Ghazzawi); German Federal Office for the Protection of the Constitution (BfV) associate (Mohammed Haydar Zammar); German Army associate (Said Bahaji)
+
+**Ahmed al-Haznawi**\
+United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah)
+
+**Ahmed al-Nami**\
+Saudi Arabian Ministry of Islamic Affairs father; Saudi Arabian Monarchical Government family; United States Department of Defense (DOD) associates (Pensacola Naval Air Station); United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah)
+
+**Saeed al-Ghamdi**\
+United States Central Intelligence Agency (CIA) associates (Luai Sakra / US Consulate in Jeddah); United States Department of Defense (DOD) associates (Pensacola Naval Air Station / Defense Language Institute); Saudi Arabian Ministry of Defense (MOD) associate (Hamad Alotaibi - Saudi Embassy Military Division)
+
+-------------------------------------------------------------------------------
+------------------------------------
+
 [Camp Speicher massacre](https://en.wikipedia.org/wiki/Camp_Speicher_massacre)\
 Tikrit, Iraq\
 June 12, 2014\
@@ -3471,81 +3554,83 @@ Source(s):
 >In 1984, Asahara formed Aum Shinsen no Kai(オウム神仙の会). He changed his name from Chizuo Matsumoto to Shoko Asahara and renamed his group Aum Shinrikyo in 1987.[5][16] Asahara applied for government registration and, against the advice of cult experts and government officials,[17] the Tokyo Metropolitan Government granted it legal recognition as a religious corporation in 1989.[16]
 
 2. [Ikuo Hayashi - Background](https://en.wikipedia.org/wiki/Ikuo_Hayashi#Background)
-	Prior to joining Aum, Hayashi was a senior medical doctor with "an active 'front-line' track record" at the Japanese Ministry of Science and Technology (now a part of the Ministry of Education, Culture, Sports, Science and Technology, or MEXT in short). Himself the son of a doctor, Hayashi graduated from Keio University, one of Tokyo's top universities. He was a heart and artery specialist at Keio Hospital, which he left to become head of Circulatory Medicine at the National Sanitorium Hospital in Tokai, Ibaraki (north of Tokyo). Somewhere along the line Hayashi became disillusioned and decided to look beyond conventional medicine. He found AUM during his search.[2]
+>Prior to joining Aum, Hayashi was a senior medical doctor with "an active 'front-line' track record" at the Japanese Ministry of Science and Technology (now a part of the Ministry of Education, Culture, Sports, Science and Technology, or MEXT in short). Himself the son of a doctor, Hayashi graduated from Keio University, one of Tokyo's top universities. He was a heart and artery specialist at Keio Hospital, which he left to become head of Circulatory Medicine at the National Sanitorium Hospital in Tokai, Ibaraki (north of Tokyo). Somewhere along the line Hayashi became disillusioned and decided to look beyond conventional medicine. He found AUM during his search.[2]
+>
+>In 1990 Hayashi resigned his job and left his family to join Aum and become a renunciate. He was believed to be one of Shoko Asahara's favorites and was appointed the group's "Minister of Health" with responsibilities encompassing a broad range of activities from development of a balanced "Aum diet" and supervision over "Aum hospital" to experimentations with the illegal psychedelic drug LSD[citation needed]} (which reportedly was used in one of Aum's initiations sometime in 2002).
 
-In 1990 Hayashi resigned his job and left his family to join Aum and become a renunciate. He was believed to be one of Shoko Asahara's favorites and was appointed the group's "Minister of Health" with responsibilities encompassing a broad range of activities from development of a balanced "Aum diet" and supervision over "Aum hospital" to experimentations with the illegal psychedelic drug LSD[citation needed]} (which reportedly was used in one of Aum's initiations sometime in 2002).
+3. [Aum's Shoko Asahara and the Cult at the End of the World](https://www.wired.com/1996/07/aum/)
+>[Aum] forged relations with Japan's ruthless crime syndicates, the yakuza, and with veterans of the KGB and Russian and Japanese militaries. They enlisted medical doctors to dope patients and perform human experiments that belong in a horror movie. For years this went on, with barely a question from police or the media on three continents. Before long, Aum had become one of the world's richest, most sophisticated, and most murderous religious sects.
 
-3. Aum's Shoko Asahara and the Cult at the End of the World
-https://www.wired.com/1996/07/aum/
-	[Aum] forged relations with Japan's ruthless crime syndicates, the yakuza, and with veterans of the KGB and Russian and Japanese militaries. They enlisted medical doctors to dope patients and perform human experiments that belong in a horror movie. For years this went on, with barely a question from police or the media on three continents. Before long, Aum had become one of the world's richest, most sophisticated, and most murderous religious sects.
-
-4. The Aum Shinrikyo - History
-https://www.watchman.org/profiles/pdf/aumshinrikyoprofile.pdf
-	Startling revelations have come to the surface in the aftermath of the Tokyo gassing. Among these, it was learned that Aum: had accumulated over $1 billion in assets, had successfully “forged relations with Japan’s ruthless crime syndicate” and the Soviet KGB, had “infiltrated various levels of the Japanese government and industry including law enforcement and military,” had regularly used murder and kidnapping to silence its The Aum Shinrikyo, page 2 enemies, and was in the process of developing the biological weapons of anthrax, botulism and ‘Q’ fever.
+4. [The Aum Shinrikyo - History](https://www.watchman.org/profiles/pdf/aumshinrikyoprofile.pdf)
+>Startling revelations have come to the surface in the aftermath of the Tokyo gassing. Among these, it was learned that Aum: had accumulated over $1 billion in assets, had successfully “forged relations with Japan’s ruthless crime syndicate” and the Soviet KGB, had “infiltrated various levels of the Japanese government and industry including law enforcement and military,” had regularly used murder and kidnapping to silence its The Aum Shinrikyo, page 2 enemies, and was in the process of developing the biological weapons of anthrax, botulism and ‘Q’ fever.
 
 =============================================================================================================================
 
-Janaúba massacre
-https://en.wikipedia.org/wiki/Jana%C3%BAba_massacre
-Minas Gerais, Brazil
-October 5, 2017
+[Janaúba massacre](https://en.wikipedia.org/wiki/Jana%C3%BAba_massacre)\
+Minas Gerais, Brazil\
+October 5, 2017\
 14 killed (including 1 perpetrator), 37 wounded
 
-Perpetrator(s):
-Damião Soares dos Santos, 50
+Perpetrator(s):\
+**Damião Soares dos Santos, 50**\
 Brazilian Civil Service; Menais Gerais State Government psychiatric associates
 
 Source(s):
-1. Psychiatric disorder and obsession: find out who was the watchman who killed children in Janaúba (Translated from the Portuguese)
-https://www-em-com-br.translate.goog/app/noticia/gerais/2017/10/06/interna_gerais,906551/veja-o-perfil-do-vigia-que-matou-criancas-em-incendio-em-janauba.shtml?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp
-	In 2014, according to information gathered by the State of Minas , Damião began to have psychiatric problems and was treated at a clinic in the city. As a public servant, however, he had never faced disciplinary incidents or any deviation, according to the Janaúba City Hall. He has worked as a municipal employee since 2008.
+1. [Psychiatric disorder and obsession: find out who was the watchman who killed children in Janaúba (Translated from the Portuguese)](https://www-em-com-br.translate.goog/app/noticia/gerais/2017/10/06/interna_gerais,906551/veja-o-perfil-do-vigia-que-matou-criancas-em-incendio-em-janauba.shtml?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>In 2014, according to information gathered by the State of Minas , Damião began to have psychiatric problems and was treated at a clinic in the city. As a public servant, however, he had never faced disciplinary incidents or any deviation, according to the Janaúba City Hall. He has worked as a municipal employee since 2008.
 
-2. Watchman mental disorder that killed children in Janaúba was detected 3 years ago (Translated from the Portuguese)
-https://www-em-com-br.translate.goog/app/noticia/gerais/2017/10/07/interna_gerais,906810/transtorno-de-vigia-que-matou-criancas-foi-detectado-ha-3-anos.shtml?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp
-	In 2014, he even went to the Public Ministry of Minas Gerais (MPMG) to ask for help, as he claimed he was being poisoned by his own mother. The case was analyzed and he was recommended to seek mental treatment.
+2. [Watchman mental disorder that killed children in Janaúba was detected 3 years ago (Translated from the Portuguese)](https://www-em-com-br.translate.goog/app/noticia/gerais/2017/10/07/interna_gerais,906810/transtorno-de-vigia-que-matou-criancas-foi-detectado-ha-3-anos.shtml?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>In 2014, he even went to the Public Ministry of Minas Gerais (MPMG) to ask for help, as he claimed he was being poisoned by his own mother. The case was analyzed and he was recommended to seek mental treatment.
 
 =============================================================================================================================
 
-2009 Fort Hood shooting
-https://en.wikipedia.org/wiki/2009_Fort_Hood_shooting
-Fort Hood, Texas
-November 5, 2009
+[2009 Fort Hood shooting](https://en.wikipedia.org/wiki/2009_Fort_Hood_shooting)\
+Fort Hood, Texas\
+November 5, 2009\
 14 killed, 33 wounded (including 1 perpetrator)
 
-Perpetrator(s):
-Nidal Malik Hasan, 39
-United States Army (USA)
+Perpetrator(s):\
+**Nidal Malik Hasan, 39**\
+United States Army (USA); United States Central Intelligence Agency (CIA) associate (Anwar al-Awlaki)
 
 Source(s):
-1. Nidal Hassan - Wikipedia
-https://en.wikipedia.org/wiki/Nidal_Hasan
-	Nidal Malik Hasan (born September 8, 1970) is a former United States Army major convicted of killing 13 people and injuring more than 30 others in the Fort Hood mass shooting on November 5, 2009.[3] Hasan was an Army Medical Corps psychiatrist. He admitted to the shootings at his court-martial in August 2013.[4][5] A jury panel of 13 officers convicted him of 13 counts of premeditated murder, 32 counts of attempted murder, and unanimously recommended he be dismissed from the service and sentenced to death.[6][7][8] Hasan is incarcerated at the United States Disciplinary Barracks at Fort Leavenworth in Kansas awaiting execution.
+1. [Nidal Hassan - Wikipedia](https://en.wikipedia.org/wiki/Nidal_Hasan)
+>Nidal Malik Hasan (born September 8, 1970) is a former United States Army major convicted of killing 13 people and injuring more than 30 others in the Fort Hood mass shooting on November 5, 2009.[3] Hasan was an Army Medical Corps psychiatrist. He admitted to the shootings at his court-martial in August 2013.[4][5] A jury panel of 13 officers convicted him of 13 counts of premeditated murder, 32 counts of attempted murder, and unanimously recommended he be dismissed from the service and sentenced to death.[6][7][8] Hasan is incarcerated at the United States Disciplinary Barracks at Fort Leavenworth in Kansas awaiting execution.
+>
+>During the six years Hasan was a medical intern and resident at the Walter Reed Army Medical Center, colleagues and superiors were concerned about his job performance and comments. Hasan was not married at the time, and was described as socially-isolated, stressed by his work with soldiers, and upset about their accounts of warfare.[9] Two days before the shooting, less than a month before he was due to deploy to Afghanistan, Hasan gave away many of his belongings to a neighbor.[10][3][11]
+>
+>Prior to the shooting, Hasan expressed critical views described by colleagues as "anti-American". An investigation conducted by the Federal Bureau of Investigation (FBI) concluded his e-mails with the late Imam Anwar al-Awlaki were related to his authorized professional research and he was not a threat. The FBI, Department of Defense (DoD) and U.S. Senate all conducted investigations after the shootings. The DoD classified the events as "workplace violence", pending prosecution of Hasan in a court-martial.[12] The Senate released a report describing the mass shooting as "the worst terrorist attack on U.S. soil since September 11, 2001".[13][14]
+>
+>The decision by the Army to not charge Hasan with terrorism is controversial.[15]
 
-During the six years Hasan was a medical intern and resident at the Walter Reed Army Medical Center, colleagues and superiors were concerned about his job performance and comments. Hasan was not married at the time, and was described as socially-isolated, stressed by his work with soldiers, and upset about their accounts of warfare.[9] Two days before the shooting, less than a month before he was due to deploy to Afghanistan, Hasan gave away many of his belongings to a neighbor.[10][3][11]
+2. [Nidal Hassan - Military service, higher education and medical career](https://en.wikipedia.org/wiki/Nidal_Hasan#Military_service,_higher_education_and_medical_career)
+>Hasan enlisted in the United States Army in 1988 after graduating from high school. He attended college during this time, earning an Associate's degree in science from Virginia Western Community College in 1992. In 1995, he graduated from Virginia Tech with a Bachelor's degree in biochemistry. He completed both of these programs with Latin honors.[23] He was commissioned as an officer in the Army Medical Department in 1997, and enrolled at the Uniformed Services University of the Health Sciences (USUHS) in Bethesda, Maryland.[20] Hasan's performance was marginal while enrolled at USUHS. He was on academic probation during much of the six years he required to complete the four-year curriculum and graduate medical school.[24]
+>
+>Upon graduation from USUHS in 2003, Hasan completed his internship and residency in psychiatry at the Walter Reed Army Medical Center (WRAMC). He completed his psychiatry training with a two-year fellowship in disaster & preventive psychiatry, earning a master’s degree in public health. During his training at Walter Reed, he received counseling and extra supervision.[25]
+>
+>According to The Washington Post, Hasan made a presentation titled "The Quranic World View as It Relates to Muslims in the U.S. Military" during his senior year of residency at WRAMC; it was not well received by some attendees.[26] He suggested the Department of Defense "should allow Muslims [sic] Soldiers the option of being released as "Conscientious objectors" to increase troop morale and decrease adverse events."[27][28] On a previous slide, he explained "adverse events" could be refusal to deploy, espionage, or killing of fellow soldiers. Retired Colonel Terry Lee, after working with Hasan, recalled[29] the fatal shooting of two recruiters in Little Rock, Arkansas greatly affected Hasan. The suspect Abdulhakim Mujahid Muhammad later claimed to be an Al Qaeda terrorist. He was charged with murder. Colonel Lee told Fox News Hasan made "outlandish" statements against the American military presence in Iraq and Afghanistan, "the Muslims should stand up and fight against the aggressor", referring to American soldiers. Hasan reportedly was agitated, and frequently argued with soldiers. He expressed hope President Barack Obama would withdraw troops.[30][31]
+>
+>Despite these problems, in May 2009, Hasan was promoted to major.[20] In July 2009, Hasan was transferred to Darnall Army Medical Center in Fort Hood, Texas, moving into an undesirable area of the city of Killeen. Two weeks later, he lawfully purchased an FN Herstal 5.7 millimeter handgun.[20] Prior to his transfer, he received a 'poor performance' evaluation from supervisors and medical faculty.[32] Despite concerns, his former army boss, Lt. Col Ben Phillips, graded his performance as "outstanding". This was revealed while Phillips was a witness during Hasan's trial.[33]
 
-Prior to the shooting, Hasan expressed critical views described by colleagues as "anti-American". An investigation conducted by the Federal Bureau of Investigation (FBI) concluded his e-mails with the late Imam Anwar al-Awlaki were related to his authorized professional research and he was not a threat. The FBI, Department of Defense (DoD) and U.S. Senate all conducted investigations after the shootings. The DoD classified the events as "workplace violence", pending prosecution of Hasan in a court-martial.[12] The Senate released a report describing the mass shooting as "the worst terrorist attack on U.S. soil since September 11, 2001".[13][14]
+3. [Nidal Hasan - Religious and ideological beliefs](https://en.wikipedia.org/wiki/Nidal_Hasan#Religious_and_ideological_beliefs)
+>2001-02, Anwar al-Awlaki was the Imam of the Dar al-Hijrah mosque; during that time, he was considered a moderate Muslim. Serving as the Muslim chaplain at George Washington University, he was frequently invited to speak about Islam to audiences in Washington DC and to members of Congress and the government. Hasan reportedly has deep respect for al-Awlaki's teachings.[46]
+>
+>Six months prior to the shootings, in December 2008, federal intelligence officials captured a series of e-mail exchanges between Al-Awlaki and Hasan. During this period, al-Awlaki was deemed a "radical cleric". However, they determined the e-mails were religious, and did not contain any elements of militancy nor any concerning subject matter.[20] Counter-terrorism specialists for the FBI reading the e-mails stated "they were consistent with authorized research Major Hasan was conducting.".[47][48][49] The e-mails contained general questions about spiritual guidance with regard to conflicts between Islam and military service, and officials judged them to be consistent with his legitimate mental health research about Muslims in the American 'armed' services.[50][51][52]
+>
+>After the shootings, the Yemeni journalist Abdulelah Hider Shaea interviewed al-Awlaki in November 2009 about their exchanges, and discussed their time with a Washington Post reporter. According to Shaea, Al-Awlaki said he "neither ordered nor pressured ... Hasan to harm Americans".[53] Al-Awlaki said Hasan first e-mailed him on December 17, 2008. By way of introduction, Hasan said: "Do you remember me? I used to pray with you at the Virginia mosque."[53] According to Al-Awlaki, Hasan said he was Muslim around the time the Imam was preaching at Dar al-Hijrah in 2001 and 2002. This coincides with the death of his mother.
+>
+>Al-Awlaki said, "Maybe Nidal was affected by one of my lectures." He added: "It was clear, from his e-mails, Nidal trusted me. Nidal told me: 'I speak with you about issues I never speak with anyone.'" Al-Awlaki said Hasan arrived at his conclusions regarding the acceptability of violence in Islam, and said he was not the one to initiate this. Shaea summarized their relationship by saying, "Nidal was providing evidence to Anwar, not vice versa."[53]
 
-The decision by the Army to not charge Hasan with terrorism is controversial.[15]
-
-2. Nidal Hassan - Military service, higher education and medical career
-https://en.wikipedia.org/wiki/Nidal_Hasan#Military_service,_higher_education_and_medical_career
-	Hasan enlisted in the United States Army in 1988 after graduating from high school. He attended college during this time, earning an Associate's degree in science from Virginia Western Community College in 1992. In 1995, he graduated from Virginia Tech with a Bachelor's degree in biochemistry. He completed both of these programs with Latin honors.[23] He was commissioned as an officer in the Army Medical Department in 1997, and enrolled at the Uniformed Services University of the Health Sciences (USUHS) in Bethesda, Maryland.[20] Hasan's performance was marginal while enrolled at USUHS. He was on academic probation during much of the six years he required to complete the four-year curriculum and graduate medical school.[24]
-
-Upon graduation from USUHS in 2003, Hasan completed his internship and residency in psychiatry at the Walter Reed Army Medical Center (WRAMC). He completed his psychiatry training with a two-year fellowship in disaster & preventive psychiatry, earning a master’s degree in public health. During his training at Walter Reed, he received counseling and extra supervision.[25]
-
-According to The Washington Post, Hasan made a presentation titled "The Quranic World View as It Relates to Muslims in the U.S. Military" during his senior year of residency at WRAMC; it was not well received by some attendees.[26] He suggested the Department of Defense "should allow Muslims [sic] Soldiers the option of being released as "Conscientious objectors" to increase troop morale and decrease adverse events."[27][28] On a previous slide, he explained "adverse events" could be refusal to deploy, espionage, or killing of fellow soldiers. Retired Colonel Terry Lee, after working with Hasan, recalled[29] the fatal shooting of two recruiters in Little Rock, Arkansas greatly affected Hasan. The suspect Abdulhakim Mujahid Muhammad later claimed to be an Al Qaeda terrorist. He was charged with murder. Colonel Lee told Fox News Hasan made "outlandish" statements against the American military presence in Iraq and Afghanistan, "the Muslims should stand up and fight against the aggressor", referring to American soldiers. Hasan reportedly was agitated, and frequently argued with soldiers. He expressed hope President Barack Obama would withdraw troops.[30][31]
-
-Despite these problems, in May 2009, Hasan was promoted to major.[20] In July 2009, Hasan was transferred to Darnall Army Medical Center in Fort Hood, Texas, moving into an undesirable area of the city of Killeen. Two weeks later, he lawfully purchased an FN Herstal 5.7 millimeter handgun.[20] Prior to his transfer, he received a 'poor performance' evaluation from supervisors and medical faculty.[32] Despite concerns, his former army boss, Lt. Col Ben Phillips, graded his performance as "outstanding". This was revealed while Phillips was a witness during Hasan's trial.[33]
-
-3. Nidal Hasan - Religious and ideological beliefs
-https://en.wikipedia.org/wiki/Nidal_Hasan#Religious_and_ideological_beliefs
-	2001-02, Anwar al-Awlaki was the Imam of the Dar al-Hijrah mosque; during that time, he was considered a moderate Muslim. Serving as the Muslim chaplain at George Washington University, he was frequently invited to speak about Islam to audiences in Washington DC and to members of Congress and the government. Hasan reportedly has deep respect for al-Awlaki's teachings.[46]
-
-Six months prior to the shootings, in December 2008, federal intelligence officials captured a series of e-mail exchanges between Al-Awlaki and Hasan. During this period, al-Awlaki was deemed a "radical cleric". However, they determined the e-mails were religious, and did not contain any elements of militancy nor any concerning subject matter.[20] Counter-terrorism specialists for the FBI reading the e-mails stated "they were consistent with authorized research Major Hasan was conducting.".[47][48][49] The e-mails contained general questions about spiritual guidance with regard to conflicts between Islam and military service, and officials judged them to be consistent with his legitimate mental health research about Muslims in the American 'armed' services.[50][51][52]
-
-After the shootings, the Yemeni journalist Abdulelah Hider Shaea interviewed al-Awlaki in November 2009 about their exchanges, and discussed their time with a Washington Post reporter. According to Shaea, Al-Awlaki said he "neither ordered nor pressured ... Hasan to harm Americans".[53] Al-Awlaki said Hasan first e-mailed him on December 17, 2008. By way of introduction, Hasan said: "Do you remember me? I used to pray with you at the Virginia mosque."[53] According to Al-Awlaki, Hasan said he was Muslim around the time the Imam was preaching at Dar al-Hijrah in 2001 and 2002. This coincides with the death of his mother.
-
-Al-Awlaki said, "Maybe Nidal was affected by one of my lectures." He added: "It was clear, from his e-mails, Nidal trusted me. Nidal told me: 'I speak with you about issues I never speak with anyone.'" Al-Awlaki said Hasan arrived at his conclusions regarding the acceptability of violence in Islam, and said he was not the one to initiate this. Shaea summarized their relationship by saying, "Nidal was providing evidence to Anwar, not vice versa."[53]
+4. [Anwar al-Awlaki - Time as imam](https://en.wikipedia.org/wiki/Anwar_al-Awlaki#Time_as_imam)
+>In 1994, al-Awlaki married a cousin from Yemen,[39] and began service as a part-time imam of the Denver Islamic Society. In 1996, he was chastised by an elder for encouraging a Saudi student to fight in Chechnya against the Russians.[39][49] He left Denver soon after, moving to San Diego.[50]
+>
+>From 1996 to 2000, al-Awlaki was imam of the Masjid Ar-Ribat al-Islami mosque in San Diego, California, where he had a following of 200–300 people.[1][42][39][40][45][51] U.S. officials later alleged that Nawaf al-Hazmi and Khalid al-Mihdhar, hijackers of American Airlines Flight 77, attended his sermons and personally met him during this period, although Al-Awlaki told authorities their conversations were trivial in nature.[52] Hazmi later lived in Northern Virginia and attended al-Awlaki's mosque there. The 9/11 Commission Report said that the hijackers "reportedly respected [al-Awlaki] as a religious figure".[53][39][43][51] While in San Diego, al-Awlaki volunteered with youth organizations, fished, discussed his travels with friends, and created a popular and lucrative series of recorded lectures.[39]
+>
+>In August 1996 and in April 1997, al-Awlaki was arrested in San Diego and charged with soliciting prostitutes.[53][34][54][55] The first time, in 1996, he pleaded guilty to a lesser charge and was fined $400 and required to attend informational sessions about AIDS.[54] The second time, in 1997, he pleaded guilty and was fined $240, ordered to perform 12 days of community service, and received three years' probation.[54][56] From November 2001 to January 2002 the FBI observed him visiting a number of prostitutes, and interviewed them, establishing that he had paid for sex acts.[57] No prosecution was brought.[58]
+>
+>In 1998 and 1999, he served as vice-president for the Charitable Society for Social Welfare. Although the FBI investigated al-Awlaki from June 1999 through March 2000 for possible links to Hamas, the Bin Laden contact Ziyad Khaleel, and a visit by an associate of Omar Abdel Rahman,[39] it did not find sufficient evidence for a criminal prosecution.[42][53][45][51][59][why?] In 2004, the FBI described this group as a "front organization to funnel money to terrorists".[45][60] Al-Awlaki told reporters that he resigned from leading the San Diego mosque "after an uneventful four years," and took a brief sabbatical, traveling overseas to various countries.[61]
+>
+>Al-Awlaki decided to pursue his PhD and was accepted at George Washington University in Washington, D.C., and was soon recruited to be the imam of the nearby suburban Dar al-Hijrah mosque in 2000.[62] One of the mosque's board members who hired Al-Awlaki stated he was convinced that al-Awlaki had no inclinations or activities to do with terrorism.[63] The new imam, who was described as alluring and charming at this time,[64] began to draw young people to Dar Al-Hijrah[63] while connecting with the sophisticated Muslim community of Northern Virginia.[65] His proficiency as a public speaker and command of the English language helped him attract followers who did not speak Arabic. "He was the magic bullet", according to the mosque spokesman Johari Abdul-Malik. "He had everything all in a box."[66] "He had an allure. He was charming."[64] Al-Awlaki was considered a moderate during his time at Dar Al-Hijrah, publicly condemned the September 11 attacks and Al-Qaeda, was even invited to speak at the United States Department of Defense[67] and became the first imam to conduct a prayer service for the Congressional Muslim Staffer Association at the U.S. Capitol.[68][69] He led academic discussions frequented by FBI Director of Counter-Intelligence for the Middle East Gordon M. Snow. Al-Awlaki also served as the Muslim chaplain at George Washington University.[42][43][45][70] Soon after the 9/11 attacks, al-Awlaki was sought in Washington, D.C., by the media to answer questions about Islam, its rituals, and its relation to the attacks. He was interviewed by National Geographic,[71] The New York Times, and other media. Al-Awlaki condemned the attacks.[72] According to an NPR report in 2010, in 2001 al-Awlaki appeared to be a moderate who could "bridge the gap between the United States and the worldwide community of Muslims."[73] The New York Times said at the time that he was "held up as a new generation of Muslim leader capable of merging East and West."[74] In 2010, Fox News and the New York Daily News reported that some months after the 9/11 attacks, a Pentagon employee invited al-Awlaki to a luncheon in the Secretary's Office of General Counsel. The U.S. Secretary of the Army had suggested that a moderate Muslim be invited to give a talk.[75][76] In 2002, al-Awlaki was the first imam to conduct a prayer service for the Congressional Muslim Staffer Association at the U.S. Capitol.[68][69]
 
 =============================================================================================================================
 
