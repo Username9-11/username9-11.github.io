@@ -4289,17 +4289,17 @@ Canadian Armed Forces (CAF); Canadian Federal Government contractor father (Vahe
 Source(s):
 1. [Toronto van attack - Perpetrator](https://en.wikipedia.org/wiki/Toronto_van_attack#Perpetrator)
 >Police identified the suspect as Alek Minassian, who had no prior criminal history.[41][42] His father, Vahe, had moved from Armenia to Canada and worked as a software developer, and his mother, Sona, was from Iran and had a job at an IT company.[43] Minassian was also an aspiring software and mobile app developer.[44]\
->[...]\
+>
+>According to his LinkedIn profile, he was a student at Seneca College in North York from 2011 to 2018 and lived in Richmond Hill. Minassian had attended Sixteenth Avenue Public School, an elementary school in Richmond Hill, in a special education class.[45][44] His former classmates at Thornlea Secondary School in Thornhill described him as "not overly social" and "harmless".[28][46] Minassian attended a special needs class for students within the autism spectrum while at Thornlea Secondary School;[47] Minassian's mother is quoted as saying in a 2009 article that her son has Asperger syndrome.[48]
+>
 >In late 2017, Minassian enrolled in the Canadian Armed Forces for two months, before requesting voluntary release after 16 days of recruit training.[47] A senior military official said that Minassian "wasn't adapting to military life, including in matters of dress, deportment and group interactions in a military setting" and "there were no red flags and nothing that would point to anything like this."[48]\
->[...]\
->In late 2017, Minassian enrolled in the Canadian Armed Forces for two months, before requesting voluntary release after 16 days of recruit training.[49] A senior military official said that Minassian "wasn't adapting to military life, including in matters of dress, deportment and group interactions in a military setting" and "there were no red flags and nothing that would point to anything like this."[50]
 >
 >Following the attack, a Facebook post made by Minassian was uncovered in which he identified himself as an incel ("involuntary celibate").[28][51] The state of involuntary celibacy refers to being unable to find sexual partners[52] and its subculture consists of primarily male online communities.[53][54] The post, dated shortly before the beginning of the attack on April 23, allegedly read:
 >
 >>Private (Recruit) Minassian Infantry 00010, wishing to speak to Sgt 4chan please. C23249161. The Incel Rebellion has already begun! We will overthrow all the Chads and Stacys! All hail the Supreme Gentleman Elliot Rodger![10][55]
 >
 >[...]\
->A source in the Department of National Defence told media that C23249161 was Minassian's military identification number during his army training.[63]
+>Facebook, Inc. verified the account as Minassian's.[28][60] A source in the Department of National Defence told media that C23249161 was Minassian's military identification number during his army training.[63]
 
 2. [The Man Behind the Yonge Street Van Attack](https://torontolife.com/city/man-behind-yonge-street-van-attack/)
 >[Alek Minassian's] father, Vahe, had moved from Armenia to Canada and worked as a software developer for Rogers. His mom, Sona, was from Iran and had a job at Compugen, an IT company.\
