@@ -99,9 +99,7 @@ September 11, 2001\
 
 Perpetrator(s):
 
--------------------------------------------------------------------------------
-
-AMERICAN AIRLINES FLIGHT 11 HIJACKERS (WTC 1, NORTH TOWER):
+**AMERICAN AIRLINES FLIGHT 11 HIJACKERS (WTC 1, NORTH TOWER):**
 
 **Mohamed Atta**\
 United States Department of Defense (DOD) associates (Maxwell Air Force Base / Norfolk Naval Air Station); United States Department of Defense (DOD) contractor associates; United States Central Intelligence Agency (CIA) associates (Mohamedou Ould Slahi - Operation Cyclone / Rudi Dekkers / Wallace Hilliard / Charlotte County Airport / Wolfgang Bohringer / Luai Sakra / Omar "Blind Sheikh" Abdel-Rahman's network); United States Federal Government / German Federal Government associates (Carl Duisberg Society); Saudi Arabian Monarchical Government contractor associate (Esam Abbas Ghazzawi); Saudi Arabian Ministry of Foreign Affairs / General Intelligence Directorate (GID) associate (Mohammed Rafique Quadir Harunani); United States Central Intelligence Agency (CIA) / Pakistani Inter-Services Intelligence (ISI) associate (Omar Saeed Sheikh); German Federal Office for the Protection of the Constitution (BfV) associate (Mohammed Haydar Zammar); German Army associate (Said Bahaji)
@@ -120,7 +118,7 @@ United States Central Intelligence Agency (CIA) associate (Luai Sakra)
 
 -------------------------------------------------------------------------------
 
-UNITED AIRLINES FLIGHT 175 HIJACKERS (WTC 2, SOUTH TOWER):
+**UNITED AIRLINES FLIGHT 175 HIJACKERS (WTC 2, SOUTH TOWER):**
 
 **Marwan al-Shehhi**\
 United Arab Emirates Army; United Arab Emirates Police half-brother; United States Central Intelligence Agency (CIA) associates (Mohamedou Ould Slahi - Operation Cyclone / Rudi Dekkers / Wallace Hilliard / Charlotte County Airport / Omar "Blind Sheikh" Abdel-Rahman's network / Mohamedou Ould Slahi - Operation Cyclone); Saudi Arabian Monarchical Government / House of Saud contractor associate (Esam Abbas Ghazzawi); Saudi Arabian Ministry of Foreign Affairs / General Intelligence Directorate (GID) associate (Mohammed Rafique Quadir Harunani); German Federal Office for the Protection of the Constitution (BfV) associate (Mohammed Haydar Zammar); German Army associate (Said Bahaji)
@@ -139,7 +137,7 @@ United States Central Intelligence Agency (CIA) associates (Luai Sakra / US Cons
 
 -------------------------------------------------------------------------------
 
-AMERICAN AIRLINES FLIGHT 77 HIJACKERS (PENTAGON):
+**AMERICAN AIRLINES FLIGHT 77 HIJACKERS (PENTAGON):**
 
 **Hani Hanjour**\
 United States Central Intelligence Agency (CIA) associates (Operation Cyclone / US Consulate in Jeddah / Omar "Blind Sheikh" Abdel-Rahman's network); Israel Defense Forces (IDF) associate (Eddie Shalev); Saudi Arabian General Intelligence Directorate (GID) associate (Omar al-Bayoumi); Saudi Arabian Monarchical Government / General Intelligence Directorate (GID) associate (Saleh Ibn Abdul Rahman Hussayen)
@@ -158,7 +156,7 @@ United States Central Intelligence Agency (CIA) associates (US Consulate in Jedd
 
 -------------------------------------------------------------------------------
 
-UNITED AIRLINES FLIGHT 93 HIJACKERS (FIELD IN SHANKSVILLE, PA):
+**UNITED AIRLINES FLIGHT 93 HIJACKERS (FIELD IN SHANKSVILLE, PA):**
 
 **Ziad Jarrah**\
 Lebanese Government father / uncle (Samir Jarrah / Gazi Jarrah - social security system officials); Israeli Institute for Intelligence and Special Operations (Mossad) paternal cousins (Ali Jarrah / Yusuf Jarrah); East German State Security Service (Stasi) / German Federal Intelligence Service (BND) paternal cousin (Assem Jarrah); Lebanese Government paternal uncle (Jamal Jarrah - Saudi-backed Lebanese Prime Minister Rafik Hariri / Saudi-backed Lebanese Future Movement); Lebanese Government family relative (Nesim Jarrah - senior customs officer); United States Special Operations Forces (SOF) / Central Intelligence Agency (CIA) associates (US 1 Fitness Center / Bert Rodriguez); United States Central Intelligence Agency (CIA) associates (Mohamedou Ould Slahi - Operation Cyclone / Huffman Aviation / Arne Kruithof / Omar "Blind Sheikh" Abdel-Rahman's network); Saudi Arabian Monarchical Government / Saudi House of Saud contractor associate (Esam Abbas Ghazzawi); German Federal Office for the Protection of the Constitution (BfV) associate (Mohammed Haydar Zammar); German Army associate (Said Bahaji)
@@ -1301,7 +1299,7 @@ Source(s):
 >
 >On 14 August 2012, several Norwegian politicians and media outlets received an email from someone claiming to be Breivik's "deputy", demanding that Breivik be released and making more threats against Norwegian society.[337]
 
-=============================================================================================================================
+------------------------------------
 
 [Air Vietnam Flight 706 bombing](https://en.wikipedia.org/wiki/Air_Vietnam_Flight_706)\
 Phan Rang, South Vietnam\
@@ -1316,7 +1314,7 @@ Source(s):
 1. [Air Vietnam Flight_706 - Hijack](https://en.wikipedia.org/wiki/Air_Vietnam_Flight_706#Hijack)
 >Le Duc Tan, a ranger in the South Vietnamese army who had recently been demoted from captain to lieutenant for the theft of two cars in Da Nang
 
-=============================================================================================================================
+------------------------------------
 
 [Cubana de Aviación Flight 455 bombing](https://en.wikipedia.org/wiki/Cubana_de_Aviaci%C3%B3n_Flight_455)\
 Bridgetown, Barbados\
@@ -1331,7 +1329,7 @@ Source(s):
 1. [Coordination of United Revolutionary Organizations](https://en.wikipedia.org/wiki/Coordination_of_United_Revolutionary_Organizations)
 >The Coordination of United Revolutionary Organizations (Spanish: Coordinación de Organizaciones Revolucionarias Unidas, CORU) was a militant group responsible for a number of terrorist activities directed at the Cuban government of Fidel Castro. It was founded by a group that included Orlando Bosch and Luis Posada Carriles, both of whom worked with the CIA at various times, and was composed chiefly of Cuban exiles opposed to the Castro government. It was formed in 1976 as an umbrella group for a number of anti-Castro militant groups. Its activities included a number of bombings and assassinations, including the killing of human-rights activist Orlando Letelier in Washington, D.C., and the bombing of Cubana Flight 455 which killed 73 people.
 
-=============================================================================================================================
+------------------------------------
 
 [Westgate shopping mall attack](https://en.wikipedia.org/wiki/Westgate_shopping_mall_attack)\
 Nairobi, Kenya\
@@ -1346,7 +1344,7 @@ Source(s):
 1. [Samantha Lewthwaite - Early life](https://en.wikipedia.org/wiki/Samantha_Lewthwaite#Early_life)
 >Lewthwaite was born to parents Andrew and Elizabeth Christine (née Allen) Lewthwaite in Banbridge, County Down in 1983.[16][17][18] Her father is a former British Army soldier who served in the 9th/12th Royal Lancers and had met her mother while he was stationed in Northern Ireland in the 1970s.[19][20][21]
 
-=============================================================================================================================
+------------------------------------
 
 [2017 Las Vegas shooting](https://en.wikipedia.org/wiki/2017_Las_Vegas_shooting)\
 Paradise, Nevada\
@@ -1380,7 +1378,7 @@ Source(s):
 >[...]\
 >The circumstances of why Paddock was prescribed diazepam or if he took it the day of or leading up to the massacre are not known at this time. It is also unknown if the shooter was prescribed or on any other medications.
 
-=============================================================================================================================
+------------------------------------
 
 [2003 Istanbul bombings](https://en.wikipedia.org/wiki/2003_Istanbul_bombings)\
 Istanbul, Turkey\
@@ -1395,7 +1393,7 @@ Source(s):
 1. [2000: Al-Qaeda Operative Allegedly Turns Informant for CIA and Other Intelligence Agencies](http://web.archive.org/web/20180114085931/http://historycommons.org/entity.jsp?entity=luai_sakra_1)
 >Al-Qaeda operative Luai Sakra apparently begins working as an informant for the CIA, Syrian intelligence, and Turkish intelligence. Sakra, a young Syrian whose parents were Turkish, attended the Khaldan training camp in Afghanistan in 1997. He developed a bond with Abu Zubaida, the al-Qaeda leader who was logistics manager for the camp. Zubaida will later be captured and interrogated by the CIA and will reportedly confirm a link with Sakra. Zubaida tasked Sakra with building up an al-Qaeda network in Turkey. In 1999, the Syrian government began hunting him for his role in a revolt in a Lebanon refugee camp. [DER SPIEGEL (HAMBURG), 8/24/2005] The Turkish newspaper Zaman will report shortly after his capture in 2005, “Sakra has been sought by the secret services since 2000.” The CIA interrogated him twice in 2000. “Following the interrogation, the CIA offered him employment. He also received a large sum of money by the CIA. However the CIA eventually lost contact with him. Following this development, in 2000 the CIA passed intelligence about Sakra through a classified notice to Turkey, calling for the Turkish (intelligence) to capture him. [They] caught Sakra in Turkey and interrogated him.” [ZAMAN, 8/14/2005] Sakra was then apparently let go again. He will then move Germany and assist some of the 9/11 hijackers (see September 2000-July 24, 2001), then reveal details about the 9/11 attacks to Syrian intelligence the day before 9/11 (see September 10, 2001). He also will later claim to have trained some 9/11 hijackers in Turkey starting in late 1999 (see Late 1999-2000). In 2007, former CIA Director George Tenet will write in his book “At the Center of the Storm” that “a source we were jointly running with a Middle Eastern country went to see his foreign handler and basically told him something big was about to go down.” [TENET, 2007, PP. 160] This is very likely a reference to Sakra, since no one else comes close to matching the description of telling a Middle Eastern government about the 9/11 attacks one day in advance, not to mention working as an informant for the CIA at the same time. Tenet’s revelation strongly supports the notion that Sakra in fact accepted the CIA’s offers in 2000 and had been working with the CIA and other intelligence agencies at least through 9/11.
 
-=============================================================================================================================
+------------------------------------
 
 [1982 Uiryeong County shooting](https://en.wikipedia.org/wiki/Woo_Bum-kon)\
 Uiryeong County, South Korea\
@@ -1410,7 +1408,7 @@ Source(s):
 1. [Woo Bum-kon - Background](https://en.wikipedia.org/wiki/Woo_Bum-kon#Background)
 >Woo Bum-kon had served in the Republic of Korea Marine Corps, where he was recognised as a skilled marksman until his discharge in 1978.[3] From April 11 until December 30 of 1981, he served as a police officer and, with his marksmanship ability, was able to work as a guard at the Blue House.[4] However, Woo's excessive drinking habits and subsequent behavior caused him to be demoted to his position at Kungyu Village in Uiryeong County, South Gyeongsang Province.[5]
 
-=============================================================================================================================
+------------------------------------
 
 [William Unek murder sprees](https://en.wikipedia.org/wiki/William_Unek#Murder_sprees)\
 Mahagi / Malampaka, Belgian Congo\
@@ -1425,7 +1423,7 @@ Source(s):
 1. [William Unek - Wikipedia](https://en.wikipedia.org/wiki/William_Unek)
 >William Unek was a Belgian Congo police constable and mass murderer, spree killer, and serial killer who killed a total of 57 people in two separate spree killings three years apart.
 
-=============================================================================================================================
+------------------------------------
 
 7 [July 2005 London bombings](https://en.wikipedia.org/wiki/7_July_2005_London_bombings)\
 London, England\
@@ -1495,7 +1493,7 @@ Source(s):
 1. [Luc Jouret - Wikipedia](https://en.wikipedia.org/wiki/Luc_Jouret)
 >Two years after graduation, in 1976, he joined the Belgian Army and became a paratrooper. While in the army he participated in the Battle of Kolwezi, a joint French and Belgian airborne operation which resulted in the liberation of hostages from the city of Kolwezi.[2]
 
-=============================================================================================================================
+------------------------------------
 
 [Christchurch mosque shootings](https://en.wikipedia.org/wiki/Christchurch_mosque_shootings)\
 Christchurch, New Zealand\
@@ -1547,7 +1545,7 @@ Source(s):
 >[...]\
 >In 1945, Jones represented Lions Clubs International as a consultant at the United Nations Conference on International Organization in San Francisco.
 
-=============================================================================================================================
+------------------------------------
 
 [Orlando nightclub shooting](https://en.wikipedia.org/wiki/Orlando_nightclub_shooting)\
 Orlando, Florida\
@@ -1788,7 +1786,7 @@ Source(s):
 >
 >The FBI launched an investigation into Mateen after Sheriff's Office officials reported the incident to the agency. As part of its investigation, the FBI examined Mateen's travel history, phone records, acquaintances and even planted a confidential informant in the courthouse to "lure Omar into some kind of act and Omar did not bite," Mascara said. The FBI concluded Mateen was not a threat after that, Mascara said.
 	
-=============================================================================================================================
+------------------------------------
 
 [Saltville massacre](https://en.wikipedia.org/wiki/First_Battle_of_Saltville#Saltville_Massacre)\
 Smyth County, Virginia\
@@ -1799,7 +1797,7 @@ Perpetrator(s):\
 **Felix Huston Robertson**\
 Confederate States Army (CSA)
 
-=============================================================================================================================
+------------------------------------
 
 [2016 Atatürk Airport attack](https://en.wikipedia.org/wiki/2016_Atat%C3%BCrk_Airport_attack)\
 Istanbul, Turkey\
@@ -1828,7 +1826,7 @@ Source(s):
 >
 >One consequence of the program has been a flood of US weapons including assault rifles, mortars and rocket-propelled grenades into the Middle East's black market. Critics saw it as ineffective and expensive, and raised concerns about diversion of weapons to jihadist groups and about Timber Sycamore-backed rebels fighting alongside the al-Nusra Front.[9]
 
-=============================================================================================================================
+------------------------------------
 
 [Bath School disaster](https://en.wikipedia.org/wiki/Bath_School_disaster)\
 Bath Township, Michigan\
@@ -1846,7 +1844,7 @@ Source(s):
 2. [Andrew Philip Kehoe - Victims](https://murderpedia.org/male.K/k/kehoe-andrew-victims.htm)
 >Emory E. Huyck, born in Butternut, Michigan, July 3, 1894, graduated from Carson City High School and went some to the Ferris Institute. After spending some time in the army during the World War, he entered the Michigan State College at East Lansing, January, 1919, taking Bachelor's degree and agriculture. Mr. Huyck graduated on June 21, 1922, taking a position as superintendent of the Bath Consolidated School the same summer. He held the job until he was killed, May 18, 1927, by Andrew Kehoe.
 
-=============================================================================================================================
+------------------------------------
 
 [Royal Air Maroc Flight 630 suicide crash](https://en.wikipedia.org/wiki/Royal_Air_Maroc_Flight_630)\
 Douar Izounine, Morocco\
@@ -1865,7 +1863,7 @@ Source(s):
 >
 >From its base at Mohammed V International Airport,[6] the carrier operates a domestic network in Morocco, scheduled international flights to Africa, Asia, Europe, and North and South America, and occasional charter flights that include Hajj services.[7]
 
-=============================================================================================================================
+------------------------------------
 
 [Pacific Air Lines Flight 773 shooting](https://en.wikipedia.org/wiki/Pacific_Air_Lines_Flight_773)\
 Contra Costa County, California\
@@ -1880,7 +1878,7 @@ Source(s):
 1. [Francisco Gonzales - Wikipedia](https://en.wikipedia.org/wiki/Francisco_Gonzales)
 >He competed in the Dragon event together with Fausto Preysler and Jesus Villareal at the 1960 Summer Olympics. After the Olympics he moved to San Francisco, United States.
 
-=============================================================================================================================
+------------------------------------
 
 [Pacific Southwest Airlines Flight 1771 shooting](https://en.wikipedia.org/wiki/Pacific_Southwest_Airlines_Flight_1771)\
 San Luis Obispo County, California\
@@ -1897,7 +1895,7 @@ Source(s):
 
 2. [USAir's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=%22USAirways%22+United+States+Department+of+Defense+Civil+Reserve+Air+Fleet)
 
-=============================================================================================================================
+------------------------------------
 
 [Istanbul nightclub shooting](https://en.wikipedia.org/wiki/Istanbul_nightclub_shooting)\
 Istanbul, Turkey\
@@ -1922,7 +1920,7 @@ Source(s):
 >
 >One consequence of the program has been a flood of US weapons including assault rifles, mortars and rocket-propelled grenades into the Middle East's black market. Critics saw it as ineffective and expensive, and raised concerns about diversion of weapons to jihadist groups and about Timber Sycamore-backed rebels fighting alongside the al-Nusra Front.[9]
 
-=============================================================================================================================
+------------------------------------
 
 [2015 Sousse attacks](https://en.wikipedia.org/wiki/2015_Sousse_attacks)\
 Sousse, Tunisia\
@@ -1955,7 +1953,7 @@ http://web.archive.org/web/20201030171821/http://historycommons.org/context.jsp?
 >
 >Meetings Apparently Continue - Reportedly, after Qatada’s February 1997 meeting with the British agent, no further such meetings occur. [SPECIAL IMMIGRATION APPEALS COMMISSION, 1/2004 pdf file] However, some French officials later allege that Qatada continues to be an MI5 agent, and this is what allows him to avoid arrest after 9/11 (see Early December 2001). [OBSERVER, 2/24/2002] It will later emerge that Bisher al-Rawi, a friend of Qatada, served as an informant and a go-between MI5 and Qatada in numerous meetings between late 2001 and 2002, when Qatada is finally arrested (see Late September 2001-Summer 2002). Furthermore, al-Rawi says he served as a translator between MI5 and Qatada before 9/11, suggesting that Qatada never stopped being an informant. [OBSERVER, 7/29/2007]
 
-=============================================================================================================================
+------------------------------------
 
 [Heaven's Gate mass suicide](https://en.wikipedia.org/wiki/Heaven's_Gate_(religious_group)#Mass_suicide)\
 Rancho Santa Fe, California\
@@ -1970,7 +1968,7 @@ Source(s):
 1. [Marshall Applewhite - Early life and education](https://en.wikipedia.org/wiki/Marshall_Applewhite#Early_life_and_education)
 >In 1954, Applewhite was drafted by the United States Army and served in Austria and New Mexico as a member of the Army Signal Corps.[7] He left the military in 1956[.]
 
-=============================================================================================================================
+------------------------------------
 
 [2016 Brussels bombings](https://en.wikipedia.org/wiki/2016_Brussels_bombings)\
 Brussels, Belgium\
@@ -1996,7 +1994,7 @@ Source(s):
 >
 >One consequence of the program has been a flood of US weapons including assault rifles, mortars and rocket-propelled grenades into the Middle East's black market. Critics saw it as ineffective and expensive, and raised concerns about diversion of weapons to jihadist groups and about Timber Sycamore-backed rebels fighting alongside the al-Nusra Front.[9]
 
-=============================================================================================================================
+------------------------------------
 
 [Port Arthur massacre](https://en.wikipedia.org/wiki/Port_Arthur_massacre_(Australia))\
 Port Arthur, Australia\
@@ -2051,7 +2049,7 @@ Source(s):
 8. [John Rawlings Rees - The end of the War and Operation Phoenix](https://en.wikipedia.org/wiki/John_Rawlings_Rees#The_end_of_the_War_and_Operation_Phoenix)
 >After the war, the Tavistock Clinic underwent considerable changes, in which Rees played a key role. He was a member of a group who referred to themselves as the ‘invisible college’, in reference to the 17th century precursor to the Royal Society.[8] This group orchestrated "Operation Phoenix", making plans for Tavistock to rise from the ashes of war. After the war, this group, including Rees and five others, formed the Interim Planning Committee of the Tavistock Clinic. This committee was chaired by Wilfred Bion, meeting twice a week to formulate a new way forward for their work at Tavistock, based on war-time experience.[3] Rees’ plans for the Institute of Medical Psychology were never realised; instead, the group went on to found the Tavistock Institute, with funding from the Rockefeller Foundation. Rees left shortly afterwards in 1947.
 
-=============================================================================================================================
+------------------------------------
 
 [Mikenskaya shootings](https://en.wikipedia.org/wiki/Mikenskaya_shootings)\
 Mikenskaya, Chechnya\
@@ -2076,7 +2074,7 @@ Source(s):
 3. [Ministry of Digital Development, Communications and Mass Media (Russia)](https://en.wikipedia.org/wiki/Ministry_of_Digital_Development,_Communications_and_Mass_Media_(Russia))
 >The Ministry of Digital Development, Communications and Mass Media of the Russian Federation[2] (Russian: Министерство цифрового развития, связи и массовых коммуникаций Российской Федерации), also known as MinTsifry Rossii (Russian: Минцифры России[3]), is a ministry of the Government of Russia responsible for telecommunications, media and the post.
 
-=============================================================================================================================
+------------------------------------
 
 [Virginia Tech shooting](https://en.wikipedia.org/wiki/Virginia_Tech_shooting)\
 Blacksburg, Virginia\
@@ -2119,7 +2117,7 @@ Source(s):
 7. [Seung-Hui Cho - Review of Cho's medical records](https://en.wikipedia.org/wiki/Seung-Hui_Cho#Review_of_Cho's_medical_records)
 >The investigation panel had sought Cho's medical records for several weeks, but due to privacy laws, Virginia Tech was prohibited from releasing them without permission from Cho's family, even after his death.[112] The panel had considered using subpoenas to obtain his records. On June 12, 2007, Cho's family released his medical records to the panel, although the panel said that the records were not enough.[113][114] The panel obtained additional information by court order.[115] Cho had been prescribed paroxetine years before the shooting but had been taken off it after one year.[18] The toxicology test from the official autopsy later showed that neither psychiatric nor any kind of illegal drugs were in his system during the time of the shooting.[116]
 
-=============================================================================================================================
+------------------------------------
 
 [Akshardham Temple attack](https://en.wikipedia.org/wiki/Akshardham_Temple_attack)\
 Gujarat, India\
@@ -2134,7 +2132,7 @@ Source(s):
 1. [Gujarat High Court upholds death sentence in Akshardham Temple attack](https://www.ndtv.com/india-news/gujarat-high-court-upholds-death-sentence-in-akshardham-temple-attack-419574)
 >All accused were alleged to have links with banned terrorist organisation like Jaish-e-Mohammad and Lashkar-e-Taiba. Some were also alleged to be linked to Pakistan intelligence agency Inter-Services Intelligence (ISI).
 
-=============================================================================================================================
+------------------------------------
 
 [Tsuyama massacre](https://en.wikipedia.org/wiki/Tsuyama_massacre)\
 Kamo, Japan\
@@ -2152,7 +2150,7 @@ Source(s):
 2. [After failing the medical examination for joining the army, he killed 30 people in one day, and only one person was spared in the end](https://min.news/en/world/df1666181f03b13c6ae9eac2f6e1b299.html)
 	In 1937, Japan launched a full-scale war of aggression against China. The Japanese government began to call on the young and middle-aged in Japan to enlist in the army. Toi Mutsuo also came to the enlistment office to undergo an enlistment test. However, I don't know if he was infected by his parents, and Mutsuo Toi was also diagnosed with tuberculosis. Therefore, the conscription office assessed Mutsuo Toi's physical condition as "Class C" (equivalent to unqualified) and rejected his application to join the army.
 
-=============================================================================================================================
+------------------------------------
 
 [Cave of the Patriarchs massacre](https://en.wikipedia.org/wiki/Cave_of_the_Patriarchs_massacre)\
 Hebron, Occupied Palestinian Territories\
@@ -2167,7 +2165,7 @@ Source(s):
 1. [Baruch Goldstein - Immigration to Israel](https://en.wikipedia.org/wiki/Baruch_Goldstein#Immigration_to_Israel)
 >Goldstein immigrated to Israel in 1983.[1] He served as a physician in the Israel Defense Forces (IDF), first as a conscript, then in the reserve forces. Following the end of his active duty, Goldstein worked as a physician, and lived in the Israeli settlement of Kiryat Arba near Hebron, where he worked as an emergency doctor, and was involved in treating victims of Arab-Israeli violence.[12] He changed his name from Benjamin to Baruch, married a Soviet immigrant named Miriam,[13] and had four children. Israeli press reports claimed that Goldstein refused to treat Arabs, even Arab soldiers serving in the IDF, believing it was against Jewish laws to treat non-Jews even for payment.[14][15] This was also reflected in comments by his acquaintances.[16] Goldstein was active in Kahane's Kach party, and was third on the party list for the Knesset during the 1984 elections.[17] He compared Israel's democracy to the Nazi regime, and was in the habit of wearing a yellow star with the word JUDE on it.[18]
 
-=============================================================================================================================
+------------------------------------
 
 [Nakhon Ratchasima shootings](https://en.wikipedia.org/wiki/Nakhon_Ratchasima_shootings)\
 Nakhon Ratchasima Province, Thailand\
@@ -2184,7 +2182,7 @@ Source(s):
 >
 >Thomma's acquaintances said he was upset over being allegedly cheated out of a property deal and not being given back his money by his commanding officer, Colonel Anantharot Krasae, and Krasae's mother-in-law, who were both shot dead. During the livestream of the shooting, Thomma shouted, "Rich from cheating and taking advantage of people ... Do they think they can take money to spend in hell?"[11]
 
-=============================================================================================================================
+------------------------------------
 
 [Restaurant Pozzetto shooting](https://en.wikipedia.org/wiki/Campo_El%C3%ADas_Delgado#Killing_spree)\
 Bogota, Colombia\
@@ -2201,7 +2199,7 @@ Source(s):
 >
 >Fellow soldier Art Fealey, claims to have met Delgado in the 5th Infantry, 3rd Battalion while in the Panama Canal Zone in 1975. He said Delgado was later stationed at the Army's medical center in El Paso, Texas, until 1978.[2]
 
-=============================================================================================================================
+------------------------------------
 
 [Jian'guo Gate shooting](https://en.wikipedia.org/wiki/Tian_Mingjian_incident)\
 Beijing, China\
@@ -2216,7 +2214,7 @@ Source(s):
 1. [Jian'guo Gate shooting - Background](https://en.wikipedia.org/wiki/Tian_Mingjian_incident#Background)
 >Tian Mingjian (born in 1964) was a first lieutenant stationed at an army base in Tongxian County, a suburb of Beijing. He had been in the military for over ten years, originally as a sharpshooter and was highly skilled in the military technology field. He was once promoted to regimental staff officer for military affairs but due to his bad temper and irritability was eventually demoted to acting company commander. At the time of the shooting he served in this position in the 12th Regiment of the 3rd Guard Division of PLA Beijing Garrison [zh].[4] He was said to have violated discipline by beating other soldiers and had a grievance against his superiors for being reprimanded about this.
 
-=============================================================================================================================
+------------------------------------
 
 [Sandy Hook Elementary School shooting](https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting)\
 Newtown, Connecticut\
@@ -2276,7 +2274,7 @@ Source(s):
 >
 >Agents then apparently told Nancy Lanza that if her son was that smart, he could have a job with them someday. The FBI Tuesday found no immediate record of a contact with Lanza prior to the shooting.
 
-=============================================================================================================================
+------------------------------------
 
 [Sutherland Springs church shooting](https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting)\
 Sutherland Springs, Texas\
@@ -2305,7 +2303,7 @@ In June 2012, Kelley escaped from Peak Behavioral Health Services but was soon a
 3. [Peak Behavioral Health Services - Military Services](https://www.peakbehavioral.com/who-we-help/military/)
 >The Military Recovery Program at Peak Behavioral Health Services' campus treats all branches of the military and veterans. The Mission Recovery Program’s goal is for the service member to be capable of returning to duty while having addressed the issues that initially brought them to our facility; providing each individual with the necessary tools to achieve a more productive and fulfilling life. We are honored to treat those service members who have served our country and we have developed a military mental health program to meet each individual's unique needs.
 
-=============================================================================================================================
+------------------------------------
 
 [Kampala wedding massacre](https://en.wikipedia.org/wiki/Kampala_wedding_massacre)\
 Naguru, Uganda\
@@ -2321,7 +2319,7 @@ Ugandan Military Police
 >
 >Komakech eventually attempted to commit suicide with his rifle by shooting himself in the mouth, though he suffered only wounds to his forehead and pretended to be dead until police arrived. Although officers who apprehended Komakech tried to prevent the guests from killing him, Irene Ati's father managed to break through the police cordon and killed Komakech by smashing in his skull.
 
-=============================================================================================================================
+------------------------------------
 
 [Senlis massacre](https://fr-m-wikipedia-org.translate.goog/wiki/Louis_Michel_Rieul_Billon?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)\
 Senlis, France\
@@ -2336,7 +2334,7 @@ Source(s):
 1. [Senlis massacre (Translated from the French)](https://fr-m-wikipedia-org.translate.goog/wiki/Louis_Michel_Rieul_Billon?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)
 >Louis Michel Rieul Billon (or Rieul-Michel Billon, known as the watchmaker Billon ), born in Senlis (Oise) onSeptember 7, 1750and died in this same city onDecember 13, 1789, is a watchmaker , member of the company of the Knights of the Arquebuse [ 1 ] (before its integration into the National Guard , in 1790) from which he would have been excluded because of usury .
 
-=============================================================================================================================
+------------------------------------
 
 [Luby's Cafeteria shooting](https://en.wikipedia.org/wiki/Luby's_shooting)\
 Killeen, Texas\
@@ -2358,7 +2356,7 @@ Source(s):
 >
 >Around two months before the shooting, Hennard entered a convenience store in Belton to buy breakfast. Mead, the clerk of the store, claimed that Hennard had leaned over the counter and said, "I want you to tell everybody, if they don't quit messing around my house something awful is going to happen."[7]
 
-=============================================================================================================================
+------------------------------------
 
 [Giska school bombing](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A2%D0%B5%D1%80%D0%B0%D0%BA%D1%82_%D0%B2_%D1%88%D0%BA%D0%BE%D0%BB%D0%B5_%E2%84%96_20?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)\
 Giska, Soviet Union\
@@ -2375,7 +2373,7 @@ Source(s):
 >
 >In autumn 1949 Tatarnikov arrived in Moldova . In search of work, he arrived in Bendery , where on September 15 he met the head of the district department of DOSARM (later DOSAAF ) Sedenko, who told him that they might be recruiting miners. Having not settled anywhere, in October Tatarnikov came to Sedenko and was hired, after which he simultaneously worked as a miner in the DOSARM and as a military instructor (teacher of military affairs) at school No. 20 in the village of Gyska .
 
-=============================================================================================================================
+------------------------------------
 
 [Haditha massacre](https://en.wikipedia.org/wiki/Haditha_massacre)\
 Haditha, Iraq\
@@ -2386,7 +2384,7 @@ Perpetrator(s):\
 **Squad from K Company, 3rd Battalion 1st Regiment, 1st Marine Division**\
 United States Marine Corps (USMC)
 
-=============================================================================================================================
+------------------------------------
 
 [2017 Barcelona attacks](https://en.wikipedia.org/wiki/2017_Barcelona_attacks)\
 La Rambla / Barcelona / Cambrils / Catalonia, Spain\
@@ -2423,7 +2421,7 @@ Source(s):
 
 4. [Scandal erupts over Público exposure of state complicity in Barcelona attack - Part III: The class issues posed by state foreknowledge of Islamist attacks](https://www.wsws.org/en/articles/2019/09/12/pub3l-s12.html)
 
-=============================================================================================================================
+------------------------------------
 
 [Manchester Arena bombing](https://en.wikipedia.org/wiki/Manchester_Arena_bombing)\
 Manchester, England\
@@ -2512,7 +2510,7 @@ Source(s):
 
 6. ['Sorted' by MI5: How UK government sent British-Libyans to fight Gaddafi](https://www.middleeasteye.net/news/sorted-mi5-how-uk-government-sent-british-libyans-fight-gaddafi)
 
-=============================================================================================================================
+------------------------------------
 
 [2000 Jarafa mosque massacre](https://en.wikipedia.org/wiki/2000_Jarafa_mosque_massacre)\
 Jarafa, Sudan\
@@ -2532,7 +2530,7 @@ Source(s):
 >
 >The force had close links with the National Islamic Front associated with former president Omar al-Bashir, and was originally formed as a dedicated Islamist militia. In 2015, the PDF largely operated as a reserve force for the Sudanese Armed Forces.[2] Upon its foundation in 1989, several tribal militias throughout Sudan were integrated into the PDF, including the Messiria tribe's murahiliin, the Rizeigat tribe's fursan, and the Fertit Army of Peace.[3]
 
-=============================================================================================================================
+------------------------------------
 
 [2019 El Paso shooting](https://en.wikipedia.org/wiki/2019_El_Paso_shooting)\
 El Paso, Texas\
@@ -2561,7 +2559,7 @@ Source(s):
 
 2. [Universal Health Services' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Universal+Health+Services+Department+of+Defense)
 
-=============================================================================================================================
+------------------------------------
 
 [2020 Nova Scotia attacks](https://en.wikipedia.org/wiki/2020_Nova_Scotia_attacks)\
 Nova Scotia, Canada\
@@ -2694,7 +2692,7 @@ Source(s):
 >
 >He confirmed that police had interviewed retired RCMP officers who were related to Wortman, but Campbell said there was no indication they offered any help to the shooter.
 
-=============================================================================================================================
+------------------------------------
 
 [Canadian Pacific Air Lines Flight 108 bombing](https://en.wikipedia.org/wiki/Albert_Guay#Flight_108)\
 Cap Tourmente, Quebec\
@@ -2711,7 +2709,7 @@ Source(s):
 
 2. [Canadian Arsenals Limited's Connections to the Canadian Department of National Defence - Google](https://www.google.com/search?q=Canadian+Arsenals+Limited+WW2)
 
-=============================================================================================================================
+------------------------------------
 
 [San Ysidro McDonald's massacre](https://en.wikipedia.org/wiki/San_Ysidro_McDonald%27s_massacre)\
 San Diego, California\
@@ -2759,7 +2757,7 @@ Source(s):
 9. [Mass murderer: 'always very sad and very lonely'](https://www.upi.com/Archives/1984/07/22/Mass-murderer-always-very-sad-and-very-lonely/4891459316800/)
 >Three years later he was back in Canton, a welder at Babcock and Wilcox, which made replacement parts for the steel industry. There he earned seniority. This good stretch lasted 13 years. [...] Huberty qualified for a federally funded security guard training program as a low income, unemployed applicant, and on April 12 was issued a permit by the Bureau of Collections and Investigative Services to carry a .38 caliber revolver or a .357 magnum on duty. Huberty got a job guarding a condominium construction project but was fired July 10. 'But that did not seem to worry him too much at the time,' said his wife.
 
-=============================================================================================================================
+------------------------------------
 
 [Robb Elementary School shooting](https://en.wikipedia.org/wiki/Robb_Elementary_School_shooting)\
 Uvalde, Texas\
@@ -2784,7 +2782,7 @@ Source(s):
 3. [Salvador Ramos: Everything we know about Texas school mass shooter](https://www.independent.co.uk/news/world/americas/crime/salvador-ramos-texas-shooter-texts-autopsy-b2090112.html)
 >She said [Ramos] once told a friend who wanted to join the Marines that he only had that goal because then he would be able to kill people. The boy ended the friendship then and there.
 
-=============================================================================================================================
+------------------------------------
 
 [Nainital wedding massacre](https://en.wikipedia.org/wiki/Nainital_wedding_massacre)\
 Nainital, India\
@@ -2801,7 +2799,7 @@ Source(s):
 >
 >The man, who was armed with a machete, was enraged by a low caste money lender marrying a girl of the higher social standing Brahmin caste, and stabbed the Harijan members. All of his victims were members of the Harijan caste.[1][2][3][4]
 
-=============================================================================================================================
+------------------------------------
 
 [Ponce massacre](https://en.wikipedia.org/wiki/Ponce_massacre)\
 March 21, 1937\
@@ -2812,7 +2810,7 @@ Perpetrator(s):\
 **Blanton C. Winship**\
 United States Army (USA); Spanish–American War / Pancho Villa Expedition / World War I (WWI) / World War II (WWII) veteran; Governor of Puerto Rico
 
-=============================================================================================================================
+------------------------------------
 
 [Kerch Polytechnic College massacre](https://en.wikipedia.org/wiki/Kerch_Polytechnic_College_massacre)\
 Kerch, Russia\
@@ -2833,7 +2831,7 @@ Source(s):
 >[...]\
 >Despite previously considering joining the military, Roslyakov expressed disdain at the prospect of joining the armed forces.49
 
-=============================================================================================================================
+------------------------------------
 
 [Ugandan funeral shooting](https://www.nytimes.com/1983/04/16/world/16-killed-at-ugandan-funeral.html)\
 November 6, 1995\
@@ -2848,7 +2846,7 @@ Source(s):
 1. [16 Killed at Ugandan Funeral](https://www.nytimes.com/1983/04/16/world/16-killed-at-ugandan-funeral.html)
 >A Ugandan special forces policeman went berserk and shot and killed 16 people at the funeral of a colleague before committing suicide, the police said today.
 
-=============================================================================================================================
+------------------------------------
 
 [January 2015 Île-de-France attacks](https://en.wikipedia.org/wiki/January_2015_%C3%8Ele-de-France_attacks)\
 Paris / Dammartin-en-Goële / Montrouge, France\
@@ -2893,7 +2891,7 @@ http://web.archive.org/web/20201030171821/http://historycommons.org/context.jsp?
 >
 >Meetings Apparently Continue - Reportedly, after Qatada’s February 1997 meeting with the British agent, no further such meetings occur. [SPECIAL IMMIGRATION APPEALS COMMISSION, 1/2004 pdf file] However, some French officials later allege that Qatada continues to be an MI5 agent, and this is what allows him to avoid arrest after 9/11 (see Early December 2001). [OBSERVER, 2/24/2002] It will later emerge that Bisher al-Rawi, a friend of Qatada, served as an informant and a go-between MI5 and Qatada in numerous meetings between late 2001 and 2002, when Qatada is finally arrested (see Late September 2001-Summer 2002). Furthermore, al-Rawi says he served as a translator between MI5 and Qatada before 9/11, suggesting that Qatada never stopped being an informant. [OBSERVER, 7/29/2007]
 
-=============================================================================================================================
+------------------------------------
 
 [Tsukui Yamayuri En stabbings](https://en.wikipedia.org/wiki/Sagamihara_stabbings)\
 Sagamihara, Japan\
@@ -2913,7 +2911,7 @@ Sagamihara Municipal Government employer (Tsukui Yamayuri En care facility); Jap
 3. [Sagamihara stabbings - Letter and statements](https://en.wikipedia.org/wiki/Sagamihara_stabbings#Letter_and_statements)
 >In February 2016, Uematsu attempted to hand-deliver a letter to Tadamori Ōshima, the Speaker of the House of Representatives of Japan, at Ōshima's home in Tokyo but was prevented from doing so by security. He returned the following day and this time left the letter with the security guards.[19] Uematsu's letter appealed for the legalization of ending the lives of those with multiple disabilities in cases where it was requested by their guardians, and asked for Ōshima's assistance in delivering his message to Japanese Prime Minister Shinzō Abe. In it, he wrote, "I envision a world where a person with multiple disabilities can be euthanised, with an agreement from the guardians, when it is difficult for the person to carry out household and social activities."[22] He also wrote that the killings of the disabled would be "for the sake of Japan and world peace" as well as to benefit the global economy and prevent World War III.[3][23]
 
-=============================================================================================================================
+------------------------------------
 
 [University of Texas tower shooting](https://en.wikipedia.org/wiki/University_of_Texas_tower_shooting)\
 Austin, Texas\
@@ -2959,7 +2957,7 @@ https://www.findagrave.com/memorial/70890358/john-paul-hodges
 8. [William Michael Hodges Jr. - Find a Grave](https://www.findagrave.com/memorial/162381991/william-michael-hodges)
 >He was a veteran of the U. S. Army, proudly serving in Viet Nam as a Cobra Assault Helicopter Pilot and was a flight instructor.
 
-=============================================================================================================================
+------------------------------------
 
 [Giuseppe Marco Fieschi shooting](https://en.wikipedia.org/wiki/Giuseppe_Marco_Fieschi)\
 Paris, France\
@@ -2974,7 +2972,7 @@ Source(s):
 1. [Giuseppe Marco Fieschi - Life](https://en.wikipedia.org/wiki/Giuseppe_Marco_Fieschi#Life)
 >His parents were Louis and Marie Lucie, of Pomonti. He had two brothers, Thomas and Anthony. Thomas was killed in the Battle of Wagram.[2] Anthony was mute from birth. Giuseppe spent his childhood and adolescence as a shepherd. In 1808 he joined a Corsican regiment and was sent to Naples, then to Russia to fight in the Napoleonic Wars. In 1812 he held the rank of sergeant. He was discharged from the army in 1814 and returned to Corsica. In September 1815, he was one of around 1000 followers who joined former King of Naples Joachim Murat in an attempt to regain his kingdom, this ended a month later with Murat's capture and execution by forces of Ferdinand IV of Naples.[Note 1]
 
-=============================================================================================================================
+------------------------------------
 
 [Dunblane Massacre](https://en.wikipedia.org/wiki/Dunblane_massacre)\
 Dunblane, Scotland\
@@ -3045,7 +3043,7 @@ Source(s):
 >
 >Alex (not his real name) waived his anonymity and spoke about his ordeal at QVS in an interview with the Sunday Post in December 2020.
 
-=============================================================================================================================
+------------------------------------
 
 [Stoneman Douglas High School shooting](https://en.wikipedia.org/wiki/Stoneman_Douglas_High_School_shooting)\
 Parkland, Florida\
@@ -3065,7 +3063,7 @@ Source(s):
 >[...]\
 >James, 48, is a decorated army veteran and a military intelligence analyst who served stints in the Middle East between 1988 and 1996. Kimberly, 49, is a neonatal intensive care nurse who cares for premature and ill babies.
 
-=============================================================================================================================
+------------------------------------
 
 [Hungerford massacre](https://en.wikipedia.org/wiki/Hungerford_massacre)\
 Hungerford, England\
@@ -3133,7 +3131,7 @@ Source(s):
 >
 >Brendan Cox, an Oxfam spokesman, said: 'Arms brokers are still operating with near impunity and making massive profits at the expense of the 500,000 people killed every year by firearms. It's time the Government made good its promises to crack down on this deadly trade.'
 
-=============================================================================================================================
+------------------------------------
 
 [Beltway sniper attacks](https://en.wikipedia.org/wiki/D.C._sniper_attacks)\
 Maryland / Virginia / Washington, DC / Arizona\
@@ -3152,7 +3150,7 @@ Source(s):
 >
 >Muhammad was honorably discharged from the Army with the rank of sergeant on April 24, 1994, after 16 years of service. He received the following awards: Army Service Ribbon, National Defense Service Medal, Overseas Ribbon, Noncommissioned Officers Professional Development Ribbon and Army Achievement Medal.[18]
 
-=============================================================================================================================
+------------------------------------
 
 [Erfurt school massacre](https://en.wikipedia.org/wiki/Erfurt_school_massacre)\
 Erfurt, Germany\
@@ -3171,7 +3169,7 @@ Source(s):
 
 3. [Siemens' Connections to the United States Central Intelligence Agency and German Federal Intelligence Service - Google](https://www.google.com/search?q=Operation+Rubicon+Siemens)
 
-=============================================================================================================================
+------------------------------------
 
 [2015 San Bernardino attack](https://en.wikipedia.org/wiki/2015_San_Bernardino_attack)\
 San Bernardino, California\
@@ -3193,7 +3191,7 @@ Source(s):
 2. [2015 San Bernardino attack - Raheel Farook, Tatiana Farook, and Mariya Chernykh](https://en.wikipedia.org/wiki/2015_San_Bernardino_attack#Raheel_Farook,_Tatiana_Farook,_and_Mariya_Chernykh)
 >Syed Raheel Farook, the brother of gunman Rizwan Farook [...] served in the U.S. Navy in the Iraq War from 2003 to 2007, and was awarded two medals for service during the War on Terror. He was described by friends and neighbors as sociable and extroverted compared with his brother Rizwan. In 2011, he married Tatiana, a Russian citizen who immigrated to the U.S. in 2003 from her home village of Vysokiy, located 400 miles (640 km) from Moscow.[158][184][185][186]
 
-=============================================================================================================================
+------------------------------------
 
 [1996 Timika shooting](https://en.wikipedia.org/wiki/1996_Timika_shooting_incident)\
 Timika, Indonesia\
@@ -3208,7 +3206,7 @@ Source(s):
 1. [1996 Timika shooting - Wikipedia](https://en.wikipedia.org/wiki/1996_Timika_shooting)
 >The 1996 Timika shooting incident (Indonesian: Insiden Penembakan Timika 1996) was a mass shooting that took place on 15 April 1996 at the Mozes Kilangin Airport, Timika, Irian Jaya (currently Papua), Indonesia, by a member of Kopassus Sec. Lt. Sanurip. Sixteen people were killed and eleven others were injured.
 
-=============================================================================================================================
+------------------------------------
 
 [Albertville-Realschule shooting](https://en.wikipedia.org/wiki/Winnenden_school_shooting)\
 Winnenden, Germany\
@@ -3237,7 +3235,7 @@ Source(s):
 3. [Klinikum am Weissenhof - The clinic today](https://en.wikipedia.org/wiki/Klinikum_am_Weissenhof#The_clinic_today)
 >As a federal state operated hospital the psychiatry was called Psychiatrisches Landeskrankenhaus Weinsberg since 1954. Due to a legal reform in 1996 the hospital became a public agency and changed its name to Zentrum für Psychiatrie Weinsberg (psychiatric centre Weinsberg). In 2002 the name was changed again, it is now called Klinikum am Weissenhof (Clinic at the Weissenhof), science the hospital no longer cared for psychiatric patients only. The hospital is a legally independent member of the group ZfP-Gruppe Baden-Württemberg.
 
-=============================================================================================================================
+------------------------------------
 
 [Dover and Russellville murder spree](https://en.wikipedia.org/wiki/Ronald_Gene_Simmons#Murder_spree)\
 Dover / Russellville, Arkansas\
@@ -3258,7 +3256,7 @@ Source(s):
 >
 >Simmons worked a string of low-paying jobs in the nearby town of Russellville, Arkansas. He quit a position as an accounts receivable clerk at Woodline Motor Freight after numerous reports of inappropriate sexual advances and went to work at a Sinclair Mini Mart for approximately a year and a half before quitting on December 18, 1987.
 
-=============================================================================================================================
+------------------------------------
 
 [Toulon shooting](https://en.wikipedia.org/wiki/%C3%89ric_Borel)\
 Toulon, France\
@@ -3280,7 +3278,7 @@ Source(s):
 2. [Éric Borel - Later years and motive](https://en.wikipedia.org/wiki/%C3%89ric_Borel#Later_years_and_motive)
 >Until his death, Borel attended the lycée professionnel Georges-Cisson in Toulon, where he studied electromechanics and did well academically. He was said to be a disciplined and quiet student. However, in his last year at school, there was a radical change in Borel's behavior. He skipped classes without explanation and became unaffable. He also regularly said that he could not bear it anymore at home, that he had had enough of doing housework and being called names, and often stated his wish to join the military like his father and grandfather. Apparently, the week prior to the shooting, Borel also told one of his classmates that he would kill himself, but not before killing two or three people.[3][6] Borel's only known friend at school was 17-year-old Alan Guillemette, an outgoing and popular classmate.[6]
 
-=============================================================================================================================
+------------------------------------
 
 [Kandahar massacre](https://en.wikipedia.org/wiki/Kandahar_massacre)\
 Kandahar, Afghanistan\
@@ -3297,7 +3295,7 @@ Source(s):
 >
 >In order to avoid the death penalty, he pleaded guilty to 16 counts of murder, six counts of attempted murder, and seven counts of assault in a plea deal.[1] On August 23, 2013, he was sentenced to life in prison without the possibility of parole.[2] Before sentencing, Bales expressed his regret by referring to the murders as "an act of cowardice".[3] While Bales has exhausted all military appeals, his attorney announced in 2019 that he would be seeking a new trial in civilian court due to possible side effects of mefloquine, an anti-malaria drug Bales claims to have been taking at the time of the shooting.[3]
 
-=============================================================================================================================
+------------------------------------
 
 [Columbine High School massacre](https://en.wikipedia.org/wiki/Columbine_High_School_massacre)\
 Columbine, Colorado\
@@ -3392,7 +3390,7 @@ In 1983, Wayne and Kathy and their sons, Kevin, then 5, and Eric, moved to Beave
 6. [Leo Yassenoff, 1930 - Columbus Neighborhoods](https://columbusneighborhoods.org/photograph/leo-yassenoff-1930/)
 >Leo Yassenoff moved to Ohio in 1893 and to Columbus in 1912. He graduated from OSU in 1916, served with the 116th Aerial Squadron in WWI, and co-founded the F & Y Construction Company in December, 1919. Among other projects Yasenoff’s company built the Riverside, Eastside and CCC Auto Theaters. He established a foundation and the Columbus Jewish Center, 1125 College Avenue, opened January 6, 1983 and was dedicated in his honor October 2, 1983.
 
-=============================================================================================================================
+------------------------------------
 
 [Zug massacre](https://en.wikipedia.org/wiki/Zug_massacre)\
 Zug, Switzerland\
@@ -3411,7 +3409,7 @@ Source(s):
 >
 >Authorities say it is probable that Leibacher had served in the country's militia army when he was younger.
 
-=============================================================================================================================
+------------------------------------
 
 [École Polytechnique massacre](https://en.wikipedia.org/wiki/%C3%89cole_Polytechnique_massacre)\
 Montreal, Canada\
@@ -3493,7 +3491,7 @@ Source(s):
 1. [Pashupatinath Temple shooting - Wikipedia](https://en.wikipedia.org/wiki/Pashupatinath_Temple_shooting)
 >Ramesh Sharma, a 28-year-old police constable killed 14 people and wounded nine others, before he was shot and killed by police.[1][2][3][4][5]
 
-=============================================================================================================================
+------------------------------------
 
 [Edmond post office shooting](https://en.wikipedia.org/wiki/Edmond_post_office_shooting)\
 Edmond, Oklahoma\
@@ -3508,7 +3506,7 @@ Source(s):
 1. [Edmond post office shooting - Perpetrator](https://en.wikipedia.org/wiki/Edmond_post_office_shooting#Perpetrator)
 >Patrick Henry Sherrill (November 13, 1941 – August 20, 1986) was born in Watonga, Oklahoma, and had served in the United States Marine Corps.[12] He was considered an expert marksman and was a member of a National Guard pistol team.[1]
 
-=============================================================================================================================
+------------------------------------
 
 [Pashupatinath Temple shooting](https://en.wikipedia.org/wiki/Pashupatinath_Temple_shooting)\
 Mandsaur, India\
@@ -3523,7 +3521,7 @@ Source(s):
 1. [Pashupatinath Temple shooting - Wikipedia](https://en.wikipedia.org/wiki/Pashupatinath_Temple_shooting)
 >Ramesh Sharma, a 28-year-old police constable killed 14 people and wounded nine others, before he was shot and killed by police.[1][2][3][4][5]
 
-=============================================================================================================================
+------------------------------------
 
 [Arqanqergen mass murder](https://en.wikipedia.org/wiki/Arkankergen_mass_murder)\
 Arqanqergen, Kazakhstan\
@@ -3538,7 +3536,7 @@ Source(s):
 1. [Vladislav CHELAKH - Murderpedia](https://murderpedia.org/male.C/c/chelakh-vladislav.htm)
 >Chelakh, a former border guard, was convicted in December of killing 14 colleagues and a forest ranger at the Gornyi border outpost in May 2012.
 
-=============================================================================================================================
+------------------------------------
 
 [Tokyo subway sarin attack](https://en.wikipedia.org/wiki/Tokyo_subway_sarin_attack)\
 Tokyo, Japan\
@@ -3564,7 +3562,7 @@ Source(s):
 4. [The Aum Shinrikyo - History](https://www.watchman.org/profiles/pdf/aumshinrikyoprofile.pdf)
 >Startling revelations have come to the surface in the aftermath of the Tokyo gassing. Among these, it was learned that Aum: had accumulated over $1 billion in assets, had successfully “forged relations with Japan’s ruthless crime syndicate” and the Soviet KGB, had “infiltrated various levels of the Japanese government and industry including law enforcement and military,” had regularly used murder and kidnapping to silence its The Aum Shinrikyo, page 2 enemies, and was in the process of developing the biological weapons of anthrax, botulism and ‘Q’ fever.
 
-=============================================================================================================================
+------------------------------------
 
 [Janaúba massacre](https://en.wikipedia.org/wiki/Jana%C3%BAba_massacre)\
 Minas Gerais, Brazil\
@@ -3582,7 +3580,7 @@ Source(s):
 2. [Watchman mental disorder that killed children in Janaúba was detected 3 years ago (Translated from the Portuguese)](https://www-em-com-br.translate.goog/app/noticia/gerais/2017/10/07/interna_gerais,906810/transtorno-de-vigia-que-matou-criancas-foi-detectado-ha-3-anos.shtml?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
 >In 2014, he even went to the Public Ministry of Minas Gerais (MPMG) to ask for help, as he claimed he was being poisoned by his own mother. The case was analyzed and he was recommended to seek mental treatment.
 
-=============================================================================================================================
+------------------------------------
 
 [2009 Fort Hood shooting](https://en.wikipedia.org/wiki/2009_Fort_Hood_shooting)\
 Fort Hood, Texas\
@@ -3632,19 +3630,795 @@ Source(s):
 >
 >Al-Awlaki decided to pursue his PhD and was accepted at George Washington University in Washington, D.C., and was soon recruited to be the imam of the nearby suburban Dar al-Hijrah mosque in 2000.[62] One of the mosque's board members who hired Al-Awlaki stated he was convinced that al-Awlaki had no inclinations or activities to do with terrorism.[63] The new imam, who was described as alluring and charming at this time,[64] began to draw young people to Dar Al-Hijrah[63] while connecting with the sophisticated Muslim community of Northern Virginia.[65] His proficiency as a public speaker and command of the English language helped him attract followers who did not speak Arabic. "He was the magic bullet", according to the mosque spokesman Johari Abdul-Malik. "He had everything all in a box."[66] "He had an allure. He was charming."[64] Al-Awlaki was considered a moderate during his time at Dar Al-Hijrah, publicly condemned the September 11 attacks and Al-Qaeda, was even invited to speak at the United States Department of Defense[67] and became the first imam to conduct a prayer service for the Congressional Muslim Staffer Association at the U.S. Capitol.[68][69] He led academic discussions frequented by FBI Director of Counter-Intelligence for the Middle East Gordon M. Snow. Al-Awlaki also served as the Muslim chaplain at George Washington University.[42][43][45][70] Soon after the 9/11 attacks, al-Awlaki was sought in Washington, D.C., by the media to answer questions about Islam, its rituals, and its relation to the attacks. He was interviewed by National Geographic,[71] The New York Times, and other media. Al-Awlaki condemned the attacks.[72] According to an NPR report in 2010, in 2001 al-Awlaki appeared to be a moderate who could "bridge the gap between the United States and the worldwide community of Muslims."[73] The New York Times said at the time that he was "held up as a new generation of Muslim leader capable of merging East and West."[74] In 2010, Fox News and the New York Daily News reported that some months after the 9/11 attacks, a Pentagon employee invited al-Awlaki to a luncheon in the Secretary's Office of General Counsel. The U.S. Secretary of the Army had suggested that a moderate Muslim be invited to give a talk.[75][76] In 2002, al-Awlaki was the first imam to conduct a prayer service for the Congressional Muslim Staffer Association at the U.S. Capitol.[68][69]
 
-=============================================================================================================================
+5. [George Washington University - Wikipedia](https://en.wikipedia.org/wiki/George_Washington_University)
+>The George Washington University (GW or GWU) is a private federally chartered research university in Washington, D.C. Chartered in 1821 by the United States Congress, GWU is the largest institution of higher education in the District of Columbia.[7]
+>
+>George Washington, the first President of the United States, advocated for the establishment of a national university in the U.S. capital in his first State of the Union address in 1790 and continued to promote this idea throughout his career and until his death.[8][9] In his will, Washington left shares in the Potomac Company to endow the university. However, due to the company's financial difficulties, funds were raised independently by Baptist ministers.[10][11] On February 9, 1821, the university was established by an Act of Congress first as Columbian College and then as Columbian University, making it one of only five universities in the United States with a Congressional charter.[8][12]
+>
+>The university's undergraduate and graduate schools includes the Columbian College of Arts and Sciences, the Elliott School of International Affairs, the GWU School of Business, the School of Media and Public Affairs, the Trachtenberg School of Public Policy and Public Administration, the GWU Law School and the Corcoran School of the Arts and Design. GWU's main Foggy Bottom campus is located in the heart of Washington, D.C., with the International Monetary Fund and the World Bank located on campus and the White House and the U.S. Department of State within blocks of campus. GWU hosts numerous research centers and institutes, including the National Security Archive and the Institute for International Economic Policy. GWU also has two satellite campuses: the Mount Vernon campus, located in D.C.'s Foxhall neighborhood, and the Virginia Science and Technology Campus in Loudoun County, Virginia.
+>
+>GWU is classified among "R1: Doctoral Universities – Very High Research Activity".[13] The university offers degree programs in seventy-one disciplines, enrolling around 11,000 undergraduate and 15,500 graduate students.[14] GWU is home to extensive student life programs, a strong Greek culture, and over 450 other student organizations. The school's athletic teams, the George Washington Colonials, play in the NCAA Division I Atlantic 10 Conference. GWU also annually hosts numerous political events, including the World Bank and International Monetary Fund's Annual Meetings.[15]
+>
+>The university's alumni, faculty, and affiliates include 16 foreign heads of state or government, 28 United States senators, 27 United States governors, 18 U.S. Cabinet members, five Nobel laureates, two Olympic medalists, two Academy Award winners, and a Golden Globe winner.[16] GWU has over 1,100 active alumni in the U.S. Foreign Service and is one of the largest feeder schools for the diplomatic corps.[17]
 
-Nshili shooting
-https://web.archive.org/web/20140310171307/http://www.e-tools.co.za/newsbrief/1995/news1109
-Nshili, Rwanda
-November 6, 1995
+6. [List of George Washington University alumni - Wikipedia](https://en.wikipedia.org/wiki/List_of_George_Washington_University_alumni)
+>This list of George Washington University alumni includes numerous prominent politicians, including a recent U.S. Attorney General, four current heads of state or government, CEOs of major corporations, scientists, Nobel laureates, MacArthur fellows, Olympic athletes, Academy Award and Golden Globe winners, royalty, and Time 100 notables.
+
+------------------------------------
+
+[Nshili shooting](https://web.archive.org/web/20140310171307/http://www.e-tools.co.za/newsbrief/1995/news1109)\
+Nshili, Rwanda\
+November 6, 1995\
 14 - 17 killed, 19 wounded
 
-Perpetrator(s):
-Unnamed shooter
+Perpetrator(s):\
+**Unnamed shooter**\
 Rwanda Defence Force
 
 Source(s):
-1. https://web.archive.org/web/20140310171307/http://www.e-tools.co.za/newsbrief/1995/news1109
-	A Rwandan soldier went on a shooting spree, killing 14 people and wounding 19 before fatally shooting himself, Radio Rwanda says.
+1. [Newsbrief 11/09/1995](https://web.archive.org/web/20140310171307/http://www.e-tools.co.za/newsbrief/1995/news1109])
+A Rwandan soldier went on a shooting spree, killing 14 people and wounding 19 before fatally shooting himself, Radio Rwanda says.
 
+------------------------------------
+
+[Kursk Railway Station shooting](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A0%D0%B0%D1%81%D1%81%D1%82%D1%80%D0%B5%D0%BB_%D0%BD%D0%B0_%D0%9F%D1%80%D0%B8%D0%B2%D0%BE%D0%BA%D0%B7%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9_%D0%BF%D0%BB%D0%BE%D1%89%D0%B0%D0%B4%D0%B8_%D0%9A%D1%83%D1%80%D1%81%D0%BA%D0%B0?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)\
+Kursk, Soviet Union\
+September 26 - 27, 1968\
+14 killed (including 1 perpetrator), 11 wounded
+
+Perpetrator(s):\
+**Victor Nikolaevich Korshunov / Yuri Stepanovich Surovtsev**\
+Soviet Army
+
+Source(s):
+1. [Execution on the Railway Station Square of Kursk - The killers (Translated from the Russian)](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%A0%D0%B0%D1%81%D1%81%D1%82%D1%80%D0%B5%D0%BB_%D0%BD%D0%B0_%D0%9F%D1%80%D0%B8%D0%B2%D0%BE%D0%BA%D0%B7%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9_%D0%BF%D0%BB%D0%BE%D1%89%D0%B0%D0%B4%D0%B8_%D0%9A%D1%83%D1%80%D1%81%D0%BA%D0%B0?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US#%D0%A3%D0%B1%D0%B8%D0%B9%D1%86%D1%8B)
+>The mass murder was carried out by two soldiers from the military unit of the internal troops stationed in the city of Kursk - Private Viktor Nikolaevich Korshunov and Corporal Yuri Stepanovich Surovtsev. [2]\
+>[...]\
+>Surovtsev was taken to the easiest job in the army - a clerk at the headquarters, by the time the attack was committed, he had served 1 year.\
+>[...]\
+>Korshunov's father served as a policeman and after the Great Patriotic War was convicted of high treason. Korshunov served for almost 2 years, served in a rifle company, was considered the best shooter of the unit, was an excellent student in the Soviet army . [2]
+
+------------------------------------
+
+[Sange shooting](https://linterview-cd.translate.goog/sud-kivu-le-militaire-auteur-des-tueries-de-14-civils-a-sange-condamne-a-la-peine-de-mort/?amp=1&_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)\
+Sange, Congo\
+July 30, 2020\
+14 killed, 10 wounded
+
+Perpetrator(s):\
+**Longo Dhendonga**\
+Armed Forces of the Democratic Republic of the Congo
+
+Source(s):
+1. [South Kivu: The soldier who killed 14 civilians in Sange sentenced to death (Translated from the French)](https://linterview-cd.translate.goog/sud-kivu-le-militaire-auteur-des-tueries-de-14-civils-a-sange-condamne-a-la-peine-de-mort/?amp=1&_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>Sergeant 2nd class, the soldier Logo Degonge is found guilty of the death of 14 civilians and 10 wounded, a crime he committed on the night of July 31, in the city of Sange in the territory of Uvira.
+
+------------------------------------
+
+[Luxiol shooting](https://en.wikipedia.org/wiki/Christian_Dornier)\
+Luxiol, France\
+July 12, 1989\
+14 killed, 8 wounded
+
+Perpetrator(s):\
+**Christian Dornier, 31**\
+French Armed Forces
+
+Source(s):
+1. [Christian Dornier - Life](https://en.wikipedia.org/wiki/Christian_Dornier#Life)
+>Christian Dornier was the oldest child of Georges and Jeanne Dornier; he had a sister named Corinne and a brother named Serge. Dornier served twelve months in the military around 1981, which apparently negatively affected him.[2] Dornier was described as a reserved person who liked to read and work in the forest. According to his brother he had no friends and hardly talked to anyone,[2] sometimes not talking to anyone in the nearby village of Luxiol for weeks.[3][4]
+>
+>One and a half years prior to the shooting, Dornier's father decided to retire and hand over the farm to him in three years. Dornier enrolled in a month-long agricultural course to prepare for taking over the farm, but he returned after a week, apparently broken. He shaved his head, began to smoke, abandoned his farm work, and became violent. Eventually Dornier's father decided not to cede the farm to him.[5] Three months prior to the shooting, Dornier, together with his father, bought a Volkswagen Golf GTI because he wanted the choice to leave the farm whenever he wished.[4]
+>
+>In the months prior to the rampage, Dornier fired shots at his father and his neighbour René Barrand, and pelted a woman with stones. The incidents were discussed at the village council, but it was decided that no action was needed since Dornier never had any trouble with the law. However, Dornier's family was advised to get him psychiatric help, while his father began to hide his guns.[2][6] Dornier was regularly visited by a psychiatrist from Baume-les-Dames, who prescribed him tranquilizers, but according to his brother he never took them.[2] Dornier's parents considered putting him in a psychiatric hospital, but he became furious when his doctor talked to him about the matter and his mother eventually decided against it.[6]
+>
+>In July 1989, Dornier apparently had a nervous breakdown and didn't attend the wedding of his sister on July 8. Instead, he drove through the area the entire day.[4][7]
+
+------------------------------------
+
+[Aramoana massacre](https://en.wikipedia.org/wiki/Aramoana_massacre)\
+Aramoana, New Zealand\
+November 13 - 14 / 1990\
+14 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**David Malcolm Gray, 33**\
+New Zealand Defence Force (NZDF) father (David Francis Gray)\
+
+Source(s):
+1. [David Francis Gray - Geni](https://www.geni.com/people/David-Gray/6000000043796831478)
+>Father of David Malcolm Gray\
+>[...]\
+>Suffered serious injuries whilst serving during World War II. Shot in the head and a metal plate inserted causing headaches for the rest of his life.
+
+2. [Aramoana massacre - The perpetrator](https://en.wikipedia.org/wiki/Aramoana_massacre#The_perpetrator)
+>Gray was a regular customer at Galaxy Books and Records in Lower Stuart Street, Dunedin. Bill Brosnan, the owner, knew him for seven years and said he was a fan of military books and Soldier of Fortune magazine.
+
+------------------------------------
+
+[Binghamton shooting](https://en.wikipedia.org/wiki/Binghamton_shooting)\
+Binghamton, New York\
+April 3, 2009\
+14 killed (including 1 perpetrator), 4 wounded
+
+Perpetrator(s):\
+**Jiverly Antares Wong, 41**\
+South Vietnamese Army (ARVN); United States Department of Defense (DOD) contractor employer (Endicott Interconnect Technologies); South Vietnamese Army (ARVN) / United States Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor father (Henry Voong - IBM)
+
+Source(s):
+1. [Patterns Among School Shooters: Body-Related Issues and the Military - Aberrant Adult Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Jiverly Wong [-] Father: South Vietnamese Army\
+>[...]\
+>Jiverly Wong [-] Claimed no military experience on immigration paperwork, but reportedly told acquaintance he had served in the military or law enforcement
+
+2. [Binghamton shooting - Possible motives](https://en.wikipedia.org/wiki/Binghamton_shooting#Possible_motives)
+>Several sources suggested possible motives for Wong's attack, including feelings of being "degraded and disrespected" for his poor English language skills, depression over losing his job, and difficulty in finding work in New York.[26] A few years before the killings, he had worked as an engineer at Endicott Interconnect Technologies, a high-tech electronics company. In 2004, the company laid off five percent of its workforce. A coworker from that time said of him, "He was quiet—not a violent person" and "I can't believe he would do something like this."[37]
+
+3. [Endicott Interconnect Technologies' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Endicott+Interconnect+Technologies+Department+of+Defense)
+
+4. [NY gunman angry over poor English skills, job loss](https://nbc24.com/news/local/ny-gunman-angry-over-poor-english-skills-job-loss)
+>Initial reports suggested Voong had recently been let go from IBM, which has roots in the region, but a person at IBM said there was no record of a Jiverly Voong ever working there. His father, Henry Voong, does work there.
+
+5. [IBM's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=IBM+Central+Intelligence+Agency)
+
+6. [IBM's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=IBM+Department+of+Defense)
+
+7. [Binghamton shooting - Package mailed to TV station](https://en.wikipedia.org/wiki/Binghamton_shooting#Package_mailed_to_TV_station)
+>Several days after the shooting, an envelope was received by the Syracuse, New York, TV station News 10 Now[27] dated March 18, 2009, and postmarked April 3, 2009, the day of the shooting.[40] The three stamps used for the postage were a Liberty Bell and two Purple Hearts.[27]
+>
+>The package contained a two-page handwritten letter; photos of Wong, holding guns while smiling; a gun permit; and Wong's driver's license.[27] Of the letter itself, most of its content was a rambling, paranoid accusation of perceived police misconduct and persecution of him, especially through "secret" visits to his residences.[41]
+
+8. [Image of Wong's letter to News 10 Now](http://graphics8.nytimes.com/packages/pdf/nyregion/2009/20090407_WONG_LETTER.pdf)
+
+------------------------------------
+
+[Velika Ivanča shooting](https://en.wikipedia.org/wiki/Velika_Ivan%C4%8Da_shooting)\
+Velika Ivanca, Serbia\
+April 9, 2013\
+14 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Ljubiša Bogdanović, 60**\
+Yugoslav People's Army (JNA)
+
+Source(s):
+1. [Velika Ivanča shooting - Perpetrator](https://en.wikipedia.org/wiki/Velika_Ivan%C4%8Da_shooting#Perpetrator)
+>Ljubiša Bogdanović (4 March 1953 – 11 April 2013) was born in Velika Ivanča.[18] His father committed suicide when he was a child, and he and his brother Radmilo were brought up by their grandfather Obrad, who was said to have been extremely strict and beat him when he made any mistakes. He was a Serb veteran of the Croatian War of Independence, having served for four and a half months,[4][19] and had held a firearm permit since 1981.[6][19]\
+>[...]\
+>Although Bogdanović was not known to have suffered from mental illness, his family had a history of such illness. Besides Bogdanović's father committing suicide, his cousin and uncle suffered from mental illnesses, the latter being treated and eventually dying in a mental institution.[26]
+
+------------------------------------
+
+[Oktoberfest bombing](https://en.wikipedia.org/wiki/Oktoberfest_bombing)\
+Munich, West Germany\
+September 26, 1980\
+13 killed (including 1 perpetrator), 213 wounded
+
+Perpetrator(s):\
+**Gundolf Köhler, 21**\
+West German Army; National Democratic Party of Germany (NPD)
+
+Source(s):
+1. [Gundolf Köhler - Biography](https://en.wikipedia.org/wiki/Gundolf_K%C3%B6hler#Biography)
+>At 14, Köhler participated in events of the NPD, a neo-Nazi party, and was a member of the Wiking-Jungend (Viking Youth). From 1975 onward, he took interest in paramilitary activities and established contacts with the Wehrsportgruppe Hoffmann (WSG Hoffman), a neo-Nazi militia. Köhler also started to experiment with chemicals, and he was severely injured in the face in an accidental explosion in 1975.[4][5] The following year, he took part in violent confrontations led by the WSG Hoffman.[4] Köhler participated twice in military exercises with the group.[5] In 1978, Köhler asked Karl-Heinz Hoffmann for his support in establishing a WSG branch in Donaueschingen, but Hoffmann responded that a WSG group was already being set up in Tübingen.[6] 
+>
+>Köhler earned his Abitur in 1978, then served for three months in the West German army. He attempted to be trained as an explosive expert but his project was eventually rejected due to a hearing disorder.\
+>[...]\
+>He talked several times with two friends about a false flag bomb attack for which left-wing terrorist group would be blamed in the public opinion, thus increasing public support for right-wing parties in the 1980 federal election. Prosecutors could not prove however their implication in the terrorist plot.[2]
+
+------------------------------------
+
+[2016 Berlin truck attack](https://en.wikipedia.org/wiki/2016_Berlin_truck_attack)\
+Berlin, Germany\
+December 19, 2016\
+13 killed, 55 wounded
+
+Perpetrator(s):\
+**Anis Amri, 24**\
+North Rhine-Westphalia State Criminal Police Office (LKA) associate; German Federal Office for the Protection of the Constitution (BfV) associate
+
+Source(s):
+1. [How the authorities observed Amri - and yet drew the wrong conclusions (Translated from the German)](https://www-sueddeutsche-de.translate.goog/politik/attentaeter-von-berlin-wie-die-behoerden-amri-beobachteten-und-doch-die-falschen-schluesse-zogen-1.3320396?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>By November at the latest, Amri was noticed by the authorities for the first time: the Tunisian offered himself to an informant from the North Rhine-Westphalia State Criminal Police Office, who was active in the Islamist scene. Amri tells him he "wants to do something in Germany" and can get a Kalashnikov for an attack.
+
+2. [Was the Berlin Christmas market attacker an undercover agent?](https://www.wsws.org/en/articles/2017/01/25/berl-j25.html)
+>A report published just over a week ago by the Federal Criminal Office (BKA) raises the question of whether Anis Amri was an intelligence agent.\
+[...]\
+>Just days after the attack, it was already clear that Amri had prepared the attack under the noses of the police and intelligence agencies. He had been under constant surveillance over the previous two years and was in contact with an agent with the North Rhine-Westphalia (NRW) state intelligence agency.
+>
+>On the basis of the BKA’s confidential report, it is possible to reconstruct Amri’s activities in Germany quite precisely. The police and intelligence agencies concentrated on Amri almost weekly and followed all of his actions.
+>
+>Amri came from Italy to Germany in the summer of 2015. He had already received a four-year custodial sentence. He was initially sent to a refugee accommodation centre in Emmerich (Kreis Kleve), NRW.
+>
+>Already at that time, the 22-year-old was noticed because he had pictures of ISIS fighters on his mobile phone. In December 2015, other refugees reported to the immigration authorities in Kreis Kleve that he “supposedly maintained contact with Islamic State.” Eventually, the authorities were aware of 14 identities used by Amri.
+>
+>Amri became involved with the Salafist movement, into which the NRW state intelligence agency had embedded at least one agent. He reported repeatedly to the police about Amri. “The source spilled over,” wrote the Süddeutsche Zeitung, which saw the BKA report. These reports filled entire files. 
+>
+>On the basis of these reports, the state prosecutor ordered Amri’s phone to be tapped in November 2015. Somewhat later, Italian intelligence agencies sent photos and detailed personal information to Germany.
+>
+>In February 2016, the intelligence agent reported that Amri was becoming more withdrawn and reading the Koran, as if he wanted to be purified as some suicide attackers do prior to an attack. He was designated as a “threat” by the NRW state intelligence agency.
+>
+>At the same time, the state BKA in NRW sent their intelligence about the Islamist network in which Amri was involved to the state prosecutor in Karlsruhe. The top German prosecutor took up an investigation against the group for supporting terrorism and recruitment for a terrorist organisation and in November ordered the arrest of its leader, Abu Walaa, as well as the hardcore members of the group. However, Anis Amri was left at large.
+>
+>A variety of intelligence agencies were now watching him as he travelled regularly between Dortmund and Berlin. He was driven at least once by the intelligence agent. Between March and September, the Berlin state prosecutor conducted an investigation into Amri. He was intercepted and observed, but allegedly not for terrorist planning but for petty drug trafficking. According to the Süddeutsche Zeitung, the BKA report alleges that “religious questions” supposedly fell into the background during Ramadan.
+
+3. [German intelligence agent drove alleged perpetrator in Christmas market attack to Berlin](https://www.wsws.org/en/articles/2016/12/28/berl-d28.html)
+>On Friday evening, the ARD television program “Focus” (“Brennpunkt”) cited a file according to which an “informant” (“VP”) for the North Rhine-Westphalian state criminal office had already made contact with Amri at the end of 2015. “In the ensuing days, Amri stated that he wanted to carry out attacks in Germany using weapons of war (AK 47s, explosives),” the notation reads. 
+>
+>Between February and March of 2016, Amri was driven from Dortmund to Berlin by a “secret informant for the Intelligence Service” to whom he related his plans. The note in the file adds: “He was driven by VP and stated that his mission was to kill on behalf of Allah.”
+
+------------------------------------
+
+[Bulawayo shooting](https://news.google.com/newspapers?id=2N0hAAAAIBAJ&sjid=4qAFAAAAIBAJ&pg=5174,3423173&dq=)\
+Bulawayo, Rhodesia\
+December 4, 1977\
+13 killed, 16 wounded
+
+Perpetrator(s):\
+**Banda Khumalo**\
+Rhodesian Police
+
+Source(s):
+1. [Berserk Policeman Kills 13](https://news.google.com/newspapers?id=2N0hAAAAIBAJ&sjid=4qAFAAAAIBAJ&pg=5174,3423173&dq=)
+
+------------------------------------
+
+[Thousand Oaks Borderline Bar and Grill shooting](https://en.wikipedia.org/wiki/Thousand_Oaks_shooting)\
+Thousand Oaks, California\
+November 7, 2018\
+13 killed (including 1 perpetrator and 1 by stray police gunfire), 16 wounded
+
+Perpetrator(s):\
+**Ian David Long, 28**\
+United States Marine Corps (USMC)
+
+Source(s):
+1. [Thousand Oaks shooting - Perpetrator](https://en.wikipedia.org/wiki/Thousand_Oaks_shooting#Perpetrator)
+>28-year-old Ian David Long [...] served in the United States Marine Corps from August 2008 to March 2013, reaching the rank of corporal, and he had gone to Afghanistan from November 2010 to June 2011. After being honorably discharged, Long attended California State University, Northridge as an athletic training major from 2013 to 2016, but he did not graduate.[12][39] During this time, he had been involved in a motorcycle accident that left him with a collapsed lung; his motorcycle helmet was cracked, and he was diagnosed with "adjustment disorder with mixed anxiety and depressed mood, post-traumatic stress disorder (PTSD), combat and military operational stress reaction, and chronic pain."[12] According to his mother, he had begun to "unravel" after the incident. Long had two prior contacts with the Ventura County Sheriff's Office, one in 2006 involving a traffic collision and the other in 2015 involving a bar fight; no charges were filed in either incident.[12]
+>
+>Police and a mental health crisis team visited Long in 2017 for his irate and irrational behavior, but they decided not to detain him at a psychiatric facility.[39][40] A high school teacher raised claims that Long had physically assaulted her as a student but she was encouraged not to push the incident so as to not endanger his future in the Marine Corps. In her statement, the teacher alleged that Long had issues long before his military service.[41] Although he had served overseas in the military, behavioral scientist and clinical psychologist Lisa Jaycox said that it was premature to say whether Long suffered from PTSD or if it was a factor in the shooting.[37][11][42]
+
+------------------------------------
+
+[Kamwenge Trading Centre shooting](https://en.wikipedia.org/wiki/Kamwenge_Trading_Centre_shooting)\
+Kamwenge, Uganda\
+December 26, 1994\
+13 killed, 14 wounded
+
+Perpetrator(s):\
+**Alfred Ogwang, 28**\
+Kamwenge Police
+
+Source(s):
+1. [Kamwenge Trading Centre shooting - Wikipedia](https://en.wikipedia.org/wiki/Kamwenge_Trading_Centre_shooting)\
+>The Kamwenge Trading Centre shooting was a mass murder that occurred in Kamwenge, Uganda on 26 December 1994, when police constable Alfred Ogwang shot at revelers in a disco at Kamwenge Trading Centre, killing 13 people and wounding 14 others. He escaped to Dura afterwards, where he was arrested.[1][2][3]
+
+------------------------------------
+
+[Azerbaijan State Oil Academy shooting](https://en.wikipedia.org/wiki/Azerbaijan_State_Oil_Academy_shooting)\
+Baku, Azerbaijan\
+April 30, 2009\
+13 killed (including 1 perpetrator), 13 wounded
+
+Perpetrator(s):\
+**Farda Gadirov, 29**\
+Georgian Government family associate (Vidadi Hasanov - Marneuli region)
+
+Sources:
+1. [Azerbaijan State Oil Academy shooting - Perpetrator](https://en.wikipedia.org/wiki/Azerbaijan_State_Oil_Academy_shooting#Perpetrator)
+>An official from his home village, Vidadi Hasanov, described Gadirov as an unsociable child who rarely left his home during his brief return.[35]
+
+2. [Profile: Suspected Baku Gunman Identified As Georgian Citizen](https://www.rferl.org/a/Suspected_Baku_Gunman_Identified_As_Georgian_Citizen/1619214.html)
+>Vidadi Hasanov, the mayor of nearby Kulari, in Georgia's Marneuli district, told RFE/RL'a Georgian Service that "no one here had any sense that he was in any particularly agitated state, and now we are all glued to our televisions and are extremely upset by what we are seeing." Hasanov told RFE/RL that Gadirov, his parents, and his brother left the village some 15 years ago and settled in the Russian town of Podolsk, outside of Moscow.\
+>[...]\
+>Gadirov's father is a former Azeri-language teacher and his mother a longtime homemaker, Hasanov said, but now they sell fruit and vegetables at a market in Podolsk. The mayor added that the family is well-liked and respected.
+
+------------------------------------
+
+[Stockbridge shootings](https://en.wikipedia.org/wiki/Mark_O._Barton)\
+Stockbridge, Georgia\
+July 27 - 29, 1999\
+13 killed (including 1 perpetrator), 12 wounded
+
+Perpetrator(s):\
+**Mark O. Barton, 44**\
+United States Air Force (USAF) family
+
+Source(s):
+1. [Mark O. Barton - Background](https://en.wikipedia.org/wiki/Mark_O._Barton#Background)
+>Mark Barton was born on April 2, 1955, in Stockbridge, Georgia, to an Air Force family and was raised in South Carolina. He attended Clemson University and the University of South Carolina, where he earned a degree in chemistry despite an ongoing drug habit. Back in Atlanta, Barton married Debra Spivey, with whom he had two children named Matthew and Mychelle.[5]
+>
+>Barton's family moved to Alabama as his employer required him there. Barton grew paranoid and started distrusting his wife. He lost his employment after his performance plummeted. He was also caught sabotaging data of the company that had fired him and served a short jail term for this retaliatory act.[5] Barton found a new employer in Georgia and a mistress in one of his wife's acquaintances, with whom he had an affair. In 1993, Spivey and her mother Eloise were killed by bludgeoning. Barton was the prime suspect in the double-murder, but was not charged due to the lack of evidence.[5] He married his former mistress, Leigh Ann Vandiver, in 1995. His mental health continued to deteriorate, however, and he began to suffer from both severe depression and paranoid delusions.[5]
+>
+>Barton had received a $294,000 insurance settlement from his first wife's death and used the funds to finance his day trading career, preferring high risk Internet-related stocks.[6] In the month prior to his killing spree, Barton had lost $105,000, and Momentum Securities had cancelled his account.[6]
+
+------------------------------------
+
+[Cumbria shootings](https://en.wikipedia.org/wiki/Cumbria_shootings)\
+Copeland, England\
+June 2, 2010\
+13 killed (including 1 perpetrator), 11 wounded
+
+Perpetrator(s):\
+**Derrick Bird, 52**\
+British Government employer (Sellafield nuclear power plant)
+
+Source(s):
+1. [Cumbria shootings - Perpetrator](https://en.wikipedia.org/wiki/Cumbria_shootings#Perpetrator)
+>In 2007, Bird was beaten unconscious by four men who tried to run instead of paying him for taxi services. Friends said he changed after the attack.[29] It was reported that Bird had previously sought help from a local hospital due to his fragile mental state, although these reports were unconfirmed.[30] He had held a shotgun certificate since 1974 and had renewed it several times, most recently in 2005, and had held a firearms certificate for a rifle from 2007 onward.[31][32] Bird was being investigated by HM Revenue and Customs at the time of the shooting.[33] His body was formally identified at Furness General Hospital in Barrow-in-Furness,[34] and he was cremated at a private service on 18 June 2010.[35]
+
+2. [Cumbria shootings - Possible motives](https://en.wikipedia.org/wiki/Cumbria_shootings#Possible_motives)
+>There has been speculation that Bird may have had a grudge against people associated with the Sellafield nuclear power plant where he had worked as a joiner, resigning in 1990 following an allegation of theft of wood from the plant.\
+>[...]\
+>Police investigating the killings have also found that Bird was the subject of an ongoing tax investigation by HM Revenue and Customs for tax evasion and the threat of possible future prosecution and punishment might have contributed to his action.[40] According to Mark Cooper, a fellow taxi driver who had known him for fifteen years, Bird had accumulated £60,000 in a secret bank account and was worried he would be sent to prison for hiding the cash from the government.[41] He reportedly believed his brother and the solicitor were conspiring to send him to prison for tax evasion; in the three days before the killings, Bird called his brother forty-four times.[42]
+
+3. [Sellafield - Wikipedia](https://en.wikipedia.org/wiki/Sellafield)
+>Sellafield is a large multi-function nuclear site close to Seascale on the coast of Cumbria, England. As of July 2020, activities at the site include nuclear waste storage and nuclear decommissioning, and it is a former nuclear power generating site. Nuclear fuel reprocessing ceased on 17th July 2022, when the Magnox reprocessing plant completed its last batch of fuel after 58 years of operation.[1]. The licensed site covers an area of 265 hectares (650 acres),[2] and comprises more than 200 nuclear facilities and more than 1,000 buildings.[3] It is Europe's largest nuclear site and has the most diverse range of nuclear facilities in the world situated on a single site.[4]
+>
+>Sellafield site's legacy facilities include the UK's first generation nuclear pile reactors and associated fuel re-processing facilities, and Calder Hall Nuclear power station, the world's first nuclear power station to export electricity on a commercial scale to a public grid. The UK's National Nuclear Laboratory has its Central Laboratory and headquarters on the site.
+>
+>Sellafield was the site in 1957 of one of the world's worst nuclear incidents. This was the Windscale fire which occurred when uranium metal fuel ignited inside Windscale Pile no.1. Radioactive contamination was released into the environment, which it is now estimated caused around 240 cancers in the long term, with 100 to 240 of these being fatal.[5][6][7] The incident was rated 5 out of a possible 7 on the International Nuclear Event Scale.[5]
+>
+>Originally built as a Royal Ordnance Factory in 1942, the site briefly passed into the ownership of Courtaulds for rayon manufacture following WW2, but was re-acquired by the Ministry of Supply in 1947 for the production of plutonium for nuclear weapons, and was given the name "Windscale Works". Subsequent key developments include the building of Calder Hall nuclear power station, the Magnox fuel reprocessing plant, the prototype Advanced Gas-cooled Reactor (AGR) and the Thermal Oxide Reprocessing Plant (THORP).
+>
+>Decommissioning projects include the Windscale Piles,[8] Calder Hall nuclear power station, and a number of historic reprocessing facilities and waste stores. The site currently directly employs about 10,000 people, and is owned by the Nuclear Decommissioning Authority (NDA) which is a non-departmental public body of the UK government. Following a period 2008–2016 of management by a private consortium, the site has been returned to direct government control by making the Site Management Company, Sellafield Ltd, a subsidiary of the NDA. Decommissioning of legacy facilities, some of which date back to the UK's first efforts to produce an atomic bomb, is planned for completion by 2120 at a cost of £121 billion.[9]
+
+------------------------------------
+
+[Washington Navy Yard shooting](https://en.wikipedia.org/wiki/Washington_Navy_Yard_shooting)\
+Washington, DC\
+September 16, 2013\
+13 killed (including 1 perpetrator), 8 wounded
+
+Perpetrator(s):\
+**Aaron Alexis, 34**\
+United States Navy (USN); United States Navy (USN) / Marine Corps (USMC) subcontractor employer (The Experts); United States Air Force (USAF) partner (Embry–Riddle Aeronautical University, Worlwide)
+
+Source(s):
+1. [Washington Navy Yard shooting - Perpetrator](https://en.wikipedia.org/wiki/Washington_Navy_Yard_shooting#Perpetrator)
+>Alexis [...] joined the Navy in May 2007[10] and served in Fleet Logistics Support Squadron 46 at Naval Air Station Joint Reserve Base Fort Worth.[28] His rating was aviation electrician's mate, and he had attained the rank of petty officer third class when he was honorably discharged from the Navy on January 31, 2011, although the Navy originally intended for him to receive a general discharge.[29]
+>
+>According to a Navy official, Alexis was cited on at least eight occasions for misconduct.[30] In 2010, he was arrested in Fort Worth for discharging a weapon within city limits.[31][32] He was also arrested in 2004 in Seattle, Washington, for malicious mischief after shooting out the tires of another man's vehicle in what he described as an anger-fueled "blackout",[26][33][34] and for disorderly conduct in 2008 in DeKalb County, Georgia.[35] None of his arrests led to prosecution,[36] so there was no penalty for his actions.
+
+2. [Washington Navy Yard shooting - Professional work](https://en.wikipedia.org/wiki/Washington_Navy_Yard_shooting#Professional_work)
+>Alexis received a secret-level security clearance in March 2008 that was valid for ten years. Following the Navy Yard shooting, it was found that the federal personnel report, which led to the clearance's approval, did not mention that his 2004 arrest had involved a firearm. Alexis said on his clearance application that he had never been charged with a felony and that he had not been arrested in the last seven years; the personnel report said that he had given these answers because the 2004 charge had been dismissed.[37][38] This security clearance investigation was conducted by USIS, the same contractor that had vetted Edward Snowden. The Department of Justice has filed fraud charges against USIS in a whistleblower case filed as United States of America ex rel. Blake Percival vs USIS.[39][40]
+>
+>Alexis worked in Japan from September 2012 to January 2013 on the Navy Marine Corps Intranet network for an HP Enterprise Services sub-contracting company called The Experts.[41] After returning from Japan, he expressed frustration to a former roommate that he had not been paid properly for the work that he performed.[28][41] Another roommate said that he would frequently complain about being the victim of discrimination.[42][43] In July 2013, he resumed working for The Experts in the United States.[41]
+>
+>Alexis was working on a bachelor's degree in aeronautics from Embry–Riddle Aeronautical University, Worldwide.[44] He was Buddhist.[45][46][47]
+
+3. [Washington Navy Yard shooting - Mental health issues](https://en.wikipedia.org/wiki/Washington_Navy_Yard_shooting#Mental_health_issues)
+>After the Navy Yard shooting, the media speculated that Alexis had appeared to be suffering from mental illness. The media reported that Alexis had filed a police report in Rhode Island on August 2, 2013. He claimed to be the victim of harassment and that he was hearing voices in his head.[48] According to an FBI official after the shooting, Alexis was under the "belief that he was being controlled or influenced by extremely low-frequency electromagnetic waves". A message later obtained by federal authorities from Alexis's personal computing devices said, "Ultra low frequency attack is what I've been subject to for the last 3 months. And to be perfectly honest, that is what has driven me to this."[49]
+>
+>On August 4, 2013, naval police were called to Alexis's hotel at Naval Station Newport and found that he had "taken apart his bed, believing someone was hiding under it, and observed that Alexis had taped a microphone to the ceiling to record the voices of people that were following him". At the time of the incident, he was working for the contractor at the base.[50]
+>
+>On August 23, Alexis showed up at a Providence, Rhode Island, emergency room complaining of insomnia. He was prescribed 50 milligrams of trazodone, a serotonin antagonist and reuptake inhibitor antidepressant.[51] Five days later, he sought treatment for insomnia in the emergency room of a VA medical center in Washington, D.C., where he told doctors he was not depressed and was not thinking of harming others. He was given ten more tablets of trazodone.[52]
+
+4. [Washington Navy Yard shooting - Prior to the shooting](https://en.wikipedia.org/wiki/Washington_Navy_Yard_shooting#Prior_to_the_shooting)
+>At the time of the shooting, Alexis had been working for a subcontractor on a Hewlett-Packard Enterprise Services contract supporting a Navy-Marine Corps (NMCI) computer network.[16] Alexis arrived in the Washington, D.C., area on or around August 25, 2013, and stayed at various hotels to escape the voices. At the time of the massacre, he had been staying with five other civilian contractors at the Residence Inn hotel he booked into in southwest Washington, D.C., since September 7.[16][53]
+>
+>On Saturday, September 14, two days before the massacre, Alexis visited the Sharpshooters Small Arms Range in Lorton, Virginia, 15 miles (24 km) south of Washington. He tested an AR-15 semiautomatic rifle but did not seek to buy it, a lawyer for the store said. After testing the rifle, Alexis inquired about buying a handgun at the store, but was told federal law does not allow dealers to sell such guns directly to out-of-state customers. Alexis instead purchased a Remington Model 870 Express Tactical 12-gauge shotgun and two boxes of shells, after passing a state and federal background check.[54][55] Before the shooting, Alexis sawed off the shotgun and scratched the phrases "Better off this way!", "My ELF weapon!", "Not what yall say!", and "End to the torment!" onto the gun's receiver.[56]
+
+5. [Did Antidepressant Play a Role in Navy Yard Massacre?](https://blogs.scientificamerican.com/cross-check/did-antidepressant-play-a-role-in-navy-yard-massacre/)
+>Once again, antidepressants have been linked to an episode of horrific violence. The New York Times reports that Aaron Alexis, who allegedly shot 12 people to death at a Navy facility in Washington, D.C., earlier this week, received a prescription for the antidepressant trazodone in August.
+>[...]\
+>Alexis, who was 34, was reportedly seeking treatment for insomnia when he received his prescription for trazodone. Originally marketed as an antidepressant after its approval by the FDA in 1981, trazodone is also prescribed for anxiety and insomnia. Trazodone was a precursor of the extremely popular selective serotonin reuptake inhibitors (SSRIs); like the SSRIs, trazodone boosts levels of the neurotransmitter serotonin.
+>
+>A website maintained by the National Institutes of Health states that trazodone and other antidepressants have been associated with "new or worsening depression; thinking about harming or killing yourself, or planning or trying to do so; extreme worry; agitation; panic attacks; difficulty falling asleep or staying asleep; aggressive behavior; irritability; acting without thinking; severe restlessness; and frenzied abnormal excitement."
+
+=============================================================================================================================
+
+[2019 Virginia Beach shooting](https://en.wikipedia.org/wiki/2019_Virginia_Beach_shooting)\
+Virginia Beach, Virginia\
+May 31, 2019\
+13 killed (including 1 perpetrator), 4 wounded
+
+Perpetrator(s):\
+**DeWayne Antonio Craddock, 40**\
+Virginia Army National Guard; United States Army Training and Support Center (USATSC); Virginia Beach Municipal Government employer (Department of Public Utilities)
+
+Source(s):
+1. [2019 Virginia Beach shooting - Perpetrator](https://en.wikipedia.org/wiki/2019_Virginia_Beach_shooting#Perpetrator)
+>40-year-old DeWayne Antonio Craddock [...] worked as an engineer in the city's public utilities department until tendering his resignation in an email he sent to city management a few hours before the attack.[21] Having resigned "within good standing in his department", Craddock still possessed a security pass to enter employee work spaces within the building at the time of the attack.[22][23] In the days prior to the shooting, he was alleged to have been involved in physical scuffles with fellow city employees and threatened with disciplinary action.[24] However, the city manager said that when Craddock resigned, he "had no issues of discipline ongoing".\
+>[...]\
+>Between 1996 and 2002, he served in the Virginia Army National Guard in Norfolk as a cannon crew member with the First Battalion, 111th Field Artillery Regiment. At the time of his discharge he held the rank of Specialist (E-4) and had not been deployed for combat service.[26]
+
+2. [Suspect in Virginia Beach Shooting Was a Longtime City Employee](https://www.nytimes.com/2019/06/01/us/dewayne-craddock-virginia.html)
+>Before his job with the city, the suspect worked for private firms specializing in site planning and infrastructure, and had held a professional engineer license from the state since 2008. One of his hiring notices said that his engineering experience included storm water management and utility design for private and public systems. Employment listings also showed that he had worked for the Army Training and Support Center.
+
+=============================================================================================================================
+
+[Camden shootings](https://en.wikipedia.org/wiki/Howard_Unruh#Shootings)\
+Camden, New Jersey\
+September 6, 1949\
+13 killed, 3 wounded
+
+Perpetrator(s):\
+**Howard Barton Unruh, 28**\
+United States Army (USA); United States Army (USA) brother (James Frederick Unruh); United States Army (USA) father (Samuel Shipley Unruh)
+
+Source(s):
+1. [Howard Unruh - Background and possible motives for killings](https://en.wikipedia.org/wiki/Howard_Unruh#Background_and_possible_motives_for_killings)
+>Howard Unruh was the son of Samuel Shipley Unruh and Freda E. Vollmer. He had a younger brother, James; they were raised by their mother after their parents separated. Unruh grew up in East Camden, New Jersey, attended Cramer Junior High School and graduated from Woodrow Wilson High School in January 1939.[7] The Woodrow Wilson High School yearbook from 1939 indicated that he was shy and that his ambition was to become a government employee.[8]
+>
+>Unruh enlisted in the United States Army on October 27, 1942, and saw active service as an armor crewman across Europe between October 1944 and July 1945.[9][10] He was remembered by his Section Chief, Norman E. Koehn, as a first-class soldier who never drank, swore, or chased girls, and spent much time reading his Bible and writing long letters to his mother.[11] It was also cited that Unruh kept meticulous notes on the enemies killed in battles, down to the details of the corpses. He was awarded the European Theater of Operations Medal, the Victory Medal, and the Good Conduct Medal. Unruh was honorably discharged at the end of the war and returned to New Jersey to live with his mother. Both his brother and his father later indicated that Unruh's wartime experiences had changed him, making him moody, nervous and detached.
+
+2. [PFC James Frederick Unruh - Find a Grave](https://www.findagrave.com/memorial/42378282/james-frederick-unruh)
+>Inscription
+>PFC US ARMY - WORLD WAR II
+
+3. [Samuel Shipley Unruh - Find a Grave](https://www.findagrave.com/memorial/152521397/samuel-shipley-unruh)
+>Inscription
+>New Jersey
+>Mech 114 Infantry
+>World War I
+
+=============================================================================================================================
+
+[Guilin bus shop shooting](https://amok.fandom.com/wiki/Deng_Guoxiang)\
+Guilin, China\
+April 2, 1982\
+13 killed, 3 wounded
+
+Perpetrator(s):\
+**Deng Guoxiang**\
+Chinese Militia
+
+Source(s):
+1. [Deng Guoxiang - Amok Wiki](https://amok.fandom.com/wiki/Deng_Guoxiang)
+>Deng Guoxiang (Chinese: 邓国祥) was a Chinese militiaman who killed 13 people and wounded three others at the Guilin bus repair shop (桂林汽车大修厂) and a sewage treatment plant in Guilin, People's Republic of China on April 2, 1982.
+
+=============================================================================================================================
+
+[Campinas massacre](https://en.wikipedia.org/wiki/Campinas_massacre)\
+Campinas, Brazil\
+December 31, 2016\
+13 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**Sidnei Ramis de Araujo, 46**\
+Brazilian Federal Government employer (National Center for Research in Energy and Materials); Brazilian Armed Forces widow associate
+
+Source(s):
+1. [In 2012, ex accused a shooter from Campinas of sexual abuse against his son (Translated from the Portuguese)](https://noticias-uol-com-br.translate.goog/cotidiano/ultimas-noticias/2017/01/01/ex-mulher-acusou-atirador-de-campinas-de-abuso-sexual-contra-o-filho-na-justica.htm?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>Araújo was a laboratory technician at CNPEM (National Center for Research in Energy and Materials) and had worked at the agency since 1991. According to his academic curriculum, he had certifications issued by companies in the UK, the Netherlands and the US.
+
+2. [About CNPEM (Translated from the Portuguese)](https://cnpem-br.translate.goog/cnpem/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>The National Center for Research in Energy and Materials (CNPEM) is a social organization supervised by the Ministry of Science, Technology and Innovation (MCTI). Located in Campinas-SP, it has four laboratories that are world-renowned and open to the scientific and business community. The National Synchrotron Light Laboratory (LNLS) operates the only synchrotron light source in Latin America and is currently building Sirius, the new fourth-generation Brazilian accelerator for the analysis of the most diverse types of organic and inorganic materials; the National Biosciences Laboratory (LNBio) develops research in frontier areas of Bioscience, with a focus on biotechnology and pharmaceuticals; the National Biorenewables Laboratory (LNBR)researches biotechnological solutions for the sustainable development of advanced biofuels, biochemicals and biomaterials, using Brazilian biomass and biodiversity; and the National Nanotechnology Laboratory (LNNano) conducts research with advanced materials, with great economic potential for the country.
+
+=============================================================================================================================
+
+[1982 Wilkes-Barre shootings](https://en.wikipedia.org/wiki/1982_Wilkes-Barre_shootings)\
+Wiles-Barre / Jenkings Township, Pennsylvania\
+September 25, 1982\
+13 killed, 1 wounded
+
+Perpetrator(s):\
+**George Emil Banks, 40**
+United States Army (USA); Pennsylvania Department of Corrections
+
+Source(s):
+1. [George Emil BANKS - Murderpedia](https://murderpedia.org/male.B/b/banks-george.htm)
+>While in his early twenties, George saw the military as a possible way of escaping his troubled youth and signed up for a tour of duty in the United States Army. This dream, however, was short lived as he was discharged just two years later in 1961 because he “couldn't get along with the officers.” Following his “general discharge” from the Army, Banks’ life continued on a downward spiral.
+
+2. [1982 Wilkes-Barre shootings - Perpetrator](https://en.wikipedia.org/wiki/1982_Wilkes-Barre_shootings#Perpetrator)
+>In 1961 at the age of 19, after being discharged from the Army, Banks and some accomplices robbed a tavern, shooting and injuring the unarmed owner.[5] He was sentenced to six to fifteen years in prison, which was extended when he briefly escaped in 1964; however, he was granted parole in 1969 and his sentence was commuted by then Governor Milton Shapp in 1974.[7]\
+>[...]\
+>Despite his criminal record for an armed offense, Banks had started working as a prison guard at Camp Hill, Pennsylvania, in 1980. In 1982 Banks had told coworkers at the prison that "the world would soon be consumed by a race war" and said he wanted "to prevent the five children he fathered with the four white girlfriends from [experiencing] the torment and agony of racism".[5] He was put on "an extended leave of absence" the first week in September 1982 after a conflict with a supervisor and threatening suicide. The prison ordered Banks to be examined for mental health issues at a Harrisburg-area hospital.[5]
+
+=============================================================================================================================
+
+[Wah Mee massacre](https://en.wikipedia.org/wiki/Wah_Mee_massacre)\
+Seattle, Washington\
+February 19, 1983\
+13 killed, 1 wounded
+
+Perpetrator(s):\
+**Kwan Fai Mak / Wai-Chiu Ng / Benjamin Kin Ng**\
+United States Navy (USN) / Seattle Police Department (SPD) associate (Bernie Lau)
+
+Source(s):
+1. [I Didn't Kill Benjamin Ng, But Maybe I Should Have](http://archive.kuow.org/post/i-didnt-kill-benjamin-ng-maybe-i-should-have)
+
+2. [Dance with the Devil – The Memoirs of an Undercover Narcotics Detective](https://www.google.ca/books/edition/Dance_with_the_Devil_Memoirs_of_an_Under/q0m2uYu0FboC?hl=en&gbpv=1&bsq=NAVY)
+
+=============================================================================================================================
+
+[2012 Aurora, Colorado shooting](https://en.wikipedia.org/wiki/2012_Aurora%2C_Colorado_shooting)\
+Aurora, Colorado\
+July 20, 2012\
+12 killed, 70 wounded
+
+Perpetrator(s):\
+**James Eagan Holmes, 24**\
+United States Federal Government / Department of Defense (DOD) contractor intern (Salk Institute for Biological Studies); United States Department of Defense (DOD) associates (University of Colorado Anschutz Medical Campus research grants); United States National Institutes of Health (NIH) associates (neuroscience PhD program grant); United States Department of Defense (DOD) contractor father (Robert Holmes Jr. - HNC Software / FICO / United States Navy (USN) / United States Marine Corps (USMC)); United States Army (USA) paternal grandfather (Robert Holmes Sr.)
+
+Source(s):
+1. [James Holmes (mass murderer) - Education and career](https://en.wikipedia.org/wiki/James_Holmes_(mass_murderer)#Education_and_career)
+>In 2006, Holmes worked as an intern at the Salk Institute for Biological Studies, where he was assigned to write computer code for an experiment. Holmes, who was described by his supervisor as stubborn, uncommunicative and socially inept, presented his project to the other interns at the end of the internship, but never completed it.[41][42]
+>
+>Holmes wrote of his experience at the Salk Institute in a college application essay: "I had little experience in computer programming and the work was challenging to say the least. Nonetheless, I taught myself how to program in Flash and then construct a cross-temporal calibration model.... Completing the project and presenting my model at the end of the internship was exhilarating."[43]
+>
+>Graduating from Westview High School in the Torrey Highlands community of San Diego in 2006,[44][45] Holmes attended the University of California, Riverside (UCR). In 2010, he received his undergraduate B.S. degree in neuroscience with highest honors.[46][47][48][49] He was a member of several honor societies, including Phi Beta Kappa and Golden Key.[50] According to UCR recommendation letters submitted to the University of Illinois at Urbana–Champaign (UIUC), Holmes graduated in the top 1 percent of his class with a 3.949 GPA. The UCR letters also described Holmes as "a very effective group leader" and a person who "takes an active role in his education, and brings a great amount of intellectual and emotional maturity into the classroom".[51] Holmes scored in the 98th percentile on the verbal portion, the 94th percentile on the quantitative portion and the 45th percentile on the analytical writing portion of the Graduate Record Examinations.[52]
+>
+>In the summer of 2008, Holmes worked as a counselor at a residential summer camp in Glendale, California, which served children aged 7–14. There, he was responsible for ten children and had no disciplinary problems.[53]
+>
+>In the fall of 2010, Holmes was employed at a pill and capsule-coating factory in San Diego County. One of his co-workers later said that Holmes was unsociable, and once acted strangely at a laboratory work station by staring at a blank wall and not verbally responding, only making a quick glance and smirking, when his co-worker asked if he was okay.[54]
+>
+>In June 2011, Holmes enrolled as a Ph.D. student in neuroscience at the University of Colorado Anschutz Medical Campus in Aurora.[55] He received a $21,600 grant from the National Institutes of Health, according to agency records, which was disbursed in installments from July 2011 to June 2012. Holmes also received a $5,000 stipend from the University of Colorado, Denver.[56][57] Though Holmes received a letter of acceptance to UIUC, where he was offered a $22,600 stipend and free tuition, he declined their offer without specifying a reason. Reviewers of Holmes' application at UIUC remembered his application in part because he submitted a picture of himself with a llama.[51]
+>
+>Beginning in graduate school, Holmes would see shadows and "flickers" at the corners of his eyes, which would fight each other with firearms and other weapons.[58] At the University of Colorado, Holmes sought help in 2012 for his mental state at the student health clinic after he broke up with his girlfriend. Because he pleaded not guilty by reason of insanity, his caregivers were allowed to testify at his trial. He was seen by psychiatrist Dr. Lynne Fenton, who testified at his trial that she was worried about his homicidal ideation expressed in their last meeting. She saw him a total of seven times over three months, twice with a male psychiatrist. Holmes rejected their suggestions for treatment. In June 2012 after Holmes had sent her a threatening email, she activated a threat assessment team to help her formulate a plan for Holmes. She expressed concerns about his social phobia and "psychotic-level thinking" and believed he may have had schizoid personality disorder. She listed specific concerns, such as his long-standing fantasies about killing as many people as possible, his reluctance to discuss any details about his plans, his refusal to allow them to talk to anyone else and the unclear timeline; she didn't know if he was always that way or if this was a new behavior. She consulted with his mother, who said he had longstanding social problems. Although the center offered to treat him if he lost his insurance, he left treatment.[59]
+>
+>In 2012, Holmes' academic performance declined,[60] and he scored poorly on the comprehensive exam in the spring. The university was not planning to expel him; however, Holmes was in the process of withdrawing from the university.[61] Three days after failing a key oral exam at the university in early June 2012, Holmes dropped out of his studies without further explanation.[62] At the time of his arrest, he gave his occupation as "laborer."[63]
+
+2. [James Holmes Family Tied To DARPA And Mind Manipulation Work](http://web.archive.org/web/20121126105826/http://www.blacklistednews.com/James_Holmes_Family_Tied_To_DARPA_And_Mind_Manipulation_Work/20710/0/0/0/Y/M.html)
+>According to his LinkedIn profile, James Holmes's father, Dr. Robert Holmes, who received a PhD in Statistics in 1981 from the University of California at Berkeley, worked for San Diego-based HNC Software, Inc. from 2000 to 2002. HNC, known as a "neural network" company, and DARPA, beginning in 1998, have worked on developing "cortronic neural networks," which would allow machines to interpret aural and visual stimuli to think like humans. The cortronic concept was developed by HNC Software's chief scientist and co-founder, Robert Hecht-Nielsen. HNC merged with the Minneapolis-based Fair Isaac Corporation (FICO), a computer analysis and decision-making company. Robert Holmes continues to work at FICO.
+
+3. [Colorado Shooter James Holmes’ Family History Goes Back to the Mayflower](https://www.thedailybeast.com/colorado-shooter-james-holmes-family-history-goes-back-to-the-mayflower
+>James Holmes's relatives, who descended from the Pilgrims, had a very different relationship to arms.
+>
+>As she presided over the regular luncheon meetings of the Monterey Bay Colony of Mayflower Descendants, Mary Jane Crawford Holmes represented a lineage stretching proudly back to the original Pilgrims.
+>
+>She never could have imagined that her family’s landing on Plymouth Rock would extend almost four centuries later to a grandson accused of mass murder at a Batman movie.\
+>[...]\
+>By all accounts, the Stanford-educated Holmes had always lived up to the principles of the predecessors in whom she is said to have taken an increasing interest after retiring from a long career as a librarian. She had determined that she was a kind of American aristocrat, genealogically speaking. She was descended not only from the Pilgrims, but also from a member of the Ancient and Honorable Artillery Company of Boston, the first American militia. This was the type of outfit that the Second Amendment of the Constitution refers to as “a well-regulated militia, being necessary to the security of a free state.”
+>
+>Robert Holmes had been a career officer in the standing army that was subsequently established to keep the country secure. He fought in the Pacific during World War II and stayed on, serving as a lieutenant colonel in charge of a Nike antiaircraft battery in San Francisco at the time of the Cuban missile crisis. He retired in 1963 and began a second career as a teacher at the private York School in Monterey, where his wife served as a librarian. Both their sons graduated from York: the older James in 1967; Robert Jr. in 1969.
+>
+>The younger Robert went on to earn a bachelor’s degree in mathematics at Stanford, a master’s in biostatistics at UCLA, and a doctorate in statistics at the University of California at Berkeley in 1981. His doctoral thesis was titled “Contributions to the Theory of Parametric Estimation in Randomly Censored Data.” He subsequently authored studies for the Navy and the Marine Corps on how to forecast personnel changes using something called “tree classifications,” the trees in question being statistical. Eventually, reports say, he signed on as a low-six-figure-a-year senior scientist with FICO, which produces management systems, fraud protection, and credit scores. He married Arlene Holmes, a nurse.
+
+4. [James Holmes: Accused Colorado shooter is grandson of decorated veteran, has family roots in Monterey County](https://www.eastbaytimes.com/2012/07/20/james-holmes-accused-colorado-shooter-is-grandson-of-decorated-veteran-has-family-roots-in-monterey-county/)
+>James Holmes, the man believed responsible for killing 12 people Friday during one of the largest mass shooting in U.S. history, is the grandson of a decorated military veteran who was a respected educator at prestigious York School in Monterey.
+>
+>Lt. Col. Robert M. Holmes, who served in the Okinawa campaign during World War II, retired in 1963 as the last commander of the Nike missile group in San Francisco Bay. He was one of the first Turkish language students at the Army Language School, now the Defense Language Institute, graduating in 1948, a school spokesman confirmed Friday.
+>
+>After his military retirement, Holmes taught math and science at York School for 17 years. He died in 1990. His wife, Mary Jane Crawford Holmes, attended Stanford University and worked at the Monterey City Library, Fort Ord Library and Pacific Grove High School before finishing her career as librarian and college counselor at York School. She died in 2010.
+
+=============================================================================================================================
+
+Goseong shooting
+https://amok.fandom.com/wiki/Cho_Jun-hui
+Goseong County, South Korea
+June 26, 1984
+12 - 15 killed, 11 wounded
+
+Perpetrator(s):
+Cho Jun-hui
+South Korean Army
+
+Source(s):
+1. Cho Jun-hui - Amok Wiki
+https://amok.fandom.com/wiki/Cho_Jun-hui
+	Cho Jun-hui (Korean: 조준희) was a South Korean soldier who killed at least twelve people and wounded eleven others at a military camp at Mount Geonbong in Goseong County, South Korea on June 26, 1984.
+
+=============================================================================================================================
+
+GMAC shooting
+https://en.wikipedia.org/wiki/James_Edward_Pough
+Jacksonville, Florida
+June 18, 1990
+12 killed (including 1 perpetrator + 1 murder in 1971), 6 wounded
+
+Perpetrator(s):
+James Edward Pough, 42
+United States Department of Defense (DOD) contractor employer (W. W. Gay Mechanical Contractor, Inc.); United States Merchant Navy (USMN) employer founder (William W. Gay - W. W. Gay Mechanical Contractor, Inc.)
+
+Source(s):
+1. 911 Tape tells Horror of Florida Massacre
+https://www.deseret.com/1990/6/20/18867182/911-tape-tells-horror-of-florida-massacre
+	For the past year, Pough, who went by the nickname “Pop,” had been doing construction maintenance at the Anheuser-Busch brewery for the W.W. Gay Construction Co. Separated from his wife, Theresa, Pough lived in a rundown duplex.
+
+2. W. W. Gay Mechanical Contractor, Inc. - LinkedIn
+https://www.linkedin.com/company/wwgaymechanicalcontractorinc
+	Since 1962, our mission has always been to deliver unparalleled service to our clients. W. W Gay Mechanical Contractor, Inc., founded by William W. “Bill” Gay, has continued to use our contracting proficiency and skilled workforce of over 2,000 employees to provide first rate services in our many fields of expertise, including within the public, private and military sectors.
+
+3. Leadership - Remembering Mr. Gay
+https://wwgmc.com/leadership/
+	Bill Gay loved his country and was proud to have served in the Merchant Marines during WWII.
+
+4. James Edward Pough - 1971 murder of David Lee Pender
+https://en.wikipedia.org/wiki/James_Edward_Pough#1971_murder_of_David_Lee_Pender
+	On May 8, 1971, Pough got into an argument with his best friend, David Lee Pender, who had called his girlfriend a "bitch". In the following scuffle, Pough grabbed a .38-caliber revolver from his girlfriend's purse and shot Pender three times, who eventually died in a hospital. According to relatives, he never managed to get over the fact that he had killed his friend.
+
+Pough was initially charged with murder, though the charge was later reduced to manslaughter. In the end, he pleaded guilty to aggravated assault and was sentenced to five years probation, but the judgment of his guilt was withheld by the court subject to the successful completion of probation.[3]
+
+Due to Pough's violent behavior in the past, it was also ruled that he should never be allowed to own a gun, though this was never forwarded to police. As a result, Pough was not considered a felon and therefore was able to purchase several handguns, among them the Röhm RG-31 .38-caliber revolver he later used to commit suicide, which was registered with the police on June 4, 1979. In 1977, Pough appeared twice in court for charges of bad debt, and there was also an outstanding warrant for his arrest in a 1982 employment compensation fraud case.
+
+=============================================================================================================================
+
+Bahir Dar shooting
+https://addisstandard.com/an-unnamed-police-officer-shot-to-death-twelve-people-in-bahir-dar/
+Bahir Dar, Ethiopia
+May 12, 2013
+12 killed
+
+Perpetrator(s):
+Fekadu Nasha
+Ethiopian Police
+
+Source(s):
+1. Police named officer who shot to death twelve people in Bahir Dar
+https://addisstandard.com/an-unnamed-police-officer-shot-to-death-twelve-people-in-bahir-dar/
+	The Police in in Bahir Dar city, the capital of the Amhara regional state 578kms north of Addis Ababa, has named a member of the federal police unit who killed twelve and wounded two civilians in a weekend killing spree as Constable Fekadu Nasha.
+
+=============================================================================================================================
+
+2017 London Bridge attack
+https://en.wikipedia.org/wiki/2017_London_Bridge_attack
+London, United Kingdom
+June 3, 2017
+11 killed (including 3 perpetrators), 48 wounded
+
+Perpetrator(s):
+Khuram Shazad Butt, 27 / Rachid Redouane / Youssef Zaghba
+British Government employer (Transport for London); British Police / Security Service (MI5) associates (Prevent program); British Government television associates (Channel 4)
+
+Source(s):
+1. Killer who was filmed in Regent's Park with an ISIS flag and tried to radicalise children with sweets was shopped to police TWICE as it emerges one of his fellow terrorists lived in DUBLIN
+https://www.dailymail.co.uk/news/article-4571902/London-Bridge-killer-slipped-police-s-net.html#ixzz4j5XQmySc
+	The security services face difficult questions because 27-year-old Muslim ringleader, Khuram Butt, known to friends as 'Abz', even appeared in a Channel 4 documentary last year about British jihadists and unfurled an ISIS-style flag in Regent's Park. 
+[...]
+Football fan Butt worked at KFC and Transport for London, and also worked for a few hours a week at an Islamic fitness centre where he also took part in boxing and taekwondo.
+ 
+2. Questions on U.K. Policing Mount as 3rd London Attacker Is Identified
+https://www.nytimes.com/2017/06/06/world/europe/london-attack-uk.html
+	There are reports that Mr. Butt and his brother were also involved in the British program Prevent, which seeks to stop people from becoming terrorists or supporting terrorism, and which refers people suspected of radicalization to programs led by the police.
+
+Many Muslims are suspicious of Prevent because of that police involvement. In other countries, like Germany and the Netherlands, such programs are led by local government or by nongovernmental institutions. Critics have said that if the goal is to better integrate Muslims into society, having police and domestic security officials take the lead is the wrong strategy because Muslims fear that the programs are intended to spy on them, not help them.
+
+=============================================================================================================================
+
+Cologne school massacre
+https://en.wikipedia.org/wiki/Cologne_school_massacre
+Cologne, West Germany
+June 11, 1964
+11 killed (including 1 perpetrator), 22 wounded
+
+Perpetrator(s):
+Willi Walter Seifert, 42
+German Luftwaffe; German Schutzpolizei
+
+Source(s):
+1. Cologne school massacre - Perpetrator
+https://en.wikipedia.org/wiki/Cologne_school_massacre#Perpetrator
+	Willi Walter Seifert (19 June 1921 – 11 June 1964) was born in Bickendorf, a district of Cologne.[4] He was the son of a glass-grinder and had one brother. From 1927 to 1935 he attended the Volksschule in Ehrenfeld, and afterwards started an apprenticeship as metal worker at a machine factory, which he successfully finished in 1939. In 1941 he was drafted into the Luftwaffe and attended the Waffentechnische Schule der Luftwaffe (Weaponry Technology School of the Airforce) for a year. By the end of the war he was a sergeant in an anti-aircraft battery and afterwards was a prisoner of war for several months.
+
+Seifert worked for a Cologne car factory, before joining the Schutzpolizei on 14 November 1945. On 23 August 1946 he was treated for a bronchial catarrh, and an examination by a specialist on 5 September diagnosed with tuberculosis in the right lung, resulting in his dismissal from the police on 30 September, as he was unfit for service. From then on Seifert attempted to enforce his claims for subsistence, feeling he was being treated unfairly by the government which he claimed was cheating him of his war pension.
+
+In 1953 his tuberculosis was found to be inactive and Seifert declared to have a reduced earning capacity of 30%, though any causality between his illness and his imprisonment during the war was denied. Seifert contested this, accused the doctors of creating false medical reports and complained in long letters to various authorities about his problems.
+
+In August 1954 Seifert was examined by a public health officer, who was of the opinion that he was not in need of a regimen, but suggested that he could be sent to a sanatorium for observation. The doctor also noted in his report that Seifert was a mentally devious person with no will to recover. Seifert again contested the report and wrote a letter titled "Sozialpolitik - Sozialärzte — Sozialmord" (social politics — social doctors — social murder), whereupon he was examined by a medical specialist for neurology and psychiatry, who noted Seifert's quirky behaviour, his scattered train of thought, and his constant smile in inappropriate situations. He also recorded that Seifert harboured paranoid thoughts about his doctors and showed a peculiar fanatical beha
+
+=============================================================================================================================
+
+Toronto van attack
+https://en.wikipedia.org/wiki/Toronto_van_attack
+Toronto, Canada
+April 23, 2018
+11 killed, 15 wounded
+
+Perpetrator(s):
+Alek Minassian, 25
+Canadian Armed Forces (CAF); Canadian Federal Government contractor father (Vahe Minassian - Rogers Communications); Canadian Department of National Defence (DND) contractor mother (Sona Minassian - Compugen)
+
+Source(s):
+1. Toronto van attack - Perpetrator
+https://en.wikipedia.org/wiki/Toronto_van_attack#Perpetrator
+	Police identified the suspect as Alek Minassian, who had no prior criminal history.[41][42] His father, Vahe, had moved from Armenia to Canada and worked as a software developer, and his mother, Sona, was from Iran and had a job at an IT company.[43] Minassian was also an aspiring software and mobile app developer.[44]
+[...]
+In late 2017, Minassian enrolled in the Canadian Armed Forces for two months, before requesting voluntary release after 16 days of recruit training.[47] A senior military official said that Minassian "wasn't adapting to military life, including in matters of dress, deportment and group interactions in a military setting" and "there were no red flags and nothing that would point to anything like this."[48]
+[...]
+In late 2017, Minassian enrolled in the Canadian Armed Forces for two months, before requesting voluntary release after 16 days of recruit training.[49] A senior military official said that Minassian "wasn't adapting to military life, including in matters of dress, deportment and group interactions in a military setting" and "there were no red flags and nothing that would point to anything like this."[50]
+
+Following the attack, a Facebook post made by Minassian was uncovered in which he identified himself as an incel ("involuntary celibate").[28][51] The state of involuntary celibacy refers to being unable to find sexual partners[52] and its subculture consists of primarily male online communities.[53][54] The post, dated shortly before the beginning of the attack on April 23, allegedly read:
+
+Private (Recruit) Minassian Infantry 00010, wishing to speak to Sgt 4chan please. C23249161. The Incel Rebellion has already begun! We will overthrow all the Chads and Stacys! All hail the Supreme Gentleman Elliot Rodger![10][55]
+[...]
+A source in the Department of National Defence told media that C23249161 was Minassian's military identification number during his army training.[63]
+
+2. The Man Behind the Yonge Street Van Attack
+https://torontolife.com/city/man-behind-yonge-street-van-attack/
+	His father, Vahe, had moved from Armenia to Canada and worked as a software developer for Rogers. His mom, Sona, was from Iran and had a job at Compugen, an IT company.
+[...]
+His mom took him to Helpmate, a community services agency in Richmond Hill. As part of their life skills counselling, they trained Minassian for a summer job at his mom’s workplace, Compugen. He did photocopying, filing and shredding in the accounts payable department.
+
+When Minassian was 15, his parents bought him his own computer. He became obsessed with Halo, the first-person shooter game where super-soldiers fight for interstellar domination. In Halo, every player starts with the same abilities—it’s an even playing field, which appealed to Minassian. He played late into the night with a handful of friends and strangers he met online. The Halo community was the perfect place for him. There were no fraught social cues he couldn’t interpret or laughter following him down hallways. He didn’t have to speak to other people, and he didn’t have to feel alone.
+
+Minassian had a natural aptitude for computers, and pursued a computer programming diploma at Seneca’s campus at York University, not far from his Richmond Hill home. He did well in his classes, earning a coveted gig as a research assistant at Seneca’s Centre for Development of Open Technology, a position that could open doors into entry-level jobs at prestigious software companies like Red Hat and Mozilla.
+[...]
+At one point, he took a job as a quality-assurance developer at Toogood Financial Systems, an investment software firm based in Richmond Hill. After six months, he was fired. He did a co-op placement with OMERS, but they didn’t invite him back to work full-time.
+[...]
+In September 2017, Minassian left home for the first time. His parents encouraged him to join the army, so, one semester before he was due to complete his degree at Seneca, he quit school to enlist. He passed his entrance assessment, including an aptitude test, a medical exam, a fitness test and an interview, and reported for his first day of training at a military facility in Saint-Jean-sur-Richelieu, Quebec—recruit number C23249161. To his fellow recruits, he seemed shy and withdrawn.
+
+In a matter of days, it became clear that Minassian was the weak link in an otherwise strong platoon. Andrew Summerfield, his section leader, was concerned. Minassian never should have passed the entrance exam, Summerfield thought. He didn’t have the motor control to complete simple stopping drills: when the recruits were ordered to swing their right legs without moving their bodies, Minassian stumbled. His physical tics—hand to cheek, hand to ear, then hand to nose—were so pronounced that they distracted the other recruits in class. He seemed oblivious to the constraints of time, falling woefully behind in exercises. He even had trouble packing his kit, wandering around the drill hall aimlessly, unsure of what he needed. More than anything, Minassian seemed absent, locked in the confines of his mind. He usually sat alone, and always answered questions with monosyllabic indifference. He never made eye contact, looking down to the floor when he spoke. Summerfield knew Minassian never would have qualified for a civilian firearm licence—so why was he admitted to the armed forces as an infantry soldier?
+
+Within a few days, the other recruits were talking about Minassian behind his back, frustrated that he was making the platoon look bad. In the evenings, when the others would gather in the barracks to joke and commiserate, Minassian stayed in his bunk. He knew he didn’t fit in. Summerfield developed a system to help Minassian. Each morning, he would wake with the others at 5 a.m. and rush to complete his own tasks, making sure to leave himself enough time to help Minassian before inspection. There was something wrong nearly every day, and Minassian never seemed to understand why. He’d make his bed improperly, no matter how many times Summerfield showed him hospital corners. His uniform would be unkempt, or his clothes folded incorrectly in his kit. Summerfield was baffled. “It seemed like he didn’t understand the gravity of the situation he was in,” he says. Instructors barked orders at him, making him do one push-up for each loose thread on his uniform, or making the entire platoon do push-ups for Minassian’s mistakes.
+
+By the second week of training, Summerfield was going to great lengths to get Minassian to complete the basic tasks that would keep his section off the instructors’ hit lists. He showed him how to shape his beret properly, suggesting that he shower with it on and let it dry on his head. “It was like when you trick kids into doing stuff,” he says.
+
+By the third week, Minassian had come down with a strain of strep throat so common in basic training that recruits joke it’s unique to the forces. He went to the infirmary. When he didn’t come back, an instructor ordered Summerfield to go find him. He walked into the barracks and saw Minassian curled in his bed. “I don’t want to be here anymore,” he told Summerfield. “I want to go home.”
+
+Sixteen days in, Minassian asked to be discharged. When he stood to leave, his fellow recruits breathed a collective sigh of relief. “It was in the back of our minds that giving this guy a firearm probably wouldn’t go well,” Summerfield says. He didn’t seem violent or angry—they just didn’t think he’d be able to learn how to use it properly.
+
+That winter, Minassian returned to Seneca to complete his final semester. In one class, the students played two truths and a lie as an icebreaker. He mentioned he’d been in the army but left during training. When a fellow student asked why, Minassian told him it was because he didn’t get to use guns as often as he’d hoped. It didn’t sound like he was joking.
+
+3. Contracts awarded to Compugen Inc.
+https://buyandsell.gc.ca/procurement-data/request-your-own-supplier-contract-history-letter/compugen-inc
+
+=============================================================================================================================
+
+Letipea massacre
+https://en.wikipedia.org/wiki/Letipea_massacre
+Letipea, Soviet Union
+August 8, 1976
+11 killed (including 1 perpetrator), 13 wounded
+
+Perpetrator(s):
+Unnamed shooter
+Committee for State Security (KGB) (Soviet Border Troops)
+
+Source(s):
+1. Letipea massacre - Wikipedia
+https://en.wikipedia.org/wiki/Letipea_massacre
+	One of the border guards opened fire with an assault rifle, killing six people at the picnic and wounding 18. In addition, he shot at one of the border guards who had come to stop him, who later died in hospital. In the end, the shooter committed suicide by shooting himself in the face.[1] The commander of the border guard unit, who took responsibility, reportedly also committed suicide.[2]
+
+=============================================================================================================================
+
+Kauhajoki school shooting
+https://en.wikipedia.org/wiki/Kauhajoki_school_shooting
+Kauhajoki, Finland
+September 23, 2008
+11 killed (including 1 perpetrator), 11 wounded
+
+Perpetrator(s):
+Matti Juhani Saari, 22
+Finnish Defense Forces (FDF)
+
+Source(s):
+1. Kauhajoki school shooting - Perpetrator
+https://en.wikipedia.org/wiki/Kauhajoki_school_shooting#Perpetrator
+	Matti Juhani Saari (20 May 1986 – 23 September 2008) was identified as the gunman responsible for the shooting. Saari, a Hospitality Management student at the school,[36] was expelled from the Finnish Army in 2006, after serving for only a month, for opening fire in a woodland exercise against orders.[37] Saari had been the victim of bullying in secondary school and dropped out of his classes for this reason.[21] A friend of Saari also reported that he had been seeing a psychologist in the months before the shooting, and had been obsessed with guns.[38] Saari said that he "always wanted to kill as many people as possible."
+
+In his youth, Saari suffered from health problems. His early childhood was marked by slow growth and frequent illness. His brother died when he was 17 years old, which devastated him. He was very shy and sensitive. According to psychologist Peter Langman, Saari seems to have displayed signs of avoidant personality disorder and later possibly schizotypal personality disorder. He was a target of bullying in his school years and he suffered from anxiety, panic attacks and depression. During his month-long service in the Finnish Army, Saari was described as "weird and silent" and had difficulties fitting in. In his last years, he heavily used alcohol and was arrested for driving under the influence.[35]
+
+=============================================================================================================================
+
+Sida shooting
+https://en.wikipedia.org/wiki/Sida_shooting
+Sida, Abkhazia
+June 1, 1997
+11 killed (including 1 perpetrator), 7 wounded
+
+Perpetrator(s):
+Artur Vaganov, 22
+Russian Armed Forces
+
+Source(s):
+1. Sida shooting - Perpetrator
+https://en.wikipedia.org/wiki/Sida_shooting#Perpetrator
+	Artur Vaganov (Russian: Артур Ваганов) was an ethnic Russian from Bashkiria. He did two years of compulsory service in a reconnaissance battalion of the Totskoye Division, rising to the rank of staff sergeant and becoming second-in-command of a platoon. After a year back in civilian life he voluntarily enlisted to join the peacekeeping forces in the zone of the Georgian-Abkhaz conflict. The Volga Military District's 27th Peacekeeping Division, the platoon of which Vaganov was deputy leader, arrived in Abkhazia on April 15, 1997 and entered upon their peacekeeping duties at post 203 two days later.
+
+Vaganov was generally given positive references regarding his service and was described by a UN military observer and a spokesman of the Russian peacekeeping forces as a very demanding and efficient soldier with high standards, who neither drank, nor smoked, though also as someone who was "psychologically not suited to the job."[3][7][9]
+
+=============================================================================================================================
+
+Pittsburgh synagogue shooting
+https://en.wikipedia.org/wiki/Pittsburgh_synagogue_shooting
+Pittsburgh, Pennsylvania
+October 27, 2018
+11 killed, 7 wounded (including 1 perpetrator)
+
+Perpetrator(s):
+Robert Gregory Bowers, 46
+United States Air Force (USAF) stepfather (Robert Saiter); United States Government contractor associate (Terry Choate)
+
+Source(s):
+1. As questions linger about Pittsburgh suspect, details emerge from his early life
+https://www.washingtonpost.com/national/as-questions-linger-about-pittsburgh-suspect-details-emerge-from-his-early-life/2018/11/02/a643c506-dec7-11e8-b732-3c72cbf131f2_story.html
+	When Bowers was as young as 3 or 4 years old, his mother, Barbara, married Robert Saiter in Florida, Saiter said in an interview Thursday. Saiter, who was in the Air Force at the time, said the couple stayed together for less than a year before separating.
+
+2. Suspect identified as Robert Bowers, 46, in Pittsburgh synagogue shooting
+https://www.inquirer.com/philly/news/robert-bowers-pittsburgh-synagogue-shooting-20181027.html
+	"I don't understand why he would be angry at the Jewish people," said Terry Choate, a retired government contractor who said he knew Bowers since the suspect was a small child. "I can't believe he did that. I'd like to know what set him off."
+
+=============================================================================================================================
