@@ -4330,7 +4330,7 @@ Sixteen days in, Minassian asked to be discharged. When he stood to leave, his f
 
 5. [Red Hat's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Red+Hat+Department+of+Defense)
 
-6. [Red Hat's Connections to the United States Central Intelligence Agency - Google] (https://www.google.com/search?q=Red+Hat+Central+Intelligence+Agency)
+6. [Red Hat's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=Red+Hat+Central+Intelligence+Agency)
 
 =============================================================================================================================
 
