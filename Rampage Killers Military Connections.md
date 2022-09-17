@@ -4329,78 +4329,69 @@ Sixteen days in, Minassian asked to be discharged. When he stood to leave, his f
 
 =============================================================================================================================
 
-Letipea massacre
-https://en.wikipedia.org/wiki/Letipea_massacre
-Letipea, Soviet Union
-August 8, 1976
+[Letipea massacre](https://en.wikipedia.org/wiki/Letipea_massacre)\
+Letipea, Soviet Union\
+August 8, 1976\
 11 killed (including 1 perpetrator), 13 wounded
 
-Perpetrator(s):
-Unnamed shooter
+Perpetrator(s):\
+**Unnamed shooter**\
 Committee for State Security (KGB) (Soviet Border Troops)
 
 Source(s):
-1. Letipea massacre - Wikipedia
-https://en.wikipedia.org/wiki/Letipea_massacre
-	One of the border guards opened fire with an assault rifle, killing six people at the picnic and wounding 18. In addition, he shot at one of the border guards who had come to stop him, who later died in hospital. In the end, the shooter committed suicide by shooting himself in the face.[1] The commander of the border guard unit, who took responsibility, reportedly also committed suicide.[2]
+1. [Letipea massacre - Wikipedia](https://en.wikipedia.org/wiki/Letipea_massacre)
+>One of the border guards opened fire with an assault rifle, killing six people at the picnic and wounding 18. In addition, he shot at one of the border guards who had come to stop him, who later died in hospital. In the end, the shooter committed suicide by shooting himself in the face.[1] The commander of the border guard unit, who took responsibility, reportedly also committed suicide.[2]
 
 =============================================================================================================================
 
-Kauhajoki school shooting
-https://en.wikipedia.org/wiki/Kauhajoki_school_shooting
-Kauhajoki, Finland
-September 23, 2008
+[Kauhajoki school shooting](https://en.wikipedia.org/wiki/Kauhajoki_school_shooting)\
+Kauhajoki, Finland\
+September 23, 2008\
 11 killed (including 1 perpetrator), 11 wounded
 
-Perpetrator(s):
-Matti Juhani Saari, 22
+Perpetrator(s):\
+**Matti Juhani Saari, 22**\
 Finnish Defense Forces (FDF)
 
 Source(s):
-1. Kauhajoki school shooting - Perpetrator
-https://en.wikipedia.org/wiki/Kauhajoki_school_shooting#Perpetrator
-	Matti Juhani Saari (20 May 1986 – 23 September 2008) was identified as the gunman responsible for the shooting. Saari, a Hospitality Management student at the school,[36] was expelled from the Finnish Army in 2006, after serving for only a month, for opening fire in a woodland exercise against orders.[37] Saari had been the victim of bullying in secondary school and dropped out of his classes for this reason.[21] A friend of Saari also reported that he had been seeing a psychologist in the months before the shooting, and had been obsessed with guns.[38] Saari said that he "always wanted to kill as many people as possible."
-
-In his youth, Saari suffered from health problems. His early childhood was marked by slow growth and frequent illness. His brother died when he was 17 years old, which devastated him. He was very shy and sensitive. According to psychologist Peter Langman, Saari seems to have displayed signs of avoidant personality disorder and later possibly schizotypal personality disorder. He was a target of bullying in his school years and he suffered from anxiety, panic attacks and depression. During his month-long service in the Finnish Army, Saari was described as "weird and silent" and had difficulties fitting in. In his last years, he heavily used alcohol and was arrested for driving under the influence.[35]
+1. [Kauhajoki school shooting - Perpetrator](https://en.wikipedia.org/wiki/Kauhajoki_school_shooting#Perpetrator)
+>Matti Juhani Saari (20 May 1986 – 23 September 2008) was identified as the gunman responsible for the shooting. Saari, a Hospitality Management student at the school,[36] was expelled from the Finnish Army in 2006, after serving for only a month, for opening fire in a woodland exercise against orders.[37] Saari had been the victim of bullying in secondary school and dropped out of his classes for this reason.[21] A friend of Saari also reported that he had been seeing a psychologist in the months before the shooting, and had been obsessed with guns.[38] Saari said that he "always wanted to kill as many people as possible."
+>
+>In his youth, Saari suffered from health problems. His early childhood was marked by slow growth and frequent illness. His brother died when he was 17 years old, which devastated him. He was very shy and sensitive. According to psychologist Peter Langman, Saari seems to have displayed signs of avoidant personality disorder and later possibly schizotypal personality disorder. He was a target of bullying in his school years and he suffered from anxiety, panic attacks and depression. During his month-long service in the Finnish Army, Saari was described as "weird and silent" and had difficulties fitting in. In his last years, he heavily used alcohol and was arrested for driving under the influence.[35]
 
 =============================================================================================================================
 
-Sida shooting
-https://en.wikipedia.org/wiki/Sida_shooting
-Sida, Abkhazia
-June 1, 1997
+[Sida shooting](https://en.wikipedia.org/wiki/Sida_shooting)\
+Sida, Abkhazia\
+June 1, 1997\
 11 killed (including 1 perpetrator), 7 wounded
 
-Perpetrator(s):
-Artur Vaganov, 22
+Perpetrator(s):\
+**Artur Vaganov, 22**\
 Russian Armed Forces
 
 Source(s):
-1. Sida shooting - Perpetrator
-https://en.wikipedia.org/wiki/Sida_shooting#Perpetrator
-	Artur Vaganov (Russian: Артур Ваганов) was an ethnic Russian from Bashkiria. He did two years of compulsory service in a reconnaissance battalion of the Totskoye Division, rising to the rank of staff sergeant and becoming second-in-command of a platoon. After a year back in civilian life he voluntarily enlisted to join the peacekeeping forces in the zone of the Georgian-Abkhaz conflict. The Volga Military District's 27th Peacekeeping Division, the platoon of which Vaganov was deputy leader, arrived in Abkhazia on April 15, 1997 and entered upon their peacekeeping duties at post 203 two days later.
-
-Vaganov was generally given positive references regarding his service and was described by a UN military observer and a spokesman of the Russian peacekeeping forces as a very demanding and efficient soldier with high standards, who neither drank, nor smoked, though also as someone who was "psychologically not suited to the job."[3][7][9]
+1. [Sida shooting - Perpetrator](https://en.wikipedia.org/wiki/Sida_shooting#Perpetrator)
+>Artur Vaganov (Russian: Артур Ваганов) was an ethnic Russian from Bashkiria. He did two years of compulsory service in a reconnaissance battalion of the Totskoye Division, rising to the rank of staff sergeant and becoming second-in-command of a platoon. After a year back in civilian life he voluntarily enlisted to join the peacekeeping forces in the zone of the Georgian-Abkhaz conflict. The Volga Military District's 27th Peacekeeping Division, the platoon of which Vaganov was deputy leader, arrived in Abkhazia on April 15, 1997 and entered upon their peacekeeping duties at post 203 two days later.
+>
+>Vaganov was generally given positive references regarding his service and was described by a UN military observer and a spokesman of the Russian peacekeeping forces as a very demanding and efficient soldier with high standards, who neither drank, nor smoked, though also as someone who was "psychologically not suited to the job."[3][7][9]
 
 =============================================================================================================================
 
-Pittsburgh synagogue shooting
-https://en.wikipedia.org/wiki/Pittsburgh_synagogue_shooting
-Pittsburgh, Pennsylvania
-October 27, 2018
+[Pittsburgh synagogue shooting](https://en.wikipedia.org/wiki/Pittsburgh_synagogue_shooting)\
+Pittsburgh, Pennsylvania\
+October 27, 2018\
 11 killed, 7 wounded (including 1 perpetrator)
 
-Perpetrator(s):
-Robert Gregory Bowers, 46
+Perpetrator(s):\
+**Robert Gregory Bowers, 46**\
 United States Air Force (USAF) stepfather (Robert Saiter); United States Government contractor associate (Terry Choate)
 
 Source(s):
-1. As questions linger about Pittsburgh suspect, details emerge from his early life
-https://www.washingtonpost.com/national/as-questions-linger-about-pittsburgh-suspect-details-emerge-from-his-early-life/2018/11/02/a643c506-dec7-11e8-b732-3c72cbf131f2_story.html
-	When Bowers was as young as 3 or 4 years old, his mother, Barbara, married Robert Saiter in Florida, Saiter said in an interview Thursday. Saiter, who was in the Air Force at the time, said the couple stayed together for less than a year before separating.
+1. [As questions linger about Pittsburgh suspect, details emerge from his early life](https://www.washingtonpost.com/national/as-questions-linger-about-pittsburgh-suspect-details-emerge-from-his-early-life/2018/11/02/a643c506-dec7-11e8-b732-3c72cbf131f2_story.html)
+>When Bowers was as young as 3 or 4 years old, his mother, Barbara, married Robert Saiter in Florida, Saiter said in an interview Thursday. Saiter, who was in the Air Force at the time, said the couple stayed together for less than a year before separating.
 
-2. Suspect identified as Robert Bowers, 46, in Pittsburgh synagogue shooting
-https://www.inquirer.com/philly/news/robert-bowers-pittsburgh-synagogue-shooting-20181027.html
-	"I don't understand why he would be angry at the Jewish people," said Terry Choate, a retired government contractor who said he knew Bowers since the suspect was a small child. "I can't believe he did that. I'd like to know what set him off."
+2. [Suspect identified as Robert Bowers, 46, in Pittsburgh synagogue shooting](https://www.inquirer.com/philly/news/robert-bowers-pittsburgh-synagogue-shooting-20181027.html)
+>"I don't understand why he would be angry at the Jewish people," said Terry Choate, a retired government contractor who said he knew Bowers since the suspect was a small child. "I can't believe he did that. I'd like to know what set him off."
 
 =============================================================================================================================
