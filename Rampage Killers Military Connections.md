@@ -4283,7 +4283,7 @@ April 23, 2018\
 11 killed, 15 wounded
 
 Perpetrator(s):\
-**Alek Minassian, 25**
+**Alek Minassian, 25**\
 Canadian Armed Forces (CAF); Canadian Federal Government contractor father (Vahe Minassian - Rogers Communications); Canadian Department of National Defence (DND) contractor mother (Sona Minassian - Compugen)
 
 Source(s):
@@ -4296,7 +4296,7 @@ Source(s):
 >
 >Following the attack, a Facebook post made by Minassian was uncovered in which he identified himself as an incel ("involuntary celibate").[28][51] The state of involuntary celibacy refers to being unable to find sexual partners[52] and its subculture consists of primarily male online communities.[53][54] The post, dated shortly before the beginning of the attack on April 23, allegedly read:
 >
->>Private (Recruit) Minassian Infantry 00010, wishing to speak to Sgt 4chan please. C23249161. The Incel Rebellion has already begun! We will overthrow all the Chads and Stacys! All hail the Supreme Gentleman Elliot Rodger![10][55]
+>>Private (Recruit) Minassian Infantry 00010, wishing to speak to Sgt 4chan please. C23249161. The Incel Rebellion has already begun! We will overthrow all the Chads and Stacys! All hail the Supreme Gentleman Elliot Rodger![10][55]\
 >[...]\
 >A source in the Department of National Defence told media that C23249161 was Minassian's military identification number during his army training.[63]
 
