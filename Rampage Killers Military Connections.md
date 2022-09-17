@@ -4284,7 +4284,7 @@ April 23, 2018\
 
 Perpetrator(s):\
 **Alek Minassian, 25**\
-Canadian Armed Forces (CAF); Canadian Federal Government contractor father (Vahe Minassian - Rogers Communications); Canadian Department of National Defence (DND) contractor mother (Sona Minassian - Compugen)
+Canadian Armed Forces (CAF); Canadian Department of National Defence (DND) contractor father (Vahe Minassian - Rogers Communications); Canadian Department of National Defence (DND) contractor mother (Sona Minassian - Compugen)
 
 Source(s):
 1. [Toronto van attack - Perpetrator](https://en.wikipedia.org/wiki/Toronto_van_attack#Perpetrator)
@@ -4305,9 +4305,7 @@ Source(s):
 >[Alek Minassian's] father, Vahe, had moved from Armenia to Canada and worked as a software developer for Rogers. His mom, Sona, was from Iran and had a job at Compugen, an IT company.\
 >[...]\
 >His mom took him to Helpmate, a community services agency in Richmond Hill. As part of their life skills counselling, they trained Minassian for a summer job at his mom’s workplace, Compugen. He did photocopying, filing and shredding in the accounts payable department.
->
->When Minassian was 15, his parents bought him his own computer. He became obsessed with Halo, the first-person shooter game where super-soldiers fight for interstellar domination. In Halo, every player starts with the same abilities—it’s an even playing field, which appealed to Minassian. He played late into the night with a handful of friends and strangers he met online. The Halo community was the perfect place for him. There were no fraught social cues he couldn’t interpret or laughter following him down hallways. He didn’t have to speak to other people, and he didn’t have to feel alone.
->
+>[...]\
 >Minassian had a natural aptitude for computers, and pursued a computer programming diploma at Seneca’s campus at York University, not far from his Richmond Hill home. He did well in his classes, earning a coveted gig as a research assistant at Seneca’s Centre for Development of Open Technology, a position that could open doors into entry-level jobs at prestigious software companies like Red Hat and Mozilla.\
 [...]\
 >At one point, he took a job as a quality-assurance developer at Toogood Financial Systems, an investment software firm based in Richmond Hill. After six months, he was fired. He did a co-op placement with OMERS, but they didn’t invite him back to work full-time.\
@@ -4326,7 +4324,13 @@ Sixteen days in, Minassian asked to be discharged. When he stood to leave, his f
 >
 >That winter, Minassian returned to Seneca to complete his final semester. In one class, the students played two truths and a lie as an icebreaker. He mentioned he’d been in the army but left during training. When a fellow student asked why, Minassian told him it was because he didn’t get to use guns as often as he’d hoped. It didn’t sound like he was joking.
 
-3. [Contracts awarded to Compugen Inc.](https://buyandsell.gc.ca/procurement-data/request-your-own-supplier-contract-history-letter/compugen-inc)
+3. [Rogers Communications' Connections to the Canadian Department of National Defence](https://buyandsell.gc.ca/procurement-data/search/site/Rogers%20Communications?f%5B0%5D=sm_facet_procurement_data%3Adata_data_ch)
+
+4. [Compugen's Connections to the Canadian Department of National Defence](https://buyandsell.gc.ca/procurement-data/request-your-own-supplier-contract-history-letter/compugen-inc)
+
+5. [Red Hat's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Red+Hat+Department+of+Defense)
+
+6. [Red Hat's Connections to the United States Central Intelligence Agency - Google] (https://www.google.com/search?q=Red+Hat+Central+Intelligence+Agency)
 
 =============================================================================================================================
 
