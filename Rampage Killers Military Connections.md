@@ -4094,7 +4094,7 @@ September 25, 1982\
 13 killed, 1 wounded
 
 Perpetrator(s):\
-**George Emil Banks, 40**
+**George Emil Banks, 40**\
 United States Army (USA); Pennsylvania Department of Corrections
 
 Source(s):
@@ -4154,7 +4154,7 @@ Source(s):
 2. [James Holmes Family Tied To DARPA And Mind Manipulation Work](http://web.archive.org/web/20121126105826/http://www.blacklistednews.com/James_Holmes_Family_Tied_To_DARPA_And_Mind_Manipulation_Work/20710/0/0/0/Y/M.html)
 >According to his LinkedIn profile, James Holmes's father, Dr. Robert Holmes, who received a PhD in Statistics in 1981 from the University of California at Berkeley, worked for San Diego-based HNC Software, Inc. from 2000 to 2002. HNC, known as a "neural network" company, and DARPA, beginning in 1998, have worked on developing "cortronic neural networks," which would allow machines to interpret aural and visual stimuli to think like humans. The cortronic concept was developed by HNC Software's chief scientist and co-founder, Robert Hecht-Nielsen. HNC merged with the Minneapolis-based Fair Isaac Corporation (FICO), a computer analysis and decision-making company. Robert Holmes continues to work at FICO.
 
-3. [Colorado Shooter James Holmes’ Family History Goes Back to the Mayflower](https://www.thedailybeast.com/colorado-shooter-james-holmes-family-history-goes-back-to-the-mayflower
+3. [Colorado Shooter James Holmes’ Family History Goes Back to the Mayflower](https://www.thedailybeast.com/colorado-shooter-james-holmes-family-history-goes-back-to-the-mayflower)
 >James Holmes's relatives, who descended from the Pilgrims, had a very different relationship to arms.
 >
 >As she presided over the regular luncheon meetings of the Monterey Bay Colony of Mayflower Descendants, Mary Jane Crawford Holmes represented a lineage stretching proudly back to the original Pilgrims.
@@ -4176,145 +4176,129 @@ Source(s):
 
 =============================================================================================================================
 
-Goseong shooting
-https://amok.fandom.com/wiki/Cho_Jun-hui
-Goseong County, South Korea
-June 26, 1984
+[Goseong shooting](https://amok.fandom.com/wiki/Cho_Jun-hui)\
+Goseong County, South Korea\
+June 26, 1984\
 12 - 15 killed, 11 wounded
 
-Perpetrator(s):
-Cho Jun-hui
+Perpetrator(s):\
+**Cho Jun-hui**\
 South Korean Army
 
 Source(s):
-1. Cho Jun-hui - Amok Wiki
-https://amok.fandom.com/wiki/Cho_Jun-hui
-	Cho Jun-hui (Korean: 조준희) was a South Korean soldier who killed at least twelve people and wounded eleven others at a military camp at Mount Geonbong in Goseong County, South Korea on June 26, 1984.
+1. [Cho Jun-hui - Amok Wiki](https://amok.fandom.com/wiki/Cho_Jun-hui)
+>Cho Jun-hui (Korean: 조준희) was a South Korean soldier who killed at least twelve people and wounded eleven others at a military camp at Mount Geonbong in Goseong County, South Korea on June 26, 1984.
 
 =============================================================================================================================
 
-GMAC shooting
-https://en.wikipedia.org/wiki/James_Edward_Pough
-Jacksonville, Florida
-June 18, 1990
+[GMAC office shooting](https://en.wikipedia.org/wiki/James_Edward_Pough)\
+Jacksonville, Florida\
+June 18, 1990\
 12 killed (including 1 perpetrator + 1 murder in 1971), 6 wounded
 
-Perpetrator(s):
-James Edward Pough, 42
+Perpetrator(s):\
+**James Edward Pough, 42**\
 United States Department of Defense (DOD) contractor employer (W. W. Gay Mechanical Contractor, Inc.); United States Merchant Navy (USMN) employer founder (William W. Gay - W. W. Gay Mechanical Contractor, Inc.)
 
 Source(s):
-1. 911 Tape tells Horror of Florida Massacre
-https://www.deseret.com/1990/6/20/18867182/911-tape-tells-horror-of-florida-massacre
-	For the past year, Pough, who went by the nickname “Pop,” had been doing construction maintenance at the Anheuser-Busch brewery for the W.W. Gay Construction Co. Separated from his wife, Theresa, Pough lived in a rundown duplex.
+1. [911 Tape tells Horror of Florida Massacre](https://www.deseret.com/1990/6/20/18867182/911-tape-tells-horror-of-florida-massacre)
+>For the past year, Pough, who went by the nickname “Pop,” had been doing construction maintenance at the Anheuser-Busch brewery for the W.W. Gay Construction Co. Separated from his wife, Theresa, Pough lived in a rundown duplex.
 
-2. W. W. Gay Mechanical Contractor, Inc. - LinkedIn
-https://www.linkedin.com/company/wwgaymechanicalcontractorinc
-	Since 1962, our mission has always been to deliver unparalleled service to our clients. W. W Gay Mechanical Contractor, Inc., founded by William W. “Bill” Gay, has continued to use our contracting proficiency and skilled workforce of over 2,000 employees to provide first rate services in our many fields of expertise, including within the public, private and military sectors.
+2. [W. W. Gay Mechanical Contractor, Inc. - LinkedIn](https://www.linkedin.com/company/wwgaymechanicalcontractorinc)
+>Since 1962, our mission has always been to deliver unparalleled service to our clients. W. W Gay Mechanical Contractor, Inc., founded by William W. “Bill” Gay, has continued to use our contracting proficiency and skilled workforce of over 2,000 employees to provide first rate services in our many fields of expertise, including within the public, private and military sectors.
 
-3. Leadership - Remembering Mr. Gay
-https://wwgmc.com/leadership/
-	Bill Gay loved his country and was proud to have served in the Merchant Marines during WWII.
+3. [Leadership - Remembering Mr. Gay](https://wwgmc.com/leadership/)
+>Bill Gay loved his country and was proud to have served in the Merchant Marines during WWII.
 
-4. James Edward Pough - 1971 murder of David Lee Pender
-https://en.wikipedia.org/wiki/James_Edward_Pough#1971_murder_of_David_Lee_Pender
-	On May 8, 1971, Pough got into an argument with his best friend, David Lee Pender, who had called his girlfriend a "bitch". In the following scuffle, Pough grabbed a .38-caliber revolver from his girlfriend's purse and shot Pender three times, who eventually died in a hospital. According to relatives, he never managed to get over the fact that he had killed his friend.
-
-Pough was initially charged with murder, though the charge was later reduced to manslaughter. In the end, he pleaded guilty to aggravated assault and was sentenced to five years probation, but the judgment of his guilt was withheld by the court subject to the successful completion of probation.[3]
-
-Due to Pough's violent behavior in the past, it was also ruled that he should never be allowed to own a gun, though this was never forwarded to police. As a result, Pough was not considered a felon and therefore was able to purchase several handguns, among them the Röhm RG-31 .38-caliber revolver he later used to commit suicide, which was registered with the police on June 4, 1979. In 1977, Pough appeared twice in court for charges of bad debt, and there was also an outstanding warrant for his arrest in a 1982 employment compensation fraud case.
+4. [James Edward Pough - 1971 murder of David Lee Pender](https://en.wikipedia.org/wiki/James_Edward_Pough#1971_murder_of_David_Lee_Pender)
+>On May 8, 1971, Pough got into an argument with his best friend, David Lee Pender, who had called his girlfriend a "bitch". In the following scuffle, Pough grabbed a .38-caliber revolver from his girlfriend's purse and shot Pender three times, who eventually died in a hospital. According to relatives, he never managed to get over the fact that he had killed his friend.
+>
+>Pough was initially charged with murder, though the charge was later reduced to manslaughter. In the end, he pleaded guilty to aggravated assault and was sentenced to five years probation, but the judgment of his guilt was withheld by the court subject to the successful completion of probation.[3]
+>
+>Due to Pough's violent behavior in the past, it was also ruled that he should never be allowed to own a gun, though this was never forwarded to police. As a result, Pough was not considered a felon and therefore was able to purchase several handguns, among them the Röhm RG-31 .38-caliber revolver he later used to commit suicide, which was registered with the police on June 4, 1979. In 1977, Pough appeared twice in court for charges of bad debt, and there was also an outstanding warrant for his arrest in a 1982 employment compensation fraud case.
 
 =============================================================================================================================
 
-Bahir Dar shooting
-https://addisstandard.com/an-unnamed-police-officer-shot-to-death-twelve-people-in-bahir-dar/
-Bahir Dar, Ethiopia
-May 12, 2013
+[Bahir Dar shooting](https://addisstandard.com/an-unnamed-police-officer-shot-to-death-twelve-people-in-bahir-dar/)\
+Bahir Dar, Ethiopia\
+May 12, 2013\
 12 killed
 
-Perpetrator(s):
-Fekadu Nasha
+Perpetrator(s):\
+**Fekadu Nasha**\
 Ethiopian Police
 
 Source(s):
-1. Police named officer who shot to death twelve people in Bahir Dar
-https://addisstandard.com/an-unnamed-police-officer-shot-to-death-twelve-people-in-bahir-dar/
-	The Police in in Bahir Dar city, the capital of the Amhara regional state 578kms north of Addis Ababa, has named a member of the federal police unit who killed twelve and wounded two civilians in a weekend killing spree as Constable Fekadu Nasha.
+1. [Police named officer who shot to death twelve people in Bahir Dar](https://addisstandard.com/an-unnamed-police-officer-shot-to-death-twelve-people-in-bahir-dar/)
+>The Police in in Bahir Dar city, the capital of the Amhara regional state 578kms north of Addis Ababa, has named a member of the federal police unit who killed twelve and wounded two civilians in a weekend killing spree as Constable Fekadu Nasha.
 
 =============================================================================================================================
 
-2017 London Bridge attack
-https://en.wikipedia.org/wiki/2017_London_Bridge_attack
-London, United Kingdom
-June 3, 2017
+[2017 London Bridge attack](https://en.wikipedia.org/wiki/2017_London_Bridge_attack)\
+London, United Kingdom\
+June 3, 2017\
 11 killed (including 3 perpetrators), 48 wounded
 
-Perpetrator(s):
-Khuram Shazad Butt, 27 / Rachid Redouane / Youssef Zaghba
+Perpetrator(s):\
+**Khuram Shazad Butt, 27 / Rachid Redouane / Youssef Zaghba**\
 British Government employer (Transport for London); British Police / Security Service (MI5) associates (Prevent program); British Government television associates (Channel 4)
 
 Source(s):
-1. Killer who was filmed in Regent's Park with an ISIS flag and tried to radicalise children with sweets was shopped to police TWICE as it emerges one of his fellow terrorists lived in DUBLIN
-https://www.dailymail.co.uk/news/article-4571902/London-Bridge-killer-slipped-police-s-net.html#ixzz4j5XQmySc
-	The security services face difficult questions because 27-year-old Muslim ringleader, Khuram Butt, known to friends as 'Abz', even appeared in a Channel 4 documentary last year about British jihadists and unfurled an ISIS-style flag in Regent's Park. 
-[...]
-Football fan Butt worked at KFC and Transport for London, and also worked for a few hours a week at an Islamic fitness centre where he also took part in boxing and taekwondo.
+1. [Killer who was filmed in Regent's Park with an ISIS flag and tried to radicalise children with sweets was shopped to police TWICE as it emerges one of his fellow terrorists lived in DUBLIN](https://www.dailymail.co.uk/news/article-4571902/London-Bridge-killer-slipped-police-s-net.html#ixzz4j5XQmySc)
+>The security services face difficult questions because 27-year-old Muslim ringleader, Khuram Butt, known to friends as 'Abz', even appeared in a Channel 4 documentary last year about British jihadists and unfurled an ISIS-style flag in Regent's Park.\
+>[...]\
+>Football fan Butt worked at KFC and Transport for London, and also worked for a few hours a week at an Islamic fitness centre where he also took part in boxing and taekwondo.
  
-2. Questions on U.K. Policing Mount as 3rd London Attacker Is Identified
-https://www.nytimes.com/2017/06/06/world/europe/london-attack-uk.html
-	There are reports that Mr. Butt and his brother were also involved in the British program Prevent, which seeks to stop people from becoming terrorists or supporting terrorism, and which refers people suspected of radicalization to programs led by the police.
-
-Many Muslims are suspicious of Prevent because of that police involvement. In other countries, like Germany and the Netherlands, such programs are led by local government or by nongovernmental institutions. Critics have said that if the goal is to better integrate Muslims into society, having police and domestic security officials take the lead is the wrong strategy because Muslims fear that the programs are intended to spy on them, not help them.
+2. [Questions on U.K. Policing Mount as 3rd London Attacker Is Identified](https://www.nytimes.com/2017/06/06/world/europe/london-attack-uk.html)
+>There are reports that Mr. Butt and his brother were also involved in the British program Prevent, which seeks to stop people from becoming terrorists or supporting terrorism, and which refers people suspected of radicalization to programs led by the police.
+>
+>Many Muslims are suspicious of Prevent because of that police involvement. In other countries, like Germany and the Netherlands, such programs are led by local government or by nongovernmental institutions. Critics have said that if the goal is to better integrate Muslims into society, having police and domestic security officials take the lead is the wrong strategy because Muslims fear that the programs are intended to spy on them, not help them.
 
 =============================================================================================================================
 
-Cologne school massacre
-https://en.wikipedia.org/wiki/Cologne_school_massacre
-Cologne, West Germany
-June 11, 1964
+[Cologne school massacre](https://en.wikipedia.org/wiki/Cologne_school_massacre)\
+Cologne, West Germany\
+June 11, 1964\
 11 killed (including 1 perpetrator), 22 wounded
 
-Perpetrator(s):
-Willi Walter Seifert, 42
+Perpetrator(s):\
+**Willi Walter Seifert, 42**
 German Luftwaffe; German Schutzpolizei
 
 Source(s):
-1. Cologne school massacre - Perpetrator
-https://en.wikipedia.org/wiki/Cologne_school_massacre#Perpetrator
-	Willi Walter Seifert (19 June 1921 – 11 June 1964) was born in Bickendorf, a district of Cologne.[4] He was the son of a glass-grinder and had one brother. From 1927 to 1935 he attended the Volksschule in Ehrenfeld, and afterwards started an apprenticeship as metal worker at a machine factory, which he successfully finished in 1939. In 1941 he was drafted into the Luftwaffe and attended the Waffentechnische Schule der Luftwaffe (Weaponry Technology School of the Airforce) for a year. By the end of the war he was a sergeant in an anti-aircraft battery and afterwards was a prisoner of war for several months.
-
-Seifert worked for a Cologne car factory, before joining the Schutzpolizei on 14 November 1945. On 23 August 1946 he was treated for a bronchial catarrh, and an examination by a specialist on 5 September diagnosed with tuberculosis in the right lung, resulting in his dismissal from the police on 30 September, as he was unfit for service. From then on Seifert attempted to enforce his claims for subsistence, feeling he was being treated unfairly by the government which he claimed was cheating him of his war pension.
-
-In 1953 his tuberculosis was found to be inactive and Seifert declared to have a reduced earning capacity of 30%, though any causality between his illness and his imprisonment during the war was denied. Seifert contested this, accused the doctors of creating false medical reports and complained in long letters to various authorities about his problems.
-
-In August 1954 Seifert was examined by a public health officer, who was of the opinion that he was not in need of a regimen, but suggested that he could be sent to a sanatorium for observation. The doctor also noted in his report that Seifert was a mentally devious person with no will to recover. Seifert again contested the report and wrote a letter titled "Sozialpolitik - Sozialärzte — Sozialmord" (social politics — social doctors — social murder), whereupon he was examined by a medical specialist for neurology and psychiatry, who noted Seifert's quirky behaviour, his scattered train of thought, and his constant smile in inappropriate situations. He also recorded that Seifert harboured paranoid thoughts about his doctors and showed a peculiar fanatical beha
+1. [Cologne school massacre - Perpetrator](https://en.wikipedia.org/wiki/Cologne_school_massacre#Perpetrator)
+>Willi Walter Seifert (19 June 1921 – 11 June 1964) was born in Bickendorf, a district of Cologne.[4] He was the son of a glass-grinder and had one brother. From 1927 to 1935 he attended the Volksschule in Ehrenfeld, and afterwards started an apprenticeship as metal worker at a machine factory, which he successfully finished in 1939. In 1941 he was drafted into the Luftwaffe and attended the Waffentechnische Schule der Luftwaffe (Weaponry Technology School of the Airforce) for a year. By the end of the war he was a sergeant in an anti-aircraft battery and afterwards was a prisoner of war for several months.
+>
+>Seifert worked for a Cologne car factory, before joining the Schutzpolizei on 14 November 1945. On 23 August 1946 he was treated for a bronchial catarrh, and an examination by a specialist on 5 September diagnosed with tuberculosis in the right lung, resulting in his dismissal from the police on 30 September, as he was unfit for service. From then on Seifert attempted to enforce his claims for subsistence, feeling he was being treated unfairly by the government which he claimed was cheating him of his war pension.
+>
+>In 1953 his tuberculosis was found to be inactive and Seifert declared to have a reduced earning capacity of 30%, though any causality between his illness and his imprisonment during the war was denied. Seifert contested this, accused the doctors of creating false medical reports and complained in long letters to various authorities about his problems.
+>
+>In August 1954 Seifert was examined by a public health officer, who was of the opinion that he was not in need of a regimen, but suggested that he could be sent to a sanatorium for observation. The doctor also noted in his report that Seifert was a mentally devious person with no will to recover. Seifert again contested the report and wrote a letter titled "Sozialpolitik - Sozialärzte — Sozialmord" (social politics — social doctors — social murder), whereupon he was examined by a medical specialist for neurology and psychiatry, who noted Seifert's quirky behaviour, his scattered train of thought, and his constant smile in inappropriate situations. He also recorded that Seifert harboured paranoid thoughts about his doctors and showed a peculiar fanatical beha
 
 =============================================================================================================================
 
-Toronto van attack
-https://en.wikipedia.org/wiki/Toronto_van_attack
-Toronto, Canada
-April 23, 2018
+[Toronto van attack](https://en.wikipedia.org/wiki/Toronto_van_attack)\
+Toronto, Canada\
+April 23, 2018\
 11 killed, 15 wounded
 
-Perpetrator(s):
-Alek Minassian, 25
+Perpetrator(s):\
+**Alek Minassian, 25**
 Canadian Armed Forces (CAF); Canadian Federal Government contractor father (Vahe Minassian - Rogers Communications); Canadian Department of National Defence (DND) contractor mother (Sona Minassian - Compugen)
 
 Source(s):
-1. Toronto van attack - Perpetrator
-https://en.wikipedia.org/wiki/Toronto_van_attack#Perpetrator
-	Police identified the suspect as Alek Minassian, who had no prior criminal history.[41][42] His father, Vahe, had moved from Armenia to Canada and worked as a software developer, and his mother, Sona, was from Iran and had a job at an IT company.[43] Minassian was also an aspiring software and mobile app developer.[44]
-[...]
-In late 2017, Minassian enrolled in the Canadian Armed Forces for two months, before requesting voluntary release after 16 days of recruit training.[47] A senior military official said that Minassian "wasn't adapting to military life, including in matters of dress, deportment and group interactions in a military setting" and "there were no red flags and nothing that would point to anything like this."[48]
-[...]
-In late 2017, Minassian enrolled in the Canadian Armed Forces for two months, before requesting voluntary release after 16 days of recruit training.[49] A senior military official said that Minassian "wasn't adapting to military life, including in matters of dress, deportment and group interactions in a military setting" and "there were no red flags and nothing that would point to anything like this."[50]
-
-Following the attack, a Facebook post made by Minassian was uncovered in which he identified himself as an incel ("involuntary celibate").[28][51] The state of involuntary celibacy refers to being unable to find sexual partners[52] and its subculture consists of primarily male online communities.[53][54] The post, dated shortly before the beginning of the attack on April 23, allegedly read:
-
-Private (Recruit) Minassian Infantry 00010, wishing to speak to Sgt 4chan please. C23249161. The Incel Rebellion has already begun! We will overthrow all the Chads and Stacys! All hail the Supreme Gentleman Elliot Rodger![10][55]
-[...]
-A source in the Department of National Defence told media that C23249161 was Minassian's military identification number during his army training.[63]
+1. [Toronto van attack - Perpetrator](https://en.wikipedia.org/wiki/Toronto_van_attack#Perpetrator)
+>Police identified the suspect as Alek Minassian, who had no prior criminal history.[41][42] His father, Vahe, had moved from Armenia to Canada and worked as a software developer, and his mother, Sona, was from Iran and had a job at an IT company.[43] Minassian was also an aspiring software and mobile app developer.[44]\
+>[...]\
+>In late 2017, Minassian enrolled in the Canadian Armed Forces for two months, before requesting voluntary release after 16 days of recruit training.[47] A senior military official said that Minassian "wasn't adapting to military life, including in matters of dress, deportment and group interactions in a military setting" and "there were no red flags and nothing that would point to anything like this."[48]\
+>[...]\
+>In late 2017, Minassian enrolled in the Canadian Armed Forces for two months, before requesting voluntary release after 16 days of recruit training.[49] A senior military official said that Minassian "wasn't adapting to military life, including in matters of dress, deportment and group interactions in a military setting" and "there were no red flags and nothing that would point to anything like this."[50]
+>
+>Following the attack, a Facebook post made by Minassian was uncovered in which he identified himself as an incel ("involuntary celibate").[28][51] The state of involuntary celibacy refers to being unable to find sexual partners[52] and its subculture consists of primarily male online communities.[53][54] The post, dated shortly before the beginning of the attack on April 23, allegedly read:
+>
+>>Private (Recruit) Minassian Infantry 00010, wishing to speak to Sgt 4chan please. C23249161. The Incel Rebellion has already begun! We will overthrow all the Chads and Stacys! All hail the Supreme Gentleman Elliot Rodger![10][55]\
+>[...]
+>A source in the Department of National Defence told media that C23249161 was Minassian's military identification number during his army training.[63]
 
 2. The Man Behind the Yonge Street Van Attack
 https://torontolife.com/city/man-behind-yonge-street-van-attack/
