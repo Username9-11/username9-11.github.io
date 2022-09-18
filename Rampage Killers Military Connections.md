@@ -4400,3 +4400,712 @@ Source(s):
 >"I don't understand why he would be angry at the Jewish people," said Terry Choate, a retired government contractor who said he knew Bowers since the suspect was a small child. "I can't believe he did that. I'd like to know what set him off."
 
 =============================================================================================================================
+
+[Geneva County shootings](https://en.wikipedia.org/wiki/Geneva_County_shootings)\
+Kinston / Geneva / Samson, Alabama\
+March 10, 2009\
+11 killed (including 1 perpetrator), 6 wounded
+
+Perpetrator(s):\
+**Michael Kenneth McLendon, 28**\
+United States Marine Corps (USMC) applicant; Samson Police Department (SPD)
+
+Source(s):
+1. [Geneva County shootings - Perpetrator](https://en.wikipedia.org/wiki/Geneva_County_shootings#Perpetrator)
+>He worked briefly with the police department in Samson, but failed to complete basic training at the state academy, washing out after a "week and a half." 
+
+2. [Geneva County shootings - Motive](https://en.wikipedia.org/wiki/Geneva_County_shootings#Motive)
+>Witnesses said that McLendon was disturbed by his parents' divorce years ago, and had been depressed about his failure to start a career and disappointed that he had failed to qualify for the U.S. Marines or law enforcement.\
+>[...]\
+>McLendon was described as very familiar with guns. The investigators "found dozens of ammunition boxes, military and survival gear and medical supplies at McLendon's Kinston home".[1]
+
+------------------------------------
+
+[Nebraska, Wyoming spree killings](https://en.wikipedia.org/wiki/Charles_Starkweather)\
+Lincoln / Bennet, Nebraska / Douglas, Wyoming\
+December 1, 1957 - January 29, 1958\
+11 killed
+
+Perpetrator(s):\
+**Charles Raymond Starkweather, 20 / Caril Ann Fugate, 14**\
+United States Navy (USN) brother (Leonard William Starkweather); United States Army (USA) paternal half-uncle (Richard James Starkweather); United States Army (USA) maternal uncle (Frank Cenneth Street); United States Armed Forces maternal uncle (Howard Joseph Street)
+
+Source(s):
+1. [Guy William Starkweather - Find a Grave](https://www.findagrave.com/memorial/74740081/guy-william-starkweather)
+>Helen's oldest son Leonard W. is shown only in the Lincoln, NE directories for 1953 and 1955. In 1955, he was employed by the U.S. Navy. At some point, Leonard (b. Dec.8,1935) moved to Auburn, WA. And at some point, his younger brother Rodney (b. Dec.27, 1936) moved to Pomeroy, WA. (Both are in King County, WA.) After his divorce from Barbara, date unnknown, Rodney was married to Dolores Gene Denend (sp?) on Nov.21, 1969 in King County, WA. She was age 27 at the time. He was later married to a "Loretta". On Feb.26, 1973, Leonard William Starkweather was married to Clesta Lou Peel in King County, WA. Her age was shown as 29 at the time - b. Apr.14.1943.
+
+2. [Richard James Starkweather - Find a Grave](https://www.findagrave.com/memorial/195231558/richard-james-starkweather)
+>Richard was born December 16, 1935 to William and Althea (Neal) Starkweather in Lincoln, NE. He passed away December 7, 2018. He served in the Army from 1954-1962.
+
+3. [Frank Cenneth Street - Find a Grave](https://www.findagrave.com/memorial/61494918/frank-cenneth-street)
+>Inscription\
+>NEBRASKA\
+>TEC5 US ARMY WORLD WAR II
+
+4. [Pvt Howard Joseph Street - Find a Grave](https://www.findagrave.com/memorial/74093541/howard-joseph-street)
+>Inscription\
+>NEBRASKA\
+>PVT CAS CO\
+>3557 SERVICE UNIT\
+>WORLD WAR II
+
+------------------------------------
+
+[Easter Sunday massacre](https://en.wikipedia.org/wiki/Easter_Sunday_Massacre)\
+Hamilton, Ohio\
+March 30, 1975\
+11 killed
+
+Perpetrator(s):\
+**James Urban Ruppert, 40**\
+United States Department of Defense (DOD) contractor brother (Leonard Ruppert Jr. - General Electric)
+
+Source(s):
+1. [James RUPPERT - Murderpedia](https://mail.murderpedia.org/male.R/r/ruppert-james.htm)
+>It didn't help that Ruppert's five-foot eleven-inch 36-year-old father died of complications from tuberculosis when James was only 12 years old, forcing him to assume adult responsibilities from an early age. Ruppert told psychiatrists that, after his father's death, his mother would beat and taunt him and would encourage his brother Leonard to do the same.
+>
+>From James's viewpoint, his mother had made very clear to him that his presence was a mistake; that she had wanted a girl, not another boy in the family. At the age of 16, things at home got so bad that Ruppert ran away and later attempted suicide by hanging himself with a sheet. Though he failed in this attempt, the thought of suicide was something that stayed with Ruppert for decades to come. 
+>
+>Ruppert's mother showered love on her older son, who became a constant reminder to James of his own inadequacies. Leonard was the male head of the household after their father's death, whereas James always felt like an outcast in his own family; Leonard played sports while James sat on the sidelines; James was very conscious of being five inches shorter than his brother; James's math and science teachers always compared him with his older brother whose grades in the same classes had been superior; Leonard graduated from night school with a degree in electrical engineering, whereas James flunked out of college after two years; Leonard became a successful engineer with General Electric, whereas brother James went from job to job; Leonard was happily married with eight children, whereas James never married, was jilted by his only fiancée, and continued to live with his mother. Moreover, James had dated the woman whom his brother would later marry and had even introduced them to one another. 
+>
+>By his own standards, James was as much a failure as his brother Leonard was a success. To make matters worse, Leonard was, at least in his younger brother's mind, a vicious sadist and torturer - in a word, he was the enemy. Going back to early childhood, James still remembered his brother locking him in closets, tying him with rope, beating him with a hose, and sitting on his head until he screamed out loud. The image only worsened over time; and, by James's 30th birthday, he was just beginning to see Leonard as the executioner - as a major figure in what he believed to be an emerging conspiracy against him. 
+>
+>The paranoia really escalated in 1965, when the Hamilton Police Department determined that James had made an obscene phone call to an employee of the local public library where James spent much free time. Although admitting making the call, James was convinced that his mother and brother were attempting to discredit him by informing everyone of his transgression and reporting to the FBI that he was a communist and homosexual.
+>
+>He also believed that the FBI was tapping his telephone not only at home, but also in the restaurants and bars he happened to visit. Over the years, he felt, the intrusion of the FBI into his personal life continued to grow. Other groups were also implicated by Ruppert in the plot to sabotage his career, his social contacts, and his car. By 1975, he told psychiatrists of being followed by the State Highway Patrol, the local Sheriff's Department, private detectives, and the Hamilton Police.
+
+2. [General Electric's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=General+Electric+Department+of+Defense)
+
+------------------------------------
+
+[Assassination of Anwar Sadat](https://en.wikipedia.org/wiki/Assassination_of_Anwar_Sadat)\
+Cairo, Egypt\
+October 6, 1981\
+11 killed
+
+Perpetrator(s):\
+**Aboud El Zomor / Khālid al-Islāmbūlī / Muhammad abd-al-Salam Faraj**\
+Egyptian Army
+
+Source(s):
+1. [Assassination of Anwar Sadat - Egyptian Islamic Jihad](https://en.wikipedia.org/wiki/Assassination_of_Anwar_Sadat#Egyptian_Islamic_Jihad)
+>According to interviews and information gathered by journalist Lawrence Wright, the group was recruiting military officers and accumulating weapons, waiting for the right moment to launch "a complete overthrow of the existing order" in Egypt. Chief strategist of El-Jihad was Abbud al-Zumar, a colonel in the military intelligence whose "plan was to kill the main leaders of the country, capture the headquarters of the army and State Security, the telephone exchange building, and of course the radio and television building, where news of the Islamic revolution would then be broadcast, unleashing—he expected—a popular uprising against secular authority all over the country."[9]
+
+2. [Aboud El Zomor - Early life / Officer](https://en.wikipedia.org/wiki/Aboud_El_Zomor#Early_life)
+>Born into one of the wealthiest and most prominent families in the Giza Governorate, he was founder and first emir of the Egyptian Islamic Jihad, succeeded by Ayman al-Zawahiri (released from prison in 1984), an organization which merged into al-Qaeda in 1998.[1][2] He entered the Egyptian Military Academy in 1966 and served as an auxiliary reserve officer in a Signals battalion during the Six Day War. 
+>
+>He was commissioned as an officer in the Mechanized Infantry forces of the Egyptian Army in 1969 and served with distinction, commanding a platoon of BMP-1 armoured vehicles and an Anti-Tank company in the Yom Kippur War. His Anti-Tank company achieved at least 24 Israeli tank kills during the war. He joined the Military Intelligence department in 1974. He was promoted to lieutenant colonel in 1979.
+
+3. [Muhammad abd-al-Salam Faraj - Life](https://en.wikipedia.org/wiki/Muhammad_abd-al-Salam_Faraj#Life)
+>In late September 1981 Faraj held a meeting with other al-Jihad leaders to discuss a plot to assassinate Anwar Sadat. The idea had been proposed to him by Khalid Islambouli, a lieutenant in the Egyptian Army whom Faraj had invited to join al-Jihad when he was posted to Cairo six months before. 
+
+4. [Khalid al-Islambouli - Early years and career](https://en.wikipedia.org/wiki/Khalid_al-Islambouli#Early_years_and_career)
+>After graduating from the Egyptian Military Academy, he was commissioned as an officer in the Artillery Forces of the Egyptian Army with the rank of second lieutenant. Sometime after this appointment, Islambouli joined the proscribed Egyptian Islamic Jihad movement. Between 1976 and 1980, he served mostly as a staff officer or as fire direction officer for various artillery batteries, battalions and regiments. In March 1980, he got his first field command, an artillery platoon gun line in the 116th Field Artillery Brigade based in Cairo. His command included three 'active' field howitzers, a reserve field gun, five to six transport trucks, seven jeeps, signaling equipment, light infantry weapons such as assault rifles, medium machine guns, anti-tank rockets, light mortars, and sniper rifles for organic defence, and around 45 soldiers/conscripts, with a second lieutenant and a sergeant acting as second-in-command and third-in-command respectively. His role was to take firing missions and orders from the Battery HQ.
+
+------------------------------------
+
+[Monte Tchota army barracks massacre](https://en.wikipedia.org/wiki/Monte_Tchota_massacre)\
+Monte Tchota, Cape Verde\
+April 25, 2016\
+11 killed
+
+Perpetrator(s):\
+**Manuel António Silva Ribeiro, 23**\
+Cape Verdean Armed Forces
+
+Source(s):
+1. [Monte Tchota massacre - Massacre](https://en.wikipedia.org/wiki/Monte_Tchota_massacre#Massacre)
+>Between the hours of 9:30 and 10:00 in the morning, a rogue FACV soldier identified as 23-year old Manuel Antonio Silva Ribeiro, opened fire at the Monte Tchota army barracks, 27 km (17 miles) north of Praia, the capital of Cape Verde.[4]
+
+------------------------------------
+
+[2016 Olympia shopping mall shooting](https://en.wikipedia.org/wiki/2016_Munich_shooting)\
+Munich, Germany\
+July 22, 2016\
+10 killed (including 1 perpetrator), 36 wounded
+
+Perpetrator(s):\
+**David Sonboly, 18**\
+German Government psychiatric associates (Klinik Harlaching)
+
+Source(s):\
+1. [2016 Munich shooting - Possible motives](https://en.wikipedia.org/wiki/2016_Munich_shooting#Possible_motives)
+>Sonboly had undergone psychiatric treatment[9] for depression,[18] anxiety and post-traumatic stress disorder.[74] In 2015, he had been treated for two months as an inpatient in a mental care facility.[45] He was largely isolated from his peers and suffered years of bullying by classmates, which included physical abuse.[9] A former classmate recalled, "We always "mobbed" [sic] him in school, and he always told us that he would kill us".[76] He developed a hatred for those of a similar age and background as those who bullied him,[9] mainly Turks and Albanians. He developed an "irrational worldview" in which he believed that the people he hated were infected with a virus and must be exterminated.[9] On the day of the shooting, Sonboly saved a document on his computer in which he wrote "The bullying will be paid back today".[74] During the shooting itself, he shouted that he had been bullied for seven years.[77]
+>
+>Sonboly had an obsession with mass shootings and rampage killers;[9] he compiled a scrapbook of news clippings on mass shootings and owned several books on the matter.[70][78] During his psychiatric treatment he repeatedly told fellow patients to refer to him as the 'Spree Killer'.[79] One incident that fascinated him was the Winnenden school shooting, and he visited Winnenden and took pictures there.[80] Sonboly was also fascinated by the 2011 Norway attacks perpetrated by Norwegian terrorist Anders Behring Breivik, and Sonboly's shooting was on its fifth anniversary.[74]
+
+2. [The thick psychological file of the Munich amok boy (Translated from the German)](https://www-blick-ch.translate.goog/ausland/soziale-phobie-und-depressionen-die-dicke-psycho-akte-des-muenchner-amok-bubis-id5402023.html?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>Ali David Sonboly said shortly after the crime: "I was in hospital." Now the German "Bild am Sonntag" reports what psychiatrists found out about him. 
+>
+>Papers from the Harlaching Clinic, which are available to the newspaper, show that the later amok runner suffered from a “moderate to severe depressive episode”, “social phobia” and “post-traumatic stress disorder”. He was also found to have a "PC addiction".
+
+3. [Munich Clinic Harlaching - Wikipedia (Translated from the German)](https://de-m-wikipedia-org.translate.goog/wiki/M%C3%BCnchen_Klinik_Harlaching?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+
+------------------------------------
+
+[2019 Ned Peppers Bar shooting](https://en.wikipedia.org/wiki/2019_Dayton_shooting)\
+Dayton, Ohio\
+August 4, 2019\
+10 killed (including 1 perpetrator), 27 wounded
+
+Perpetrator(s):\
+**Connor Stephen Betts, 24**\
+United States Junior Reserve Officers' Training Corps (JROTC); United States Department of Defense (DOD) father (Stephen Betts - Altamira Technologies Corporation / General Dynamics / Minethurn Technology / MacAulay-Brown)
+
+Source(s):
+1. [5 things to know about Dayton shooter Connor Betts](https://www.daytondailynews.com/news/local/things-about-dayton-shooter-connor-betts/8xF8axt7dwU0LfpFDZRwnK/)
+>One of the shooter’s classmates, Demoy Howell, said he and the killer participated in Bellbrook’s Junior ROTC military program. Another said the shooter was one of the leads in Bellbrook’s production of “A Midsummer Night’s Dream.”
+>
+>Howell never had a problem with the shooter, but remembers friends saying he made them feel threatened or uncomfortable. The rigor of the military program seemed to have a calming influence on the shooter, Howell said. After the lockdown, though “he kind of fell off the face of the earth.” The two later reunited while working at a fast food restaurant.
+>
+>“He was always a bit of an oddball,” said Howell. “He had a dark sense of humor — jokes about people dying. He would wear all black. I remember sensing a dark energy around him.”
+
+2. [Connor Betts’ Family: 5 Fast Facts You Need to Know](https://heavy.com/news/2019/08/connor-betts-family-parents-mother-father/)
+>On Facebook, Steve Betts, Connor Betts’ father, posted biographical information about himself. He wrote that he was “technical Lead at Altamira Technologies Corporation” and former Software Lackey at General Dynamics – Advanced Information Systems.” In addition, he said he was “Former Founder (company) at Minethurn Technology, Inc.” and had “Worked at MacAulay-Brown, Inc.” In 2014, he wrote, “Still looking for good software developers. Need senior to mid-level talent. Prefer Java and DoD experience. Must be capable of holding a clearance.”
+
+3. [2019 Dayton shooting - Perpetrator](https://en.wikipedia.org/wiki/2019_Dayton_shooting#Perpetrator)
+>Two former high school classmates said Betts was suspended from Bellbrook High School after he made lists of other students he wanted to kill and rape.[37] The "hit list" was discovered in 2010 and resulted in a police investigation.[37] He was previously bullied and had planned to shoot up the school, a classmate said.[29] His high school girlfriend said he complained of visual and auditory hallucinations and psychosis, and was afraid of developing schizophrenia.[38]
+
+------------------------------------
+
+[New Orleans Sniper](https://en.wikipedia.org/wiki/Mark_Essex#Sniper_attacks)\
+New Orleans, Louisana\
+December 31, 1972 - January 7, 1973\
+10 killed, 13 wounded
+
+Perpetrator(s):\
+**Mark James Robert Essex, 23**\
+United States Navy (USN); United States Armed Forces father; United States Navy (USN) associates (Robert Hatcher / Rodney Frank)
+
+Source(s):
+1. [Mark Essex - Adolescence](https://en.wikipedia.org/wiki/Mark_Essex#Adolescence)
+>Shortly after graduating from high school, Essex briefly enrolled at Emporia State University. He dropped out after just one semester, and briefly worked in the same meat-packing plant as his father as he considered his next career or educational move. Concluding his horizons were limited in Emporia, shortly after his 19th birthday, Essex decided to enlist in the United States Army. Upon the advice of his father, a World War II veteran, he instead opted to join the Navy and seek vocational training.[8]
+
+2. [Mark Essex - Navy](https://en.wikipedia.org/wiki/Mark_Essex#Navy)
+>Essex enlisted the Navy on January 13, 1969, committing himself to a four-year contract at advanced pay. Within three months, he was assigned to the Naval Air Station at Imperial Beach, California. His family would later reflect that, as Essex prepared to enlist, he was "happy go lucky".[9]
+>
+>Initially, Essex's experiences in the Navy were positive. He performed his compulsory training at the Naval Training Center with exemplary results. His superiors recommended he enroll in the Navy Dental Center. Essex accepted this advice and was apprenticed as a dental technician in April 1969, specializing in endodontics and periodontics.[10] He soon formed a close and ongoing friendship with his white supervisor, Lieutenant Robert Hatcher. However, Essex soon learned that bigotry from many of the white servicemen towards blacks (both overt and discreet) was a general everyday occurrence for blacks serving within the Navy. Shortly after his enlistment, Essex obtained a job as a bartender at an enlisted men's club named the Jolly Rotor, where he discovered that certain rooms were off-limits to blacks.[11] In one letter to his mother, Essex wrote his experiences of racial relations within the Navy were "not like [he] thought [they] would be. Not like Emporia. Blacks have trouble getting along here."[12]
+>
+>Throughout 1969, Essex suffered these indignities quietly—apparently believing what he had been told by other black recruits: that he would be treated better once he achieved a higher rank.[13] Within a year, he had risen to the rank of seaman, although the harassment continued, and he began taking sedatives. Shortly thereafter, Essex formed a close friendship with a black colleague named Rodney Frank; a self-described black militant who worked in the Aircraft Intermediate Maintenance Department. The two regularly socialized in their off-duty hours, and by the summer of 1970, Essex had become markedly radicalized. Frank also encouraged Essex to read literature about individuals such as Huey Newton and Bobby Seale, who together had founded the Black Panther Party.[14]
+>
+>Several months after Essex's acquaintance with Frank, in August 1970, he became involved in a physical altercation with a white NCO moments after hearing the individual state his belief "how beautiful" it must have been in decades past when "a nigger went to sea it was below decks, in the galley".[15] Although Essex and his adversary agreed to a compromise to avoid either being admonished for the altercation, the fact he had struck a white recruit of senior rank increased the level of harassment and intimidation he was subjected to from white personnel. Two months later, on the morning of October 19, Essex went absent without leave (AWOL) from the Navy. He phoned his mother from a bus station, informing her: "I'm coming home. I've just got to have some time to think."[16]
+
+3. [Mark Essex - AWOL](https://en.wikipedia.org/wiki/Mark_Essex#AWOL)
+>Essex returned via a Greyhound bus to Emporia, and remained AWOL until November 16, 1970. While AWOL, he repeatedly described to his family his experiences of overt discrimination at the hands of many of the white Navy recruits, his overt bitterness, and his resultant growing hatred towards the white race. Although his family attempted to reason with Essex against this viewpoint, Essex exclaimed: "What else is there? They take everything from you. Your dignity, your pride. What can you do but hate them?"[17]
+>
+>One month after his desertion from the Navy, Essex's family persuaded him to return to Imperial Beach. Prior to doing so, Essex ensured he spoke to Lieutenant Hatcher, to whom he explained his reasons for his desertion. Hatcher's official notes state Essex informed him: "I don't want to have anything more to do with the Navy. It wouldn't be fair, not to you or the (dental) patients. The bad atmosphere would affect my work. The work is the only thing on this base I like." He then agreed to plead guilty to the charge of desertion.[18]
+>
+>At the subsequent hearing, Hatcher provided a vigorous defense of his protégé; praising his work ethic and stating the decision for his desertion had been influenced solely by ongoing racial discrimination. The judge conceded these factors were the cause and sentenced Essex to a lenient punishment of thirty days' restriction to base and forfeiture of $90 of his pay for two months.[18]
+
+4. [Mark Essex - Black Panthers](https://en.wikipedia.org/wiki/Mark_Essex#Black_Panthers)
+>Essex was given a general discharge from the Navy for general unsuitability on February 11, 1971, at the age of 21. This experience embittered Essex as he felt he had been unfairly stigmatized by the Navy, who had known only too well the discrimination he had endured. He initially traveled to Upper Manhattan, where he joined the New York branch of the Black Panthers.[19] Via his association with the New York Black Panthers, Essex became increasingly radicalized, and familiarized himself with the tactics of guerilla warfare.[20] He soon began referring to himself as "Mata",[n 1] and embraced the extremist content of the 1968 book Black Rage.[2][21]
+
+------------------------------------
+
+[Santa Fe High School shooting](https://en.wikipedia.org/wiki/Santa_Fe_High_School_shooting)\
+Santa Fe, Texas\
+May 18, 2018\
+10 killed, 13 wounded
+
+Perpetrator(s):\
+**Dimitrios Pagourtzi, 17**\
+United States Marine Corps (USMC) aspirant; United States Department of Defense (DOD) / National Institutes of Health (NIH) contractor mother (Rose Marie Pagourtzis - University of Texas Medical Branch at Galveston)
+
+Source(s):
+1. [Dimitrios Pagourtzis identified as Santa Fe High shooter, sources say](http://stylemagazine.com/news/2018/may/18/dimitrios-pagourtzis-identified-santa-fe-high-shoo/)
+>In his Facebook bio he showed interest in joining the US Marine Corps claiming to be "starting in 2019." The military branch said it had no record of Pagourtzis filling out paperwork at a recruiting station.
+
+2. [Rose Marie Pagourtzis, Dimitrios Pagourtzis’ Mother: 5 Fast Facts](https://heavy.com/news/2018/05/rose-maria-pagourtzis-dimitrios-mother-kosmetatos/)
+>Rosemarie K Pagourtzis is listed in a Texas Tribune salaries database as “Administrative Associate in Pediatric Endocrinology, a department of The University of Texas Medical Branch at Galveston.” She makes $42,201, and her race was listed as Hispanic/Latina in that database, although she shared posts about Greek heritage on Facebook. She was hired in September 2013.
+
+3. [University of Texas Medical Branch at Galveston's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=University+of+Texas+Medical+Branch+at+Galveston+%22Department+of+Defense%22)
+
+4. [Welcome to the Galveston National Lab](https://www.utmb.edu/gnl/home)
+>The Galveston National Laboratory (GNL) is a sophisticated high containment research facility that serves as a critically important resource in the global fight against infectious diseases. The GNL is located on the campus of the University of Texas Medical Branch and operates under the umbrella of UTMB’s Institute for Human Infections and Immunity.
+>
+>The National Institute of Allergy and Infectious Diseases (NIAID) provides funding for the BSL4 laboratories and operations at the GNL, and the lab’s top priority is research to develop diagnostics, therapeutics and vaccines to combat emerging and re-emerging diseases that threaten public health, not only in our country, but around the world.
+>
+>Researchers at the GNL are internationally known for their expertise working with pathogens including Ebola and Marburg and emerging infectious diseases like COVID-19 and MERS.  Scientists not only research the pathogens (viruses) themselves, but they also study the vectors for disease threats: mosquitos, which carry and transmit West Nile, Zika, Malaria, Chikungunya and many other diseases, and ticks, which cause diseases that are of grave concern and top priority to the National Institutes of Health.  In addition to basic research that aides understanding about transmission and pathogenesis of emerging viruses, GNL scientists are developing medical countermeasures for disease threats, including dangerous pathogens called Select Agents, which are high priority for study because of their high mortality rates, limited treatments and potential to be used as weapons around the world.
+>
+>The Galveston National Laboratory is home to research that is funded by NIAID, the U.S. Department of Defense, the U.S. Centers for Disease Control & Prevention and other federal agencies, as well as academic partners, private foundations, and the Biopharmaceutical industry.
+
+------------------------------------
+
+[Umpqua Community College shooting](https://en.wikipedia.org/wiki/Umpqua_Community_College_shooting)\
+Roseburg, Oregon\
+October 1, 2015\
+10 killed (including 1 perpetrator), 8 wounded
+
+Perpetrator(s):\
+**Christopher Harper-Mercer, 26**\
+United States Army (USA)
+
+Source(s):
+1. [Umpqua Community College shooting - Perpetrator](https://en.wikipedia.org/wiki/Umpqua_Community_College_shooting#Perpetrator)
+>Harper-Mercer joined the U.S. Army in 2008, but was discharged after five weeks for his failure to meet the "minimum administrative standards" of basic training at Fort Jackson, South Carolina.[37][52] Officials linked to the investigation said that he was discharged as the result of a suicide attempt, but Army officials did not comment on this.[53] In 2009, he graduated from Switzer Learning Center, a school for teenagers with learning disabilities or emotional issues.[19][54] Laurel Harper was reportedly protective of him[55] and tried to shield him from various perceived annoyances, some of them minor, in their neighborhood in Torrance.[52]
+
+2. [Oregon Killer’s Mother Wrote of Troubled Son and Gun Rights](https://www.nytimes.com/2015/10/06/us/mother-of-oregon-gunman-wrote-of-keeping-firearms.html?_r=1)
+>Alexis Jefferson, who worked with Ms. Harper at a Southern California subacute care center around 2010, said the gunman’s mother sometimes confided the difficulties she had in raising her son, including that she had placed Mr. Harper-Mercer in a psychiatric hospital when he did not take his medication.
+>
+>“She said that ‘my son is a real big problem of mine,’ ” Ms. Jefferson said in a telephone interview. “She said: ‘He has some psychological problems. Sometimes he takes his medication, sometimes he doesn’t. And that’s where the big problem is, when he doesn’t take his medication.’ ”
+>
+>Ms. Jefferson said Ms. Harper had described bringing her son to the Del Amo Behavioral Health System in Torrance, Calif., near where they had lived before moving to Oregon.
+
+------------------------------------
+
+[Zrinski Topolovac shooting](https://en.wikipedia.org/wiki/Zrinski_Topolovac_shooting)\
+Zrinski Topolovac, Croatia\
+January 1, 1993\
+10 killed (including 1 perpetrator), 7 wounded
+
+Perpetrator(s):\
+**Vinko Palić, 28**\
+Croatian Army
+
+Source(s):
+1. [Zrinski Topolovac shooting - Perpetrator](https://en.wikipedia.org/wiki/Zrinski_Topolovac_shooting)
+>Vinko Palić (28) was a soldier of the 105th Brigade of the Croatian Army. He had returned from the Croatian War of Independence two weeks before the shooting. Another weapon was found in his house.
+
+------------------------------------
+
+[Red Lake Indian Reservation shootings](https://en.wikipedia.org/wiki/Red_Lake_shootings)\
+Red Lake, Minnesota\
+March 21, 2005\
+10 killed, 5 wounded
+
+Perpetrator(s):\
+**Jeffrey James Weise, 16**\
+United States Armed Forces aspirant; Red Lake Police Department paternal grandfather (Daryl Lussier, Sr.); United States Navy (USN) paternal great-uncle; United States Army (USA) paternal great-uncle
+
+Source(s):
+1. [Patterns Among School Shooters: Body-Related Issues and the Military - Secondary School Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Jeffrey Weise [-] Paternal grandfather: police officer [-] Grandfather’s brother: Navy [-] Grandfather’s brother: Army\
+>[...]\
+>Jeffrey Weise [-] Military aspirations, but committed attack before he was old enough to enlist
+
+2. [Red Lake shootings - Background](https://en.wikipedia.org/wiki/Red_Lake_shootings#Background)
+>At the time of the shooting, by some accounts, Jeff Weise was living with his paternal grandfather, Daryl Lussier, Sr., a sergeant with the Red Lake Police Department, run by the Ojibwe (aka Chippewa) tribal government at the Red Lake Indian Reservation.\
+>[...]\
+>The reservation of the Red Lake Band of Ojibwe is in northwest Minnesota and is one of two nationally that are "closed"; only Ojibwe tribal members may live there and own land. Its residents suffer high rates of unemployment, violence, and suicide. Housing is poor, and many students do not finish high school.[3] Work opportunities are limited on the reservation, which has a population of more than 5,000. A study in 2004 found that a high proportion of students in high school had thought of suicide.[4]
+
+------------------------------------
+
+[1974 Seoul shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Kimpo, South Korea\
+May 1, 1974\
+10 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**Kim Won-jo, 25**\
+South Korean Armed Forces
+
+Source(s):
+1. [Soldier in Seoul Kills Nine](https://www.nytimes.com/1974/05/02/archives/soldier-in-seoul-kills-nine.html)
+>An intoxicated paratrooper killed nine persons with a carbine here before killing himself early today. The soldier was reported to have been angered by a recall to barracks.
+
+------------------------------------
+
+[Covina massacre](https://en.wikipedia.org/wiki/Covina_massacre)\
+Covina, California\
+December 24, 2008\
+10 killed, 3 wounded
+
+Perpetrator(s):\
+**Bruce Jeffrey Pardo**\
+United States Department of Defense (DOD) contractor employer (ITT Radar Systems); United States National Aeronautics and Space Administration (NASA) employer (Jet Propulsion Laboratory)
+
+Source(s):
+1. [Covina massacre - Perpetrator](https://en.wikipedia.org/wiki/Covina_massacre#Perpetrator)
+>Pardo lived in the San Fernando Valley and was a graduate of John H. Francis Polytechnic High School in Sun Valley, Los Angeles, and California State University, Northridge. He worked at the Jet Propulsion Laboratory in La Cañada Flintridge. He met Sylvia Pardo, previously Sylvia Ortega, in 2004.[11]
+>
+>Police speculate that the motive of the attack was related to marital problems. Pardo's wife of one year had finalized their divorce the week prior to the attack.[8] However, Pardo held no criminal record and had no history of violence. He had been fired from his job as an electrical engineer at ITT Electronic Systems, Radar Systems in July.[3] There is some speculation that the divorce may have been caused by Pardo concealing a child from a previous relationship. This child was severely injured in a swimming pool accident several years prior. He did not support his child, nor did he pay any support to his ex-wife and her children.
+>
+>The couple wed in January 2006, but soon grew apart after their marriage, when Pardo refused to open a joint account with Sylvia; he also expected his wife to take care of her own three children with her own finances.
+>
+>In June 2008, divorce court had ordered Pardo to pay $1,785 a month in spousal support. During the divorce proceeding, Pardo had confided to a friend his wife was "taking him to the cleaners." In July, Pardo was fired for billing false hours and the court suspended the support payments due to job hardship.[16]
+>
+>Pardo was required to pay Sylvia $10,000 as part of the divorce settlement, according to court documents. Sylvia kept the wedding ring and the family dog. In a court declaration, Pardo complained that Sylvia was living with her parents, not paying rent, and had spent lavishly on a luxury car, gambling trips to Las Vegas, meals at fine restaurants, massages, and golf lessons.[17]
+
+2. [A solitary man with murder in his heart](https://www.latimes.com/archives/la-xpm-2009-jul-11-me-santa11-story.html)
+>Friends and co-workers recalled him as exceptionally bright, and he landed a job as a software engineer at the Jet Propulsion Laboratory in La Canada Flintridge.\
+>[...]\
+>Pardo had left JPL and was working as an engineer for ITT Radar Systems, a Van Nuys defense contractor, earning $122,000 a year.
+
+3. [Jet Propulsion Laboratory - Wikipedia](https://en.wikipedia.org/wiki/Jet_Propulsion_Laboratory)
+>The Jet Propulsion Laboratory (JPL) is a federally funded research and development center and NASA field center in the City of Pasadena, California, United States.[1]
+>
+>Founded in the 1930s by Caltech researchers, JPL is owned by NASA and managed by the nearby California Institute of Technology (Caltech).[2] The laboratory's primary function is the construction and operation of planetary robotic spacecraft, though it also conducts Earth-orbit and astronomy missions. It is also responsible for operating the NASA Deep Space Network.
+>
+>Among the laboratory's major active projects are the Mars 2020 mission, which includes the Perseverance rover and the Ingenuity Mars helicopter; the Mars Science Laboratory mission, including the Curiosity rover; the InSight lander (Interior Exploration using Seismic Investigations, Geodesy and Heat Transport); the Mars Reconnaissance Orbiter; the Juno spacecraft orbiting Jupiter; the SMAP satellite for earth surface soil moisture monitoring; the NuSTAR X-ray telescope; and the forthcoming Psyche asteroid orbiter. It is also responsible for managing the JPL Small-Body Database, and provides physical data and lists of publications for all known small Solar System bodies.
+>
+>JPL's Space Flight Operations Facility and Twenty-Five-Foot Space Simulator are designated National Historic Landmarks.
+
+------------------------------------
+
+[Bombo bar shooting](https://en.wikipedia.org/wiki/Bombo_shooting)\
+Bombo, Uganda\
+March 9, 2013\
+10 killed, 3 wounded
+
+Perpetrator(s):\
+**Patrick Okot Odoch**\
+Uganda People's Defence Force (UPDF)
+
+Source(s):
+1. [Bombo shooting - Background](https://en.wikipedia.org/wiki/Bombo_shooting#Background)
+>Patrick Okot Odoch, a private in the UPDF who had a history of poor behavior and previously had been arrested for consuming bhang, was attached to the nearby Bombo barracks.[3] Inspired by the chaos at the Mbuya barracks, on the following night of March 6, Odoch had wanted to rape Grace Chandiru, the 14-year-old daughter of his commander, Sergeant Onesmus Odule. Odoch saw Grace at the Yumbe Boys' Bar in Pakele, a bar frequented by local military personnel and their families, and attempted to rape her.[4] Odoch fled when Grace raised alarm, prompting her father Sergeant Odule to report the incident to police on the next day, March 7, for which Odoch promised revenge.
+
+------------------------------------
+
+[2022 Tops Friendly Markets shooting](https://en.wikipedia.org/wiki/2022_Buffalo_shooting)\
+Buffalo, New York\
+May 14, 2022\
+10 killed, 3 wounded
+
+Perpetrator(s):\
+**Payton S. Gendron, 18**\
+New York State Department of Transportation (DOT) parents (Paul Gendron / Pamela Gendron); United States Federal Agent associate
+
+Source(s):
+1. [Who are Payton Gendron's parents? Neighbor says civil engineers Paul and Pamela 'have a nice family'](https://meaww.com/who-are-payton-gendron-parents-paul-and-pamela-have-a-really-nice-family)
+>Gendron is the oldest of four children of Paul and Pamela Gendron, both of who are civil engineers working for the New York State Department of Transportation.
+
+2. [Authorities investigating if retired federal agent knew of Buffalo mass shooting plans in advance](https://buffalonews.com/news/local/authorities-investigating-if-retired-federal-agent-knew-of-buffalo-mass-shooting-plans-in-advance/article_bd408f18-dd39-11ec-be53-df8fdd095d6f.html?utm_campaign=snd-autopilot&utm_medium=social&utm_source=twitter_TheBuffaloNews)
+>Law enforcement officers are investigating whether a retired federal agent had about 30 minutes advance notice of a white supremacist's plans to murder Black people at a Buffalo supermarket, two law enforcement officials told The Buffalo News. 
+>
+>Authorities believe the former agent – believed to be from Texas – was one of at least six individuals who regularly communicated with accused gunman Payton Gendron in an online chat room where racist hatred was discussed, the two officials said.
+>
+>The two law enforcement sources with direct knowledge of the investigation stated these individuals were invited by Gendron to read about his mass shooting plans and the target location about 30 minutes before Gendron killed 10 people at Tops Markets on Jefferson Avenue on May 14. 
+
+3. [Source: Retired federal agent may have had prior knowledge of Tops shooting](https://www.wivb.com/news/buffalo-supermarket-mass-shooting-tops/source-retired-federal-agent-may-have-had-prior-knowledge-of-tops-shooting/)
+>Law enforcement agencies in Buffalo are investigating whether a former federal agent knew in advance an 18-year-old white supremacist was going to attack the Tops on Jefferson Avenue, multiple sources told News 4.
+>
+>This story was first reported by The Buffalo News. Law enforcement sources with direct knowledge of the investigation told News 4 the former federal agent was among a small group of people to have regular interactions online with the gunman.
+>
+>About 30 minutes before he opened fire in the Tops parking lot, the shooter posted a racist diatribe and invitations to watch the massacre live on the social media site, discord.
+>
+>Sources tell News 4 that the former federal agent’s relationship with the gunman is part of the ongoing investigation.
+
+3. [2022 Buffalo shooting - Investigation of previous threat](https://en.wikipedia.org/wiki/2022_Buffalo_shooting#Investigation_of_previous_threat)
+>In June 2021, Gendron had been investigated by the police in Broome County for threatening other students at his high school.[13][45][51] A teacher had asked him about his plans after the school year, and he responded, "I want to murder and commit suicide."[52] He was referred to a hospital for mental health evaluation and counseling but was released after being held for a day and a half.[13][51][53]
+>
+>Gendron told the police that he was joking; he would later write online about how it was a well-executed bluff.[50][54] He was not charged in connection with the incident; investigators said that he had not made a specific enough threat to warrant further action.[51][54] The New York State Police did not seek an order from a state court to remove guns from Gendron's possession.[54][55] The mental health evaluation was not an involuntary commitment, which would have prohibited him from buying guns under federal law.[54]
+
+------------------------------------
+
+[Fairbanks and Manley Hot Springs shootings](https://en.wikipedia.org/wiki/Michael_Silka#Manley_Hot_Springs)\
+Fairbanks / Manley Hot Springs, Alaska\
+April 28 - May 19, 1984\
+10 killed, 1 wounded
+
+Perpetrator(s):\
+**Michael Alan Silka, 25**\
+United States Army (USA)
+
+Source(s):
+1. [Michael_Silka - Early life](https://en.wikipedia.org/wiki/Michael_Silka#Early_life)
+>Silka enlisted in the United States Army, at least partly on the advice of a longtime neighbor, Forman Hurst, who later recalled him as "a good kid, a typical teenager. He loved the outdoors. That was his No. 1 ambition, to be outside exploring nature."[3] In 1981, he was stationed at Fort Wainwright, located on the East side of Fairbanks, Alaska, until his discharge the same year.[4] Army records show that Silka was rated an expert marksman with the M16 rifle and grenade launcher while in basic training.[1] However, his stay at Fort Wainwright was marked by several run-ins with military police, including an assault charge and an arrest for discharging a firearm in a barracks.[3]
+
+------------------------------------
+
+[Draučiai shooting](https://en.wikipedia.org/wiki/Drau%C4%8Diai_shooting)\
+Draučiai, Lithuania\
+February 15, 1998\
+10 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Leonardas Zavistonovičius, 58**\
+Lithuanian Ministry of National Defence associates (Vanda Raudeliūnienė / Dalia Kalibatienė)
+
+Source(s):
+1. [Draučiai shooting - Shooting](https://en.wikipedia.org/wiki/Drau%C4%8Diai_shooting#Shooting)
+>The perpetrator then moved to Raudeliūnas' home, which was closest to his own house. The next victims were Vanda Raudeliūnienė and her visiting daughter Dalia Kalibatienė, who was a senior lieutenant with the Ministry of National Defence.
+
+------------------------------------
+
+[Taoyuan City barracks shooting](https://amok.fandom.com/wiki/Lee_Wei)\
+Patch, Taiwan\
+April 5, 1962\
+10 killed, 0 - 5 wounded
+
+Perpetrator(s):\
+**Lee Wei**\
+Taiwanese Armed Forces
+
+Sources:
+1. [Lee Wei - Amok Wiki](https://amok.fandom.com/wiki/Lee_Wei)
+>Lee Wei (Chinese: 李威) was a Taiwanese soldier who killed ten people and wounded up to five others, several of them seriously, at a military camp near Patch, a village near Taoyuan City, Taiwan on April 5, 1962.
+
+------------------------------------
+
+[Willunga murders](https://amok.fandom.com/wiki/Clifford_Bartholomew)\
+Willunga, Australia\
+September 6, 1971\
+10 killed
+
+Perpetrator(s):\
+**Clifford Cecil Bartholomew**\
+Australian Armed Forces associate
+
+Source(s):
+1. [Clifford Bartholomew - Life](https://amok.fandom.com/wiki/Clifford_Bartholomew#Life)
+>Clifford Cecil Bartholomew was married to Heather Alice Bartholomew, who already had a child from previous marriage, they had seven children together. One died as an infant. The couple occupied a cottage on his employer's property, for whom he had worked for nearly 11 years. He endured continuous financial difficulties but the marriage was happy until a few months prior to murders. The relationship deteriorated due to a young man coming to live at their house, an ex-serviceman who was recovering from wounds. When he talked to his wife about the matter, she told him that he was imagining things. His wife rejected him as husband and father. She would wash clothes of the family, including the young man‘s but left B.'s clothes for him to take care of, inciting jealousy. Sensing an increasing alienation of his children, he left the family home and moved to a house of his mother’s in The Meadows. He had arranged to visit the family on Father's Day, but his wife changed arrangements two days prior. On Sep. 5., B. bought drinks for his wife and sweets for children. When his wife eventually arrived she was was cold towards him and children unenthusiastic. She rejected his pleas for reconciliation, so he left the farm feeling blank. that night after hours of lying awake he hatched a plan to kill his wife, believing his wife was taking the family away from him. In his opinion she was unable care for them and the only way he could protect his children was by killing his wife. He intended to knock her unconscious then carry her outside and shoot her. [4][5][6]
+
+------------------------------------
+
+[Valley Transportation Authority rail yard shooting](https://en.wikipedia.org/wiki/2021_San_Jose_shooting)\
+San Jose, California\
+May 26, 2021\
+10 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**Samuel James Cassidy, 57**\
+United States Department of Energy (DOE) / Department of Transportation contractor (DOT) employer (Santa Clara Valley Transportation Authority)
+
+Source(s):
+1. [2021 San Jose shooting - Perpetrator](https://en.wikipedia.org/wiki/2021_San_Jose_shooting#Perpetrator)
+>Police identified the gunman as 57-year-old VTA employee Samuel James Cassidy.[36][37] He had been employed at the VTA since 2001; for his first two years, he was an electro-mechanic, and he was eventually promoted to a substation maintainer position in 2014.[38][39]
+
+2. [Santa Clara Valley Transportation Authority's Connections to the United States Department of Energy - Google](https://www.google.com/search?q=Santa+Clara+Valley+Transportation+Authority+Department+of+Energy)
+
+3. [2021 San Jose shooting - 2016 detainment](https://en.wikipedia.org/wiki/2021_San_Jose_shooting#2016_detainment)
+>An August 2016 memo by the United States Department of Homeland Security (DHS) described how, after taking a trip to the Philippines, Cassidy was detained by officers with U.S. Customs and Border Protection (CBP) for a secondary inspection. They subsequently found books about terrorism in his possession, along with a memo book filled with notes about his hatred of the VTA. He was asked whether he had problems with anyone at his workplace, and he said he did not. According to a DHS official, Cassidy was detained by the officers partly because of red flags regarding sex tourism, but nothing relating to sex tourism was found, and the detention did not result in an arrest or apparently any follow-up action.[3][17][19]
+>
+>A CBP report on the encounter, released in July 2021, revealed Cassidy had harbored "dark thoughts about harming" two specific people, whose names were redacted from the report; it is unclear if they were connected to VTA or among the shooting victims. However, the CBP agents apparently prioritized sex tourism in their questioning of Cassidy, noting "sex friendly" hotels that were mentioned in his writings and his text messages with women in the Philippines.[43]
+>
+>San Jose officials later said the authorities were not informed of the detainment by federal officials.[19][44] John Sandweg, the former acting director of U.S. Immigration and Customs Enforcement, said that there is no procedure for customs officials to alert local law enforcement agencies about a U.S. citizen detained as a safety threat. Santa Clara County district attorney Jeffrey F. Rosen said that, had his office been alerted about Cassidy's detainment, they would have had enough evidence to obtain a gun violence restraining order and seize his weapons.[15]
+
+------------------------------------
+
+[Winfield Military Band shooting](http://www.historyisnowmagazine.com/blog/2018/9/17/the-sad-story-of-americas-first-indiscriminate-mass-shooting)\
+Winfield, Kansas\
+August 13, 1903\
+9 killed, 26 wounded
+
+Perpetrator(s):\
+**Gilbert Twigg, 36**\
+United States Army (USA)
+
+Source(s):
+1. [The Sad Story of America’s First Indiscriminate Mass Shooting](http://www.historyisnowmagazine.com/blog/2018/9/17/the-sad-story-of-americas-first-indiscriminate-mass-shooting)
+>Early in the evening of August 13, 1903, thirty-six-year-old Gilbert Twigg parked his wagon in an alley near the corner of Main Street and Ninth Avenue in Winfield, Kansas. A large crowd had gathered there for an outdoor music concert. Wearing a buckskin hunting jacket, he walked to Ninth and Main. The band was taking a break and the crowd milled around talking. About a block from the bandstand, Twinge dropped to one knee, shouted “I’m going to shoot you all,” and opened fire with a shotgun. 
+>
+>When he was done, nine people including Twigg himself, were dead. 
+>
+>Gilbert Twigg had become the first indiscriminate mass killer in US history. He had acted without apparent motive and had killed whomever was handy. It was something the country had never seen before and would not see again for almost fifty years. Like many of today’s serial shooters he had served in the Armed Forces and had bought his guns legally. He also left a manifesto of 650 words of rationalization that explained little. 
+>
+>“You should let this be a lesson to you in the future,” he wrote near its end.
+>
+>Army veteran
+>
+>Twigg had been born in Flintstone, Maryland in 1867 or 1868 and around 1888 had followed his uncle Argel to Kansas. There Twigg got a job as a miller and was said by people who knew him to be ambitious, intelligent, agreeable, and passably handsome, with “searing ice-blue eyes.” In those early days in Winfield, he worked, ran with a crowd of other young people, and courted a local woman, Jessie Hamilton, eventually proposing marriage and being accepted. But a short while after she accepted his proposal, for reasons that have never been clear, Hamilton changed her mind and broke off the engagement.
+>
+>Her decision twisted something inside Twigg. 
+>
+>“Those were the happiest days in my life,” he would write to a friend, Chance Wells, in 1902, “and it would have been much better for me if I had gotten married and settled down as you have done. I have no doubt but that you are very happy, while I am not.”
+>
+>In 1896, two years after the thwarted love affair, Twigg enlisted in the army. He served two hitches and at one point was promoted because of his marksmanship. He saw action fighting in the Philippines where he also became involved in some sort of dispute with an officer and a doctor, Lt. Myron C. Bowdish and Contract Surgeon O. W. Woods, the details of which were never made public. But whatever had happened continued to haunt Twigg. He was mustered out of the army in California as a sergeant with an “excellent” service record and lived briefly in Montana working as a miller before returning to Winfield in 1903.
+>
+>But things had changed, and Twigg was winding tighter.
+>
+>In Winfield, he was unable to get his old job back or find any other employment probably because of his deteriorating mental condition. He was also reported to have lost his job in Montana “under murky circumstances.” He spent his days lolling around Winfield parks or sequestered in his boardinghouse room muttering about the people in Montana and Kansas who he thought had mistreated him and were plotting against him. 
+>
+>Crazy Twigg
+>
+>Local boys began calling him “Crazy Twigg.” 
+>
+>Finally, on August 1, 1903, the twisting spring broke, and Twigg walked into the Winfield & Miller hardware store and bought a shotgun, an inexpensive .32 pistol, and more than 100 rounds of ammunition. He spent the next several days brushing up on the marksmanship he had learned in the Army. By August 13, he was ready. He piled his guns and ammunition into a tin express wagon and pulled it into the alley behind Ninth Avenue. Taking his shotgun, he began to walk to the Ninth and Main.
+>
+>Along the way, The Winfield Chroniclelater reported, he ran into a group of local boys and allegedly told them he had some “tall shooting to do” and told them to get out of the area.
+>
+>“I have no desire to hurt you,” the paper quoted him as saying.
+>
+>At Ninth Avenue, he stopped in front of the Milligan Shoe Store, in sight of the bandstand and about a block away from it, and began firing. The band, Canton’s Dozen, a military band, was resting on the stage looking over sheet music. Twigg’s first shot grazed a horse that bolted and his second passed through the shoulder of the band’s drummer, Re Oliver, and shattered Clyde Wagoner's horn. Havoc erupted as Twigg kept firing into the crowd. Three men were hit as they exited onto the street from the stairway leading to the Odd Fellows Hall next door to Milligan’s. A group of three women were hit, and a 15-year-old boy. Bodies littered the street in growing pools of blood as Twigg continued firing on the scattering crowd. Some were running holding wounded arms or limping on shattered legs. Others were down in the street and moaning alongside the buildings.
+>
+>Twigg had chosen the one evening of the week when the most people congregated, and “he chose the spot from which to fire with the skill of a general,” The Chroniclewrote. “He dropped on one knee at each fire, then retreated backward, while reloading, then dropped on his knee again and fired. These are the skirmish line tactics of the army and give a level `body line' to the volley. The employment of the tactics is due the terrible execution of his volleys. He remembered his training and `shot low.'”
+>
+>Twigg worked his way back to the alley and his wagon. His last two shots were fired as he leaned around the corner. He then grabbed his .32 pistol from the wagon and turned it on himself. The whole incident had lasted less than ten minutes. Eight people, plus Twigg, died either immediately or shortly after the attack. More than two-dozen others had been wounded.
+>
+>A rumor has persisted in Winfield for decades that Twigg did not shoot himself but was in fact killed by Winfield policeman George Nicholas, Winfield’s first and at that time only black policeman. “That rumor cast Nichols as a ready-made hero who ended the town’s most incomprehensible nightmare,” one historian wrote, “but [the town] was forced to deny his role because it was considered too dangerous for a black man to kill a white man, even justifiably.” 
+>
+>For the rest of his life, Nicholas continued to deny he had shot Twigg.
+>
+>The manifesto
+>
+>The morning after the shooting, local police searched Twigg’s room and found a letter blaming unspecified individuals and the world at large for his troubles. 
+>
+>"I would like to say to those who have interested themselves so much in my welfare (that seems to be the public in general),” he had written, “that I do not and most likely never will know the real cause of being treated in the manner in which I have been treated…You know you have `doped' me until I was forced to give up about a $100 a month position. You know that youdrove me from place to place and forced me to give up a neat little sum of my hard earned money to railroad companies, money that I went through the danger of war and diseases… You also know that you watched my mail and after finding out my friends and correspondents, you told them some kind of a story about me that caused everyone of them to drop me and turn me down cold.”
+>
+>Was the cause of this persecution, he wondered, “my girl affaire here some eight or nine years ago? “ 
+>
+>He also wrote that he regretted that “I did not settle this thing with Lieutenant Myron C. Bowdish and Contract surgeon O. W. Woods while I was a patient…in The Philippines. Then I could have gotten what was due me, and this thing would have been over long ago.”
+>
+>The Winfield Chroniclewas surprisingly sympathetic to the man who had shot up its town and killed eight of its residents.
+>
+>“Poor Twigg was not responsible for his insane acts. His disordered mind led him to the conclusion that the whole world was against him and he came back to the home of his boyhood to wreak vengeance and end it all,” it wrote on August 14, 1903.
+>
+>There would not be another such attack in the United States until 1949, forty-six years later, when Howard Unruh wandered through his Camden, N.J., neighborhood killing twelve people. But by 2017, attacks such as Twigg’s were occurring with frightening regularly—and killing far more than the eight people Twigg had killed. 
+>
+>“You should let this be a lesson to you in the future,” Twigg wrote in his manifesto, and he had indeed left a lesson for future generations.
+>
+>But it was one we would be better off without.
+
+------------------------------------
+
+[Uganda bar shooting](https://amok.fandom.com/wiki/Chris_Amanyire)\
+Karugutu, Uganda\
+April 11, 2014\
+9 killed (including 1 perpetrator), 25 wounded
+
+Perpetrator(s):\
+**Chris Amanyire**\
+Uganda People's Defence Force
+
+Source(s):
+1. [Chris Amanyire - Amok Wiki](https://amok.fandom.com/wiki/Chris_Amanyire)
+>Chris Amanyire was a Ugandan soldier who killed at least eight people and wounded 25 others at a bar in Karugutu, Ntoroko District, Uganda on April 11, 2014, before committing suicide.
+
+------------------------------------
+
+[Kazan school shooting](https://en.wikipedia.org/wiki/Kazan_school_shooting)\
+Kazan, Russia\
+May 11, 2021\
+9 killed, 23 wounded
+
+Perpetrator(s):\
+**Ilnaz Galyaviev, 19**\
+Russian Armed Forces
+
+Source(s):
+1. [The military registration and enlistment office recognized the sick Kazan shooter fit for service (Translated from the Russian)](https://dailystorm-ru.translate.goog/news/voenkomat-priznal-godnym-k-sluzhbe-bolnogo-kazanskogo-strelka?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>The military registration and enlistment office recognized Ilnaz Galyaviev, who fired at a gymnasium in Kazan, fit for military service, despite brain damage.\
+>[...]\
+>The military commissariat of the Republic of Tatarstan later told the Daily Storm that Ilnaz Galyaviyev was declared fit for military service with category “A” in 2018. Then he did not complain to specialist doctors, including a neurologist and a psychiatrist, so the doctors had no reason to send Galyaviev for additional examinations. In 2021, he ignored a call to the draft board.
+
+------------------------------------
+
+[Utah prisoner of war massacre](https://en.wikipedia.org/wiki/Utah_prisoner_of_war_massacre)\
+Salina, Utah\
+July 8, 1945\
+9 killed, 19 wounded
+
+Perpetrator(s):\
+**Clarence V. Bertucci, 23**\
+United States Army (USA)
+
+Source(s):
+1. [Utah prisoner of war massacre - Background](https://en.wikipedia.org/wiki/Utah_prisoner_of_war_massacre#Background)
+>Private Clarence V. Bertucci was born in New Orleans on September 14, 1921.[6] He dropped out of school in the sixth grade, and then joined the United States Army in 1940. After five years of service, including one tour to England with an artillery unit, Bertucci seemed to be incapable of being promoted and also had a "discipline problem".
+
+------------------------------------
+
+[Ladysmith shooting](https://en.wikipedia.org/wiki/Carel_Johannes_Delport)\
+Ladysmith, South Africa\
+January 20, 1992\
+9 killed, 19 wounded
+
+Perpetrator(s):\
+**Carel Johannes Delport**\
+South African Armed Forces
+
+Source(s):
+1. [Carel Johannes Delport - Life](https://en.wikipedia.org/wiki/Carel_Johannes_Delport#Life)
+>Carel Johannes Delport was born in 1956 and known by his nickname, "Kallie", and as a child suffered from meningitis.[7] Delport was declared unfit for military service for unknown reasons, and instead worked on the farm of his father, Marthiens Delport, earning 300 South African Rand a month. The farm was located in Allerkraal, a place outside of the city of Ladysmith. Delport reportedly had a history of mental illness and was twice charged with and acquitted of manslaughter after shooting two cattle thieves. His family had repeatedly asked his father to not allow him to own any firearms, but he declined their requests. Delport had 13 licensed firearms at the time of the shooting and was frequently asked by locals to participate in wildlife culling, because he was considered one of the best marksmen in the area.[8][9]
+
+>According to an examination conducted after the shooting, Delport had an IQ of 78 and was suffering from borderline personality disorder.[10]
+
+------------------------------------
+
+[Nanterre massacre](https://en.wikipedia.org/wiki/Nanterre_massacre)\
+Nanterre, France\
+March 27, 2002\
+9 killed (including 1 perpetrator), 19 wounded
+
+Perpetrator(s):\
+**Richard Durn, 33**\
+French Socialist Party; French Greens Party
+
+Source(s):
+1. [Nanterre massacre - Perpetrator](https://en.wikipedia.org/wiki/Nanterre_massacre#Perpetrator)
+>The perpetrator in the shootings was Richard Durn, 33, who was originally from Slovenia. He held a master's degree in political science and a degree in history and participated in humanitarian actions in Yugoslavia, as well as various anti-globalization events.[2] According to the police, Durn was an environmental activist, and a former member of the Socialist Party before joining the Greens. He was also a member of the Ligue des droits de l'homme.
+
+------------------------------------
+
+[Jokela school shooting](https://en.wikipedia.org/wiki/Jokela_school_shooting)\
+Tuusula, Finland\
+November 7, 2007\
+9 killed (including 1 perpetrator), 13 wounded
+
+Perpetrator(s):\
+**Pekka-Eric Auvinen, 18**\
+Finnish Armed Forces; Tuusula Municipal Government mother (Mikaela Vuorio)
+
+Source(s):
+1. [Patterns Among School Shooters: Body-Related Issues and the Military - Secondary School Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Pekka-Eric Auvinen [-] Military service was deferred due to mental health reasons; not clear if he had aspirations or was simply called to serve
+
+2. [Mikaela Vuorio - INFORMATION](https://www-mikaelavuorio-fi.translate.goog/Unelmia_paremmasta_maailmasta.html?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp&_x_tr_sch=http)
+>Contological actions: Deputy Commissioner of Tuusula Municipal Council (Green) 2005 - 2008, Deputy Member of the Construction and Environment Committee 2005 - 2008, Deputy Chairman of the Board of Elonkehä ry 2006 - 2007, Deputy Chairman of the Board of Ekovihreät ry 2006 - 2007.
+
+3. [Jokela school shooting - Mental health](https://en.wikipedia.org/wiki/Jokela_school_shooting#Mental_health)
+>Between December 2006 and January 2007, Auvinen's parents tried to get him referred to a psychiatric outpatient clinic for his depression and anxiety, but the offer was refused due to his perceived mild symptoms. Instead, treatment using antidepressants was recommended to Auvinen's parents before any attempts to hospitalize him. Auvinen would go on to tell his online acquaintance, Vaula Kuuluvainen, that he would not be making it to military service the following months, leaving several other cryptic and homicidal messages with her the day before his attack.[4] Auvinen had irregularly taken SSRIs one year prior to his death.[16] Auvinen was frequently bullied at school[17] and school students reported changes in his behavior to a youth worker, saying he acted threateningly and remarked that they would die in "a white revolution".[4] One of his teachers described him as a militant radical who was interested in both far-right and far-left movements.[4][18] Auvinen had apparently been planning the shooting since at least early March 2006 before he met any of the YouTubers or online gamers who had later been blamed for the massacre.[4]
+
+------------------------------------
+
+[Standard Gravure shooting](https://en.wikipedia.org/wiki/Standard_Gravure_shooting)\
+Louisville, Kentucky\
+September 14, 1989\
+9 killed (including 1 perpetrator), 12 wounded
+
+Perpetrator(s):\
+**Joseph Thomas Wesbecker, 47**\
+United States Department of State (DOS) founded employer (Robert Bingham – Standard Gravure); United States Marine Corps (USMC) employer (Barry Bingham, Jr. – Standard Gravure); United States Navy (USN) employer (Barry Bingham, Sr. – Standard Gravure)
+
+Source(s):
+1. [Robert Worth Bingham - Later career](https://en.wikipedia.org/wiki/Robert_Worth_Bingham#Later_career)
+>Using the bequest from Flagler, Bingham purchased the Courier-Journal and Times in 1918.[18] He immediately clashed with long-time editor Henry Watterson, who soon retired. In the 1920s Bingham used the paper to push for farm cooperatives, improve education and support of the rural poor, and to challenge the state's Democratic Party bosses. In the latter endeavor he became an ally of U.S. Sen. J. C. W. Beckham, who had been governor in 1900-07. Bingham himself was, earlier in his career, discouraged from running for mayor due to the likelihood of heavy opposition from the likes of Democratic party boss John Whallen, and had bitterly described the unfairness of machine tactics he witnessed used against other candidates.[citation needed] He was among reform-minded Democrats who successfully backed Republican Augustus E. Willson of Louisville for governor in 1907.[citation needed]
+>
+>Bingham married his third wife, Aleen Lithgow Hilliard, in 1924. A strong financial backer of Franklin D. Roosevelt, Bingham was awarded with ambassadorship to Great Britain in 1933, and took up his post in May.[19] As ambassador, Bingham pushed for stronger ties between the United States and Great Britain,[20][21] and vocally opposed the rise of fascism and Nazism in the 1930s,[3] a time when Roosevelt would not because of political concerns at home.[22] On 7 November 1933 the Saudi-American Treaty was signed by Bingham on behalf of the United States and Hafiz Wahba on behalf of Saudi Arabia.[23] Bingham was succeeded in the post by Joseph P. Kennedy.
+>
+>He was a member of the Society of the Cincinnati, Society of Colonial Wars and the Sons of the American Revolution.[citation needed]
+>
+>His daughter Henrietta Bingham was involved with the Bloomsbury Group, having affairs with the painter Dora Carrington and later with the sculptor Stephen Tomlin, who went on to marry Julia Strachey, niece of Lytton Strachey, the love of Carrington's life.[24]
+>
+>Seriously ill, Bingham sailed back to the United States on November 19, 1937.[25] He died a month later, on December 18, 1937, from Hodgkin's lymphoma, at Johns Hopkins Hospital, where he had been operated on a few days before his death;[2][5] and was buried in Cave Hill Cemetery.[6]
+>
+>His family continued to dominate Louisville media for another half-century, mostly through his son, Barry Bingham, Sr.
+>
+>The SS Robert W. Bingham, a cargo ship in service from 1944 to 1959, was named for him.[1]
+
+2. [Barry Bingham Sr. - Family and career](https://en.wikipedia.org/wiki/Barry_Bingham_Sr.#Family_and_career)
+>George Barry Bingham Sr. was born on February 10, 1906 in Louisville, Kentucky.[1] Bingham's family owned a cluster of influential media properties – The Courier-Journal and The Louisville Times newspapers, plus WHAS Radio and WHAS Television. The papers had been purchased by his father, Col. Robert Worth Bingham, using proceeds from an inheritance left by his second wife, Mary Lily Kenan Flagler, herself the widow of railroad magnate Henry Flagler.
+>
+>Bingham attended Harvard University, then went into the family businesses. In 1931, he married Mary Caperton, a Radcliffe graduate. Bingham Sr. took the reins of the company in 1937; his elder brother Robert Worth Bingham Jr was considered incapable of taking control of the family business because of his alcoholism, and settled in England, where he married.[2] At the time, "The C-J" was little more than a Democratic Party organ, but Bingham built it into national prominence, thanks to reporting that was ambitious in scope for a newspaper in a city of Louisville's size. Throughout Bingham's tenure, the editorial voices of the C-J & Times was forthrightly liberal, especially for a fairly conservative (though predominantly Democratic at the time) state like Kentucky. The newspapers were recipients of six Pulitzer Prizes, including one for public service in 1967, plus multiple other awards during the Bingham years. The Courier-Journal became the commonwealth's dominant newspaper, a position it retains to this day. He also founded WHAS-TV, the city's second television station, and founded the WHAS Crusade for Children, a telethon broadcast on both the radio and television stations that today collects more than $6,000,000 each year for local children's charities. The family also owned Standard Gravure, a rotogravure printing company that printed the newspapers' Sunday magazine section, plus Sunday sections for other newspapers.
+>
+>In World War II, Bingham served as an officer in the United States Navy, and was twice awarded the Bronze Star. Bingham Sr. was given the rank of Commandeur, Légion d'honneur, by French government for service. In 1950, he was elected a Fellow of the American Academy of Arts and Sciences.[3] He was a Fulbright lecturer at Oxford University in 1955.
+>
+>On July 7, 1951, Bingham, along with Jane Darwell, was a guest on the CBS variety television series, Faye Emerson's Wonderful Town, when the program hosted Louisville and its music heritage.[4]
+>
+>In 1971, Bingham stepped down from day-to-day operations and handed over the operations of the company to his remaining son, Barry Bingham Jr. Bingham Sr. died at his home in Louisville on August 15, 1988, at age 82.[5] Bingham Jr. died on April 3, 2006.
+
+3. [The Fall of the House of Bingham](https://www.nytimes.com/1986/01/19/business/the-fall-of-the-house-of-bingham.html)
+>By the early 1960's, Worth was working at the newspapers. Barry Jr., who had slimmed down as a rower at Harvard and in the Marines, had developed a taste for broadcasting.\
+>[...]\
+>But at his father's invitation, Barry Jr. moved to the newspapers and in 1971, when his father retired his operating control and became chairman, Barry assumed the titles of editor and publisher, and took operating command of WHAS and Standard Gravure.
+
+4. [Standard Gravure shooting - Psychiatric history](https://en.wikipedia.org/wiki/Standard_Gravure_shooting#Psychiatric_history)
+>Wesbecker had a long history of psychiatric illness and was treated for it in hospitals at least three times between 1978 and 1987. He was diagnosed as suffering from alternating episodes of deep depression and manic depression, was beset, among others, by confusion, anger and anxiety and made several attempts to commit suicide.[4][9] Hospital records also suggested that Wesbecker posed a threat to himself and others.[9]
+>
+>According to CBS's 60 Minutes, "In 1984, five years before he took Prozac, Wesbecker's medical records show that he had this conversation with a doctor. Have you ever felt like harming someone else? 'Yes,' Wesbecker said. Who? 'My foreman.' When? 'At work.' The same medical records show Wesbecker had already attempted suicide 12 to 15 times."[11]
+>
+>In the years prior to the shooting Wesbecker more than once threatened to "kill a bunch of people" or to bomb Standard Gravure and at one point considered hiring an assassin to kill several executives of the company. Apparently he even discussed these things with his wife before their divorce.[4] When he left Standard Gravure in August 1988 he told other workers that he would come back, wipe out the place and get even with the company and shortly before the shooting he told one of his aunts that he was upset about things at work and said they will get paid back, but as he said these things all the time, she didn't take the threat too seriously.[7]
+>
+>One of the employees at Standard Gravure said after the shooting: "This guy's been talking about this for a year. He's been talking about guns and Soldier of Fortune magazine. He's paranoid, and he thought everyone was after him."[12]
+>
+>Three days prior to the shooting, on September 11, Wesbecker told his psychiatrist that a foreman had forced Wesbecker to perform oral sex on him in front of his co-workers to get off the folder. In his notes, the psychiatrist wrote "Prozac?"[13]
+>
+>Wesbecker is buried in Louisville's Cave Hill Cemetery.[14]
+
+5. [Standard Gravure shooting - Lawsuit](https://en.wikipedia.org/wiki/Standard_Gravure_shooting#Lawsuit)
+>In August 1989, less than a month before the shooting, Wesbecker had started taking Prozac. The wounded and the families of those killed filed a lawsuit against the drug's manufacturer, Eli Lilly and Company, claiming that Wesbecker's use of Prozac contributed to his actions. The case went to jury trial. Midway through, defense testimony opened a door that would have allowed plaintiffs to make known to the jury Lilly's 1985 conviction for failing to report to the federal Food and Drug Administration adverse reactions to Oraflex, another Lilly drug. The plaintiffs and Lilly then negotiated an agreement, which they concealed from the trial judge, John W. Potter. The trial continued, and plaintiffs never introduced the precedent of Lilly's conduct with respect to Oraflex. The jury decided in Lilly's favor, and when plaintiffs failed to appeal, a suspecting Judge Potter uncovered the concealed agreement. With unanimous authorization from Kentucky's Supreme Court, he succeeded in amending the court record to show that the case was resolved by settlement rather than jury verdict.[15][16][17]
+
