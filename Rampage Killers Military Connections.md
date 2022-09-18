@@ -2248,9 +2248,11 @@ Source(s):
 >Marvin LaFontaine, 53, a mechanical engineer who considered himself a friend of Nancy Lanza from Kingston, N.H., where Ms. Lanza grew up, kept in touch with her chiefly by e-mail, Facebook and phone until 2010. He remembered that Adam Lanza deeply admired one of his mother’s brothers, a retired Kingston police officer named James Champion. Mr. LaFontaine said Mr. Lanza was keen on joining the military, as his uncle, Mr. Champion, had done.
 
 5. [Patterns Among School Shooters: Body-Related Issues and the Military - Aberrant Adult Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
->Adam Lanza [-] Uncle: Marines and law enforcement\
+>Adam Lanza\
+>Uncle: Marines and law enforcement\
 >[...]\
->Adam Lanza [-] Wanted to enlist in Marines but mother talked him out of it; he took this harder than she expected
+>Adam Lanza\
+>Wanted to enlist in Marines but mother talked him out of it; he took this harder than she expected
 
 6. [Sandy Hook Elementary School shooting - Developmental and mental health problems](https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting#Developmental_and_mental_health_problems)
 >Lanza exhibited developmental challenges before the age of three. These included communication and sensory difficulties, socialization delays, and repetitive behaviors. He was seen by the New Hampshire Birth to Three intervention program and referred to special education preschool services.[163] Once at elementary school, he was diagnosed with a sensory-integration disorder. Sensory-processing disorder does not have official status by the medical community as a formal diagnosis but is a common characteristic of autism.[164] His anxiety affected his ability to attend school and in 8th grade he was placed on "homebound" status, which is reserved for children who are too disabled, even with supports and accommodations, to attend school.[165]
@@ -3438,9 +3440,12 @@ Source(s):
 >Lépine applied to join the Canadian Forces as an officer cadet in September 1981 at the age of 17, but was rejected during the interview process. He later told his friend it was because of difficulties accepting authority, and in his suicide letter noted that he had been found to be "anti-social".[18][35] An official statement from the military after the massacre stated that he had been "interviewed, assessed and determined to be unsuitable".[4]
 
 3. [Patterns Among School Shooters: Body-Related Issues and the Military - Aberrant Adult Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
->Marc Lépine [-] Uncle: Algerian military [-] Father: possibly in Algerian military
+>Marc Lépine\
+>Uncle: Algerian military\
+>Father: possibly in Algerian military\
 >[...]\
->Marc Lépine [-] Rejected by the Canadian Army as “unsuitable” or “asocial”[.]
+>Marc Lépine\
+>Rejected by the Canadian Army as “unsuitable” or “asocial”
 
 ------------------------------------
 
@@ -3747,9 +3752,11 @@ South Vietnamese Army (ARVN); United States Department of Defense (DOD) contract
 
 Source(s):
 1. [Patterns Among School Shooters: Body-Related Issues and the Military - Aberrant Adult Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
->Jiverly Wong [-] Father: South Vietnamese Army\
+>Jiverly Wong\
+>Father: South Vietnamese Army\
 >[...]\
->Jiverly Wong [-] Claimed no military experience on immigration paperwork, but reportedly told acquaintance he had served in the military or law enforcement
+>Jiverly Wong\
+>Claimed no military experience on immigration paperwork, but reportedly told acquaintance he had served in the military or law enforcement
 
 2. [Binghamton shooting - Possible motives](https://en.wikipedia.org/wiki/Binghamton_shooting#Possible_motives)
 >Several sources suggested possible motives for Wong's attack, including feelings of being "degraded and disrespected" for his poor English language skills, depression over losing his job, and difficulty in finding work in New York.[26] A few years before the killings, he had worked as an engineer at Endicott Interconnect Technologies, a high-tech electronics company. In 2004, the company laid off five percent of its workforce. A coworker from that time said of him, "He was quiet—not a violent person" and "I can't believe he would do something like this."[37]
@@ -4679,9 +4686,13 @@ United States Armed Forces aspirant; Red Lake Police Department paternal grandfa
 
 Source(s):
 1. [Patterns Among School Shooters: Body-Related Issues and the Military - Secondary School Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
->Jeffrey Weise [-] Paternal grandfather: police officer [-] Grandfather’s brother: Navy [-] Grandfather’s brother: Army\
+>Jeffrey Weise\
+>Paternal grandfather: police officer\
+>Grandfather’s brother: Navy\
+>Grandfather’s brother: Army\
 >[...]\
->Jeffrey Weise [-] Military aspirations, but committed attack before he was old enough to enlist
+>Jeffrey Weise\
+>Military aspirations, but committed attack before he was old enough to enlist
 
 2. [Red Lake shootings - Background](https://en.wikipedia.org/wiki/Red_Lake_shootings#Background)
 >At the time of the shooting, by some accounts, Jeff Weise was living with his paternal grandfather, Daryl Lussier, Sr., a sergeant with the Red Lake Police Department, run by the Ojibwe (aka Chippewa) tribal government at the Red Lake Indian Reservation.\
@@ -5042,7 +5053,8 @@ Finnish Armed Forces; Tuusula Municipal Government mother (Mikaela Vuorio)
 
 Source(s):
 1. [Patterns Among School Shooters: Body-Related Issues and the Military - Secondary School Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
->Pekka-Eric Auvinen [-] Military service was deferred due to mental health reasons; not clear if he had aspirations or was simply called to serve
+>Pekka-Eric Auvinen\
+>Military service was deferred due to mental health reasons; not clear if he had aspirations or was simply called to serve
 
 2. [Mikaela Vuorio - INFORMATION](https://www-mikaelavuorio-fi.translate.goog/Unelmia_paremmasta_maailmasta.html?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp&_x_tr_sch=http)
 >Contological actions: Deputy Commissioner of Tuusula Municipal Council (Green) 2005 - 2008, Deputy Member of the Construction and Environment Committee 2005 - 2008, Deputy Chairman of the Board of Elonkehä ry 2006 - 2007, Deputy Chairman of the Board of Ekovihreät ry 2006 - 2007.
