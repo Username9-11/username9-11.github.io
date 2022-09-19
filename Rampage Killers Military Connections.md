@@ -2229,7 +2229,7 @@ December 14, 2012\
 28 killed (including 1 perpetrator), 2 wounded
 
 Perpetrator(s):\
-Adam Peter Lanza, 20\
+**Adam Peter Lanza, 20**\
 United States Marine Corps (USMC) aspirant; United States Department of Defense (DOD) contractor father (Peter Lanza - General Electric); United States Marine Corps (USMC) / Kingston Police Department (KPD) maternal uncle (James Champion); United States Central Intelligence Agency (CIA) psychiatric associates (Yale Child Study Center)
 
 Source(s):
