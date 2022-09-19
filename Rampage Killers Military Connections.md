@@ -95,7 +95,7 @@ MILITARY / GOVERNMENT CONNECTIONS TO MASS-KILLINGS ORCHESTRATED BY ORGANIZATIONS
 [September 11 attacks](https://en.wikipedia.org/wiki/September_11_attacks)\
 New York City, New York / Arlington, Virginia / Shanksville, Pennsylvania\
 September 11, 2001\
-2,996 killed (including 19 perpetrators), 25,000+ wounded\
+2,996 killed (including 19 perpetrators), 25,000+ wounded
 
 Perpetrator(s):
 
