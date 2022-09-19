@@ -103,12 +103,15 @@ Perpetrator(s):
 
 **Mohamed Atta**\
 United States Department of Defense (DOD) associates (Maxwell Air Force Base / Norfolk Naval Air Station); United States Department of Defense (DOD) contractor associates; United States Central Intelligence Agency (CIA) associates (Mohamedou Ould Slahi - Operation Cyclone / Rudi Dekkers / Wallace Hilliard / Charlotte County Airport / Wolfgang Bohringer / Luai Sakra / Omar "Blind Sheikh" Abdel-Rahman's network); United States Federal Government / German Federal Government associates (Carl Duisberg Society); Saudi Arabian Monarchical Government contractor associate (Esam Abbas Ghazzawi); Saudi Arabian Ministry of Foreign Affairs / General Intelligence Directorate (GID) associate (Mohammed Rafique Quadir Harunani); United States Central Intelligence Agency (CIA) / Pakistani Inter-Services Intelligence (ISI) associate (Omar Saeed Sheikh); German Federal Office for the Protection of the Constitution (BfV) associate (Mohammed Haydar Zammar); German Army associate (Said Bahaji)
+\
+\
+![Alt text](https://i.imgur.com/d4lGBd6.png)
 
 **Abdulaziz al-Omari**\
 United States Department of Defense (DOD) associates (Brooks Air Force Base); United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah / Omar "Blind Sheikh" Abdel-Rahman's network)
 
 **Wail al-Shehri**\
-Royal Saudi Air Force (RSAF); Royal Saudi Air Force (RSAF) brothers; Saudi Arabian Armed Forces (SAAF) uncle (Major General Faez Alshehri); Saudi Arabian Armed Forces (SAAF) family; United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah)
+Royal Saudi Air Force (RSAF) employer (Khamis Mushait airbase); Royal Saudi Air Force (RSAF) brothers; Saudi Arabian Armed Forces (SAAF) uncle (Major General Faez Alshehri); Saudi Arabian Armed Forces (SAAF) family; United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah)
 
 **Waleed al-Shehri**\
 Royal Saudi Air Force (RSAF) brothers (Wail al-Shehri et al.); Saudi Arabian Armed Forces (SAAF) uncle (Major General Faez Alshehri); Saudi Arabian Armed Forces (SAAF) family; United States Central Intelligence Agency (CIA) associates (US Consulate in Jeddah)
@@ -170,6 +173,8 @@ Saudi Arabian Ministry of Islamic Affairs father; Saudi Arabian Monarchical Gove
 **Saeed al-Ghamdi**\
 United States Central Intelligence Agency (CIA) associates (Luai Sakra / US Consulate in Jeddah); United States Department of Defense (DOD) associates (Pensacola Naval Air Station / Defense Language Institute); Saudi Arabian Ministry of Defense (MOD) associate (Hamad Alotaibi - Saudi Embassy Military Division)
 
+![Alt text](https://i.imgur.com/ceMT6Uf.png)
+
 -------------------------------------------------------------------------------
 ------------------------------------
 
@@ -196,6 +201,8 @@ November 18, 1978\
 Perpetrator(s):\
 **James Warren Jones, 47**\
 United States Central Intelligence Agency (CIA); United States Armed Forces father (James Thurman Jones); United States Central Intelligence Agency (CIA) associates (Dan Mitrione / Rabbi Maurice Davis / Walter Heady - John Birch Society / Jon Lodeesen / Timothy Stoen / George Philip Blakey / Maria Katsaris - CIA father / Forbes Burnham / Richard Dwyer); United States Armed Forces / Department of Defense (DOD) / Department of State (DOS) associate (Richard McCoy); United States Navy (USN) Office of Naval Intelligence (ONI) associate (Terri Buford - daughter of Admiral Charles T. Buford); United States Army (USA) associates (Laurence Layton / Mark Lane); United States Marine Corps (USMC) associates (Charles Beikman / Tim Carter); United States Government informant associate (Michael Prokes); United States Federal Government associates (Carter Administration / Rosalynn Carter / Walter Mondale / Joseph Califano); California State Government associates (Jerry Brown / Mervyn Dymally); Indianapolis Municipal Government associate (Charles Boswell); San Francisco Municipal Government / United States Navy (USN) associates (George Moscone / Harvey Milk); San Francisco Municipal Government / California Army National Guard associate (Willie Brown); San Francisco Municipal Government associates (Joseph Freitas / Art Agnos); San Francisco Sheriff's Department associate (Richard Hongisto)
+
+![Alt text](https://i.imgur.com/zANaPUm.png)
 
 Source(s):
 1. [The Secret Life of Jim Jones: A Parapolitical Fugue](https://jonestown.sdsu.edu/?page_id=16572)
@@ -5120,4 +5127,691 @@ Source(s):
 
 5. [Standard Gravure shooting - Lawsuit](https://en.wikipedia.org/wiki/Standard_Gravure_shooting#Lawsuit)
 >In August 1989, less than a month before the shooting, Wesbecker had started taking Prozac. The wounded and the families of those killed filed a lawsuit against the drug's manufacturer, Eli Lilly and Company, claiming that Wesbecker's use of Prozac contributed to his actions. The case went to jury trial. Midway through, defense testimony opened a door that would have allowed plaintiffs to make known to the jury Lilly's 1985 conviction for failing to report to the federal Food and Drug Administration adverse reactions to Oraflex, another Lilly drug. The plaintiffs and Lilly then negotiated an agreement, which they concealed from the trial judge, John W. Potter. The trial continued, and plaintiffs never introduced the precedent of Lilly's conduct with respect to Oraflex. The jury decided in Lilly's favor, and when plaintiffs failed to appeal, a suspecting Judge Potter uncovered the concealed agreement. With unanimous authorization from Kentucky's Supreme Court, he succeeded in amending the court record to show that the case was resolved by settlement rather than jury verdict.[15][16][17]
+
+------------------------------------
+
+[2015 Bouchoucha barracks shooting](https://en.wikipedia.org/wiki/2015_Tunis_barracks_shooting)\
+Tunis, Tunisia\
+May 25, 2015\
+9 killed (including 1 perpetrator), 9 wounded
+
+Perpetrator(s):\
+**Mehdi Jemaii**\
+Tunisian Armed Forces
+
+Sources:
+1. [2015 Bouchoucha barracks shooting](https://en.wikipedia.org/wiki/2015_Tunis_barracks_shooting)
+>A Tunisian soldier, later identified as Corporal Mehdi Jemaii, who was forbidden from carrying weapons,[why?] stabbed a soldier, then took his weapon. He then opened fire on soldiers during a flag-raising ceremony, killing seven and wounding ten, including one seriously injured who died on May 31, before he was killed during an exchange of gunfire.
+
+------------------------------------
+
+[Indianapolis FedEx shooting](https://en.wikipedia.org/wiki/Indianapolis_FedEx_shooting)\
+Indianapolis, Indiana\
+April 15, 2021\
+9 killed (including 1 perpetrator), 7 wounded
+
+Perpetrator(s):\
+**Brandon Scott Hole, 19**\
+United States Armed Forces aspirant; United States Department of Defense (DOD) contractor employer (FedEx Corporation)
+
+Source(s):
+1. ['Demonstrate his masculinity': Indianapolis FedEx shooter's motivations revealed](https://www.indystar.com/story/news/crime/2021/07/28/fedex-shooting-indianapolis-fbi-reveals-brandon-holes-motives/5400900001/)
+>Investigators also learned Hole aspired to join the military; authorities said he had been eating MREs, or meals ready-to-eat, like those consumed by members of the armed forces.
+
+2. [Indianapolis FedEx shooting - Perpetrator](https://en.wikipedia.org/wiki/Indianapolis_FedEx_shooting#Perpetrator)
+>Police identified the gunman as Brandon Scott Hole (born August 20, 2001), a 19-year-old Indianapolis resident who had been employed at the FedEx facility from August to October 2020; he was fired for failing to return to work.\
+>[...]\
+>Hole had been diagnosed with several behavioral disorders starting in the fourth grade and had undergone behavioral therapy sessions for them. His behavior in childhood deteriorated to a point where police had to be called to the home on at least two occasions, and where he could not attend school and graduate. As a teenager, he became suicidal and physically abusive towards his mother.[2] In March 2020, Hole's mother contacted the local authorities and warned them about her son's intent to die by suicide by cop and his purchase of a shotgun the day before, prompting an investigation to be opened. Police responded to the home and took him to a hospital. While being placed in handcuffs, an anxious Hole instructed the officers to turn off his computer, since he did not want anyone to see what was on it. An officer went upstairs to seize the shotgun and observed what he identified as white supremacist websites on Hole's computer in the process.[12][24][25] Hole was placed in an "immediate detention mental health temporary hold" by the Indianapolis Metropolitan Police Department, but he was released after less than two hours.[2][26] In April 2020, the FBI questioned Hole about the websites. The investigation was later closed due to insufficient evidence of any criminal violation or a racially motivated extremist ideology held by Hole, though the shotgun was not returned to him.[27][28]
+
+3. [FedEx Corporation's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=FedEx+Corporation+Department+of+Defense)
+
+------------------------------------
+
+[101 California Street shooting](https://en.wikipedia.org/wiki/101_California_Street_shooting)\
+San Francisco, California\
+July 1, 1993\
+9 killed (including the perpetrator), 6 wounded
+
+Perpetrator(s):\
+**Gian Luigi Ferri, 55**\
+Marin County Department of Health and Human Services (DHHS); Marin County Department of Health and Human Services (HHS) spouse (Donna Benedetti); United States Navy (USN) father-in-law (Gene M. Benedetti)
+
+Source(s):
+1. [Baffling Portrait of S.F. Gunman Emerges : Violence: Some say he was polite and withdrawn, others call him strange and secretive.](https://www.latimes.com/archives/la-xpm-1993-07-03-mn-10731-story.html)
+>Officials with the Marin County Department of Health and Human Services said Ferri worked for the department as a counselor for five years in the 1970s.
+
+2. [Four Friends: Promising Lives Cut Short](https://books.google.com/books?id=i3JwDwAAQBAJ&pg=PT78&lpg=PT78&dq=donna+benedetti+marin+county)
+
+3. [Gene M. Benedetti - Obituary](https://www.legacy.com/us/obituaries/marinij/name/gene-benedetti-obituary?id=26136544)
+>Gene M. Benedetti Patriarch of a prominent Sonoma County family passed away in Santa Rosa on Friday, January 13th, 2006. He was 86 years of age. Gene was born in Sonoma, the son of the late Giocondo and Pia Benedetti. He was raised in Cotati, attending local schools and graduating from Petaluma High School. He later attended SRJC, the University of San Francisco, and Stanford University where he received his teaching degree. He heroically served as a Naval Lieutenant in WWII in the Atlantic Theater as a captain of a ship in five invasions. Upon his return from the service, he taught and coached at Santa Rosa Junior College. In 1947, he was hired by the Petaluma Co-Operative Creamery where he served as the General Manager for 20 years. In 1977, he founded Clover-Stornetta Farms and remained active in the business until his recent illness. Gene has served on many community and fraternal organizations throughout his career in Sonoma County. He was the [...] father of [...] Donna Benedetti[.]
+
+4. [101 California Street shooting - Shootings](https://en.wikipedia.org/wiki/101_California_Street_shooting#Shootings)
+>The reason for the shootings was never fully determined. A typed letter left behind by Ferri contained a list of complaints,[4] but the letter was largely unintelligible. Four single spaced pages in length, the letter contained many grammatical errors, misspellings and was typed in all caps.[5] Ferri claimed he had been poisoned by monosodium glutamate (MSG), a flavor enhancer in food, and that he had been "raped" by Pettit & Martin and other firms. The letter also contained complaints against the Food and Drug Administration, the legal profession, and a list of over 30 "criminals, rapists, racketeeres [sic], lobbyists", none of whom were among his actual victims.[6] Pettit & Martin occupied floors 33 (partial floor) and 34 through 36. The main reception floor was 35 and Ferri intended that floor as a target. His elevator stopped at the 34th floor because a secretary from that floor had pushed the up button for an elevator. As a result, Ferri began shooting on the 34th floor and worked his way down to lower floors.
+
+------------------------------------
+
+[Westroads Mall shooting](https://en.wikipedia.org/wiki/Westroads_Mall_shooting)\
+Omaha, Nebraska\
+December 5, 2007\
+9 killed (including 1 perpetrator), 6 wounded
+
+Perpetrator(s):\
+**Robert Arthur Hawkins, 19**\
+United States Army (USA) applicant; United States Air Force (USAF) parents (Ronald Hawkins / Maribel "Molly" Rodriguez); Nebraska State Government psychiatric associates
+
+Source(s):
+1. [Westroads Mall shooting - Shooter](https://en.wikipedia.org/wiki/Westroads_Mall_shooting#Shooter)
+>Robert Arthur Hawkins was the 19-year-old perpetrator of the Westroads Mall shooting.[23] He was born at the RAF Lakenheath station in Suffolk, England, U.K., to American U.S. Air Force personnel parents Ronald Hawkins and Maribel "Molly" Rodriguez.[24] He was hospitalized at the age of four after persistent violent behavior in pre-school. He was diagnosed with attention-deficit disorder and posttraumatic stress disorder due to his chaotic homelife.[24] The day after he turned 14, he was sent to a mental health treatment center for threatening to kill his stepmother.[25] Four months later, he became a ward of the State of Nebraska, which lasted nearly four years until he was discharged completely due to his unwillingness to improve.[25]
+>
+>During his second hospitalization, he was diagnosed with an unspecified mood disorder and oppositional defiant disorder.[25] His treatments cost the state $265,000.[25] He was expelled from Fort Calhoun High School after trying to sell drugs to his classmates in 2005. He then attended Papillion-La Vista High School, and later dropped out in March 2006. He received a GED. In late 2006, he became estranged from his parents and chose to live with two friends and their mother in a home in the Quail Creek Neighborhood[19] of Bellevue, a suburb 10 miles (16 km) south of Omaha.[3] Debora Maruca-Kovac, the owner of the house in which Hawkins lived, described him as "troubled".[26] She also stated that he was depressed over being fired from his job at McDonald's, reportedly for stealing $17,[27] and over separating from his girlfriend two weeks prior to the incident because he cheated on her.[19][28] In the summer of 2007, Hawkins tried to enlist in the U.S. Army but was turned down on account of his mental health record.[29]
+>
+>Hawkins was ticketed on November 24, 2007, for suspicion of contributing to the delinquency of a minor and two alcohol charges,[30] one of which was underage possession of alcohol. He was due in court for an arraignment on December 19, 2007.[19] In late November, 2007, Hawkins threatened to kill a local teenager's family and burn her house down, because he thought she had stolen his CD player. The teen decided to press no charges because Hawkins was known for "shooting his mouth off".[31][32] Hawkins was also convicted as a juvenile of a felony drug conviction[33][34] while in foster care in Omaha.[34]
+
+------------------------------------
+
+[2011 Kabul International Airport shooting](https://www.latimes.com/archives/la-xpm-2011-apr-28-la-fg-afghan-pilot-20110428-story.html)\
+Kabul, Afghanistan\
+April 27, 2011\
+9 killed, 5 wounded
+
+Perpetrator(s):\
+**Ahmed Gul, 46**\
+Afghan Army
+
+Sources:
+1. [9 Americans are killed by Afghan pilot](https://www.latimes.com/archives/la-xpm-2011-apr-28-la-fg-afghan-pilot-20110428-story.html)
+>Eight U.S. troops and an American contractor were killed early Wednesday when a veteran Afghan military pilot fired on trainers during a meeting in a military compound near Kabul International Airport.\
+>[...]\
+>The pilot, identified as Ahmad Gul Sahebi, 48, was from the Tarakhail district of Kabul province and had served in the Afghan army for decades, according to a man who claimed to be his brother.
+
+------------------------------------
+
+[Miami Welding shop shooting](https://en.wikipedia.org/wiki/Carl_Robert_Brown#The_shooting)\
+Miami, Florida\
+August 20, 1982\
+9 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**Carl Robert Brown, 51**\
+United States Navy (USN)
+
+Source(s):
+1. [Carl Robert Brown - Biography](https://en.wikipedia.org/wiki/Carl_Robert_Brown#Biography)
+>Brown was born on November 26, 1930 in Chicago, Illinois. He joined the U.S. Navy and was honorably discharged in 1954. People later stated that Brown always kept a military bearing about himself and was quite militaristic. In 1955, he moved from Chicago to Florida,[1] where he graduated from the University of Miami in 1957 and in 1964 from East Carolina College in Greenville, North Carolina, earning a master's degree in education. After working briefly for Keyes Realty, he got a full-time job as history teacher at Hialeah Junior High School in 1962[1] and moonlighted at Miami-Dade Community College as an accounting instructor from 1964 to 1970.
+>
+>Brown was married twice and had three children. His first wife died and his second marriage failed, according to his second wife, Sylvia, because he refused to seek psychological help. As a consequence, his condition began to deteriorate, resulting in an increasingly disheveled and gaunt appearance, and, though once being a rather gregarious person, he began isolating himself more and more. A neighbor later described him looking "as if he were 80 years old". Reportedly, one of his daughters once tried to have him hospitalized, though as his admission had to be voluntary, her request was declined. Additionally, his career began to suffer. At Hialeah Junior High, Brown was an alleged bigot who hated everyone,[2][3] and was transferred to Drew Middle School, a school with a black majority, in 1981. There he taught American history until March 3, 1982, when he was relieved of his teaching duties for medical leave to treat his psychiatric problems.
+>
+>Though neighbors described Brown as a quiet, kind and helpful man, who was working hard to keep his duplex neat and clean, and praising him overall as a landlord, it was also said that he made a habit of walking into other people's yards early in the morning, waking them by yelling "United States!" and that during the night, shots were heard from his house. It was also reported that he once broke a window when firing a pellet gun, and picked grapefruit from a neighbor's tree wearing only his underwear. Apparently, he also collected aluminum cans.
+>
+>After a trip abroad, which he had taken shortly before the shooting, he came back in worse shape than before and stated that nothing in the United States stood for anything.[2][3]
+
+2. [Carl Robert Brown - School problems](https://en.wikipedia.org/wiki/Carl_Robert_Brown#School_problems)
+>While Brown wrote in his application for a job as a teacher in 1961 that he "always enjoyed being with younger people" and felt that he "could benefit these younger people with his abilities", his work began to suffer as his psychological problems aggravated over the years. Being seen as a competent teacher for a long time, more and more complaints were filed against him as his condition worsened. Students began to refuse to sit in his class as he rambled incoherently about his personal problems and topics unrelated to his curriculum and conducted confusing conversations where he strung together completely unrelated things. Students would often take advantage of this by asking him a question that resulted in him talking for the rest of the period.[2] On one occasion, on May 5, 1977, Brown sent three girls to detention because they refused to sit in his class, as they were "sick and tired of hearing him talk." He was also known to be very prejudiced, to make threatening remarks, and to insult people of other races.
+>
+>During his time at Hialeah Junior High, Brown wrote a letter to the principal for "the enlightenment of the assistant principals," discussing the misbehavior of his students in rambling and poorly constructed sentences. "I don't read the students their rights as infants, you all do ... If you ever study business law, until a child is 18, the child can do just about anything the child desires to do and get away with the abuse. Any adult interfering, is accountable as an adult, but with infancy laws, the child is a child."
+>
+>In the summer of 1981, Brown was transferred to Drew Middle School. There, on December 3, he had a dispute with two students, whom he accused of throwing books. During the argument, Brown described his sexual behavior with a girlfriend and chased the boys with a stapler. The school board's director of personnel control, Pat Gray, described this as "a classroom incident ... wherein Mr. Brown demonstrated a significant lack of adult judgment, an overtone of sexual fixation, and definitive aggression toward students." The school's principal wrote: "I found Mr. Brown to be incoherent and unable to grasp the severity of the situation at hand. I, also, fear for the safety of the students since during my conference with Mr. Brown he demonstrated no regret for his actions pointing to the fact that he is a 'man' and any man would have reacted in the same manner."
+>
+>Principal Octavio Visiedo wrote in his last evaluation of Brown: "I find Mr. Brown to be a negative force. Today I did a follow-up observation of Mr. Brown's second-period class and I continue to be alarmed about the potential for disaster in that class. As you can see, from today's observation, there is absolutely no discipline or control in that class and I am concerned for the safety of the students and also Mr. Brown." Further, he stated that Brown's class was in "total and complete chaos", with students talking constantly, wandering about at will, and leaving without permission.
+>
+>Brown reacted by writing a response in which he suggested that the principal "should seek the help" of the school board's employee assistance program, to which he himself was referred to in January 1982.
+>
+>Psychiatrist Dr. Robert A. Wainger examined Brown, saying that "Mr. Brown is suffering from rather severe anxiety associated with some paranoid and grandiose ideas" and that he also "demonstrates a probable thinking disorder". Though Wainger wrote that these symptoms would affect Brown's work, he was also of the opinion that he would be able to continue teaching if given psychotherapy and medication. Wainger also wrote that "although he may appear to be rather unusual and disorganized to the people around him, he (Brown) does not represent a danger to either."[4]
+>
+>After his examination, Brown wrote to Wainger: "I wish to thank you for the very interesting and informative meeting I experienced yesterday. Please stress blood analysis, heart cartograph [sic] and urine plus the other mental health features of your program." Finally, on March 3, Brown was relieved of his duties to seek psychiatric help and he agreed to seek further treatment from Wainger, though in a meeting with Pat Gray, Brown apparently said: "Wainger wants to study me, that's all. I can cure Dr. Wainger. I will treat him. I will change his seeds."[4][5]
+>
+>According to his former wife, Sylvia, Brown asked to return to work two days prior to the shooting, but his psychiatrist, who later stated that Brown showed no aggressiveness at that time, declined his request.[3][6]
+
+------------------------------------
+
+[Derventa killings](https://en.wikipedia.org/wiki/Mile_Mati%C4%87)\
+Derventa, SFR Yugoslavia\
+February 26 - 27, 1986\
+9 killed, 3 wounded
+
+Perpetrator(s):\
+**Mile Matić, 38**\
+Yugoslav People's Army (JNA); Prison Guard
+
+Source(s):
+1. [Mile Matić - Life](https://en.wikipedia.org/wiki/Mile_Mati%C4%87#Life)
+>Mile Matić was born on 14 January 1956 in Derventa, SR Bosnia and Herzegovina, Yugoslavia. His father was an alcoholic. When Mile was 3 years old, his mother left the family. He lived in Doboj. His IQ was 162 and he was persistent in everything he did. He worked as a prison guard at the "Novi život" prison in Zenica, practiced karate, and quickly gained a black belt. He worked as a coach in the karate section, but was fired because he stole money from membership fees. He had a lot of girls. He was an amateur photographer. He photographed naked girls and filmed erotic scenes in which he was the main actor, but also blackmailed the girls, threatening to send photos to newspapers. Acquaintances said that he was calm, kind and a little narcissistic. He loved to read crime novels, Mercedes cars, and wanted young and beautiful girls.
+>
+>In March 1985, Matić met Smiljana Vasiljević. At that time, her boyfriend was in the army. She was a third-grade high school student. They were seeing each other, but at the end of the school year, she ended the relationship. However, Matić did not accept it. He watched her more and more often, waited for her near the school, and arranged for her parents to marry her. Realizing that neither marriage nor love with her will work, he openly threatened the girl and her parents, and then her boyfriend. He once told her friends, "She will not live to see the eighth of March."
+>
+>Matić often quarreled over the behavior of his sister's husband. He received dozens of complaints about threats and behavior at work. But no one paid attention to them and did not take them seriously.
+>
+>After two months of treatment at Zenica Psychiatric Hospital, Matić was released on 16 January 1985. He was discharged as a cured patient with a diagnosis of paranoid schizophrenia. He was forbidden to come into contact with any weapons and was advised to report monthly to the Disability Commission. A similar opinion was expressed a few weeks later by a psychologist from the Sarajevo Institute of Public Health after a regular systematic examination of prison guards from Zenica. He stole these records and hid them. Even then, he had thoughts on how to get rid of people who "haunt him and who bother him."[1][2]
+
+------------------------------------
+
+[Vepr submarine killings](https://en.wikipedia.org/wiki/Russian_submarine_Vepr_(K-157)#1998_incident)\
+Severomorsk, Russia\
+September 10, 1998\
+9 killed, 2 wounded
+
+Perpetrator(s):\
+**Alexander Kuzminykh, 19**\
+Russian Navy
+
+Source(s):
+1. [Russian submarine Vepr (K-157) - 1998 incident](https://en.wikipedia.org/wiki/Russian_submarine_Vepr_(K-157)#1998_incident)
+>Alexander Kuzminykh, a 19-year-old seaman who was being detained on punishment charges, broke out from his quarters, killed his guard by stabbing him with a chisel, then seized his AKS-74U assault rifle and shot dead five more sailors. He then took two hostages, whom he later killed.
+>
+>He barricaded himself in the torpedo room, and for 20 hours repeatedly threatened to set a fire to detonate the torpedoes. While Vepr had no nuclear weapons and her reactor was shut down, the detonation of her torpedoes while she was tied up at the dock would have ruptured her reactor, creating what the regional director of the Federal Security Service (FSB), Vladimir Prikhodko described as "a nuclear catastrophe ... a second Chernobyl."
+>
+>Attempts to persuade him to surrender failed. Kuzminykh's mother was flown to the naval base but was unable to persuade her son to give himself up. The situation remained a standoff until early on the morning of 12 September, when a special anti-terrorist commando unit of the Russian Federal Security Service (FSB) stormed the torpedo room. Early reports indicated that he had been killed by the FSB, but later reports indicated that he committed suicide. FSB officers regretted that "there was no way to preserve Alexander Kuzminykh's life."
+>
+>Kuzminykh was found fit when he was conscripted at a St. Petersburg enlistment office, even though he had suffered from a mental disorder and had been inhaling intoxicants. When Kuzminykh volunteered for the submarine service, he passed additional medical and psychiatric tests with high marks.
+
+------------------------------------
+
+[Tatarstan barracks shooting](http://news.bbc.co.uk/1/hi/world/europe/1802630.stm)\
+Tatarstan, Russia\
+February 3 - 5, 2002\
+9 killed, 2 wounded
+
+Perpetrator(s):\
+**Almaz Shageyev / Mikhail Sukhorukov**\
+Russian Airborne Forces
+
+Source(s):
+1. [Nine die in paratroop gun rampage](http://news.bbc.co.uk/1/hi/world/europe/1802630.stm)
+>Two Russian paratroopers have been shot dead after a gun rampage in the republic of Tartarstan which left nine people dead.
+
+------------------------------------
+
+[Hartford Distributors shooting](https://en.wikipedia.org/wiki/Hartford_Distributors_shooting)\
+Manchester, Connecticut\
+August 3, 2010\
+9 killed (including 1 perpetrator), 2 wounded
+
+Perpetrator(s):\
+**Omar Sheriff Thornton, 34**\
+United States Army (USA) founded employer (Jules Hollander - Hartford Distributors); United States Central Intelligence Agency (CIA) / Israeli Institute for Intelligence and Special Operations (Mossad) employer (Ross Hollander - Hartford Distributors); United States House of Representatives associated employer (John B. Larson - Hartford Distributors); Connecticut State House of Representatives associated employer (Christopher R. Stone - Hartford Distributors)
+
+Source(s):
+1. [Hollander, Jules A. - Obituary](https://www.courant.com/news/connecticut/hc-xpm-2001-04-16-0104153309-story.html)
+>Jules A. Hollander, 88, of Bloomfield and Aventura, FL, chairman of Hartford Distributors, Inc., died Saturday, (April 14, 2001). Born in New York, NY, he was the son of the late Max and Clara (Hess) Hollander. He graduated from the University of Pittsburgh, with a degree in business administration. He was an army veteran of World War II. Mr. Hollander was also a past president of Southern Distributing Company, a past president of the Norfolk Sports Club, former chairman of the Greater Hartford Convention and Visitors' Bureau, and was instrumental in the development of the Hartford Civic Center, and was a director of Hartford Hospital. He was a member of Tumblebrook Country Club, Congregation Beth Israel, the Hartford Runners' Club, the Greater Hartford Jewish Federation, and the Greater Hartford Jewish Community Center. He was also a member of Aventura Turnberry Jewish Center, the Greater Miami Jewish Federation, State of Israel Bonds, the Simon Weisenthal Institute, and the Douglas Gardens for Alzheimers.
+
+2. [At Company, a Culture of Family and Charity](https://www.nytimes.com/2010/08/04/nyregion/04company.html)
+>Incorporated in 1944, Hartford Distributors was later bought by Jules Hollander, a World War II veteran who served as the company’s chairman. His son, Ross, later took over as president, and two grandsons, Brett and Steve Hollander, also serve as executives. (Steve Hollander was wounded in the shootings, but family friends said he was treated at an area hospital and released.)
+>
+>The company was based in East Hartford until it moved to Manchester about 20 years ago, and it recently expanded by acquiring a nearby distributor in South Windsor. One of the state’s largest suppliers of Anheuser-Busch products, the company has also helped promote local beers to its hundreds of clients.
+>
+>Besides running their company, the Hollanders play an active role in Hartford’s philanthropic circles. The family’s commitment to giving back, instilled by the patriarch, Jules, made it a quiet force among the Hartford area’s hospitals, libraries, business leagues and Jewish community groups.
+>
+>“There are a lot of people you meet in this world that have been really lucky and don’t give back the way this family does,” said Cathrine Fischer Schwartz, chief executive of the Jewish Federation of Greater Hartford, where Ross Hollander has served as a board member. “They really care about the community, and they care about the people that work for them.”
+>
+>Ross Hollander, the company’s current president, has served as a board member of Hartford Hospital, and was appointed to the State Board of Governors for Higher Education.
+>
+>“I can’t think of an organization that hasn’t come to the Hollander family and asked for help that hasn’t received it,” said John B. Larson, a congressman who has known the family for 30 years. “They’re part of the fabric of the community.”\
+>[...]\
+>Ross Hollander has also served on business improvement groups in Hartford and his hometown, Bloomfield, at one point putting up his own money to help clinch crucial financing for the town’s public school system.\
+>
+>“They don’t flaunt their charitable givings,” said Christopher R. Stone, a former state representative from East Hartford and a family friend. “They kept it to themselves. They didn’t need public acceptance of what they did.”
+
+------------------------------------
+
+[Huntsville massacre](https://en.wikipedia.org/wiki/Huntsville_massacre)\
+Huntsville, Arkansas\
+January 10, 1863\
+9 killed, 1 wounded
+
+Perpetrator(s):\
+**Elias Baldwin**\
+United States Army (USA)
+
+------------------------------------
+
+[LST-172 Navy shooting](https://news.google.com/newspapers?id=WyQVAAAAIBAJ&sjid=gPUDAAAAIBAJ&pg=6713,4878657&dq=)\
+Yangtze River, China\
+April 23, 1946\
+9 killed, 1 wounded
+
+Perpetrator(s):\
+**William Vincent Smith, 20**\
+United States Navy (USN)
+
+Source(s):
+1. [U.S. Sailor, 19, Goes Berserk on Yangtze; Kills Nine Shipmates in Sudden Frenzy](https://www.nytimes.com/1946/04/24/archives/us-sailor-19-goes-berserk-on-yangtze-kills-nine-shipmates-in-sudden.html)
+>A young seaman went suddenly berserk on a Navy LST up the Yangtze River today, and in a brief and tragic rampage shot to death nine shipmates before stabbing himself.
+
+------------------------------------
+
+[1992 Tatarstan shooting](https://en.wikipedia.org/wiki/1992_Tatarstan_shooting)\
+Tatarstan, Russia\
+April 26, 1992\
+9 killed, 1 wounded
+
+Perpetrator(s):\
+**Andrey Shpagonov, 22**\
+Soviet Army; Russian State Courier Service
+
+Source(s):
+1. [1992 Tatarstan shooting - Background](https://en.wikipedia.org/wiki/1992_Tatarstan_shooting#Background)
+>Andrey Shpagonov [...] was released from compulsory military service in the Soviet Army due to illness, instead attending a vocational school from which he graduated. Shpagonov worked at a factory before joining the Tatarstan branch of the State Courier Service. At work he established himself as a loner, where he was known to be withdrawn and uncommunicative. Despite this, Shpagonov was a talented marksman, and regularly received promotions in the service. According to his former colleagues, Shpagonov became involved in petty theft. At the beginning of 1991, Shpagonov was dismissed from the State Courier Service for non-compliance in his position, and after the dismissal worked as a security guard in a private furniture store in Kazan, but was soon dismissed for an unknown reasons. Shpagonov also tried to organize his own trading business, but failed.
+
+------------------------------------
+
+[Uherský Brod shooting](https://en.wikipedia.org/wiki/Uhersk%C3%BD_Brod_shooting)\
+Uherský Brod, Czech Republic\
+February 24, 2015\
+9 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Zdeněk Kovář, 63**\
+Czech Ministry of Defense (MOD) contractor father (Česká zbrojovka Uherský Brod)
+
+Source(s):
+1. [Uherský Brod shooting - Perpetrator](https://en.wikipedia.org/wiki/Uhersk%C3%BD_Brod_shooting#Perpetrator)
+>Zdeněk Kovář (c. 1951 – 24 February 2015) was 63 years old at the time of his death and lived with his wife in a house not far from the scene of the shooting. Neighbours described the couple as deranged and known for loudness and verbal abuse.[21] Kovář was the son of a worker in the local Česká zbrojovka Uherský Brod (ČZUB) firearms factory, the largest small arms manufacturer in the country. Formerly an electrician, he had been unemployed for at least ten years.[22] Kovář's wife was taken to a psychiatric hospital following the shooting.[21]
+>
+>Kovář had held a gun license since 2000,[23] and legally owned both of the guns he used.[1][16][22]
+
+------------------------------------
+
+[Charleston church shooting](https://en.wikipedia.org/wiki/Charleston_church_shooting)\
+Charleston, South Carolina\
+June 17, 2015\
+9 killed, 1 wounded
+
+Perpetrator(s):\
+**Dylann Storm Roof, 21**\
+United States Army Reserve (USAF) brother-in-law (Michael Tyo)
+
+Source(s):
+1. [What we know so far about Charleston church shooting suspect Dylann Roof](https://www.washingtonpost.com/news/post-nation/wp/2015/06/20/what-we-know-so-far-about-charleston-church-shooting-suspect-dylann-roof/)
+>Although authorities haven’t said why Roof fled to Shelby, his sister’s fiance, Michael Tyo, lives three miles from where Roof was captured in a residential neighborhood of brick ranch-style houses. Tyo, a recruiter for the U.S. Army Reserve, declined to comment Thursday while packing up his children and the family dog for what appeared to be a trip.
+
+2. [Dylann Roof - Early life](https://en.wikipedia.org/wiki/Dylann_Roof#Early_life)
+>According to a 2009 affidavit filed for Mann's divorce, Roof exhibited "obsessive compulsive behavior" as he grew up, obsessing over germs and insisting on having his hair cut in a certain style.[18] When he was in middle school, he exhibited an interest in smoking marijuana, having once been caught spending money on it.[15]\
+>[...]\
+>Prior to the attack, Roof was living alternately in Bennett's and Cowles' homes in downtown Columbia and Hopkins, respectively,[19][26][27] but was mostly raised by his stepmother Mann.[18] For several weeks preceding the attack, Roof had also been occasionally living in the home of an old friend from middle school and the latter's mother, two brothers, and girlfriend.[20][27][28] He allegedly spent his time using drugs and getting drunk.[27] He had been working as a landscaper at the behest of his father, but quit the job prior to the shooting.[15]
+
+3. [Dylann Roof - Earlier contacts with police](https://en.wikipedia.org/wiki/Dylann_Roof#Earlier_contacts_with_police)
+>On February 28, 2015, mall security at the Columbiana Centre in Columbia called police after Roof, wearing all-black clothing, asked employees unsettling questions. During police questioning, Roof consented to be searched, and was found to be in possession of several strips of Suboxone, a prescription medication for opioid use disorder which is sometimes sold illegally, but usually for therapeutic rather than recreational use.[24][32] As Roof did not have a valid prescription, he was arrested for a misdemeanor charge of drug possession, and was subsequently banned from the Columbiana Centre for a year.[33][24]
+
+------------------------------------
+
+[2017 Plano shooting](https://en.wikipedia.org/wiki/2017_Plano_shooting)\
+Plano, Texas\
+September 10, 2017\
+9 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Spencer Hight, 32**\
+Department of Defense (DOD) contractor employer (Texas Instruments); United States Navy (USN) / Freemason grandfather-in-law (Leonard Vann Dunham)
+
+Source(s):
+1. [2017 Plano shooting - Background](https://en.wikipedia.org/wiki/2017_Plano_shooting#Background)
+>Spencer Hight and Meredith Lane met while students at the University of Texas at Dallas (UTD); Lane previously attended a tertiary institution in the State of Georgia before transferring to UTD.[1] The couple married in May 2011.[2][3] The house in which the shooting occurred had been purchased by the Hights in 2015. The couple had no children. After the shooting, Lane's mother stated that there was a violent episode where Hight had slammed her daughter's head against a wall, and that she had not reported it to the police.[3]
+>
+>Hight had lost his contracting job at Texas Instruments near when the house was purchased.[1]
+>
+>The couple stopped living together in March, and Meredith filed for divorce in July citing “discord or conflict of personalities".[2][4] Meredith Hight's mother claims that her daughter wanted the divorce since her husband was physically abusive and an alcoholic. She says her daughter had tried helping him for two years before filing the divorce.[5] Friends of Spencer Hight reported that before the shooting, he was unable to find work, had become isolated, and was drinking alcohol heavily.[6]
+
+2. [Texas Instruments' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Texas+Instruments+Department+of+Defense)
+
+3. [Meredith Emily Lane Hight - Find a Grave](https://www.findagrave.com/memorial/183321294/meredith-emily-hight)
+>Meredith was 2nd runner-up for Miss Teen of Georgia at age thirteen. At the age of fifteen, as high school sophomore, she was one of two students to represent the State of Georgia at the Presidential Classroom in Washington DC. Her most memorable meetings were with current Georgia Governor, Nathan Deal, and the late Supreme Court Justice Antonin Scalia. She graduated West Hall High School, Oakwood, Georgia, which was a proud moment for her parents. Her last two years of high school she was part of Georgia Academy of Math Engineering and Science (GAMES), where she attended Georgia Middle College on a dual enrollment program receiving high school and college credit. She graduated University of Texas, Dallas with a Bachelor's of Science in Mathematics.
+>
+>Meredith's career path started as a teenager with the joy of riding horses. During college she worked in the food service industry. Upon graduation from University of Texas, Dallas, Meredith went to work for the Coca-Cola Company in various customer facing positions with her last position as Merchandising Supervisor.\
+>[...]\
+>Meredith was preceded in death by her Granddaddy, L. Vann Dunham.
+
+4. [Leonard Vann Dunham - Find a Grave](https://www.findagrave.com/memorial/64376598/leonard-vann-dunham)
+>Vann was a World War II veteran of the Navy. He was active in work with Boy Scouts of America; a Life Member of the Bartlesville Masonic Lodge #284 in Bartlesville, Oklahoma; member of the Scottish Rite in Omaha, Nebraska; Hot Springs Village Shrine Club, Hot Springs Village, Arkansas; and a member of Village United Methodist Church in Hot Springs Village, Arkansas. Vann retired as an executive of the Oil & Gas Industry.
+
+------------------------------------
+
+[Rawalpindi shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Rawalpindi, India\
+September 12, 1893\
+9 killed
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Indian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Shell Lake murders](https://en.wikipedia.org/wiki/Shell_Lake_murders)\
+Shell Lake, Canada\
+August 15, 1967\
+9 killed
+
+Perpetrator(s):\
+**Victor Ernest Hoffman, 21**\
+Saskatchewan Provincial Government psychiatric associates (Saskatchewan Hospital at North Battleford)
+
+Source(s):
+1. [Shell Lake murders - Events](https://en.wikipedia.org/wiki/Shell_Lake_murders#Events)
+>Victor Hoffman was 21 years old at the time of the murders and had been released from a mental hospital just three weeks prior. On the morning of August 15, he entered the Petersons' farm armed with a .22-calibre Browning pump-action repeater rifle.[2] He then proceeded to shoot all but one of the present members of the Peterson family, seven of them children, at close range around the four-room house. According to police, 28 shots were fired in total, of which 27 found their target.
+
+2. [Schizophrenia, Mass Murder, and The Law - p. 131](http://orthomolecular.org/library/jom/1973/pdf/1973-v02n03-p127.pdf)
+>The next day arrangements were made to have Victor committed to the Saskatchewan Hospital at North Battleford. A Prince Albert psychiatrist at the Mental Health Clinic had found Victor to be a "schizoid ... in the state of acute schizophrenic reaction," who needed to be hospitalized. He had recently become more disturbed, stated the report, when driving the car up and down the road for no reason. Victor promised to sign himself in as a voluntary admission. He was admitted May 29, 1967.
+
+------------------------------------
+
+[Waddell Buddhist temple shooting](https://en.wikipedia.org/wiki/Waddell_Buddhist_temple_shooting)\
+Waddell, Arizona\
+August 9 - 10, 1991\
+9 killed
+
+Perpetrator(s):\
+**Johnathan Doody, 17 / Allessandro Garcia, 16**\
+United States Junior Reserve Officers' Training Corps (JROTC); United States Air Force (USAF) aspirant; United States Air Force (USAF) stepfather (Brian Doody)
+
+Source(s):
+1. [Johnathan Doody gets 9 consecutive life sentences in 1991 temple murders](https://www.azcentral.com/story/news/local/surprise/2014/03/14/arizona-doody-temple-murders/6417239/)
+>According to Garcia, he and Doody put on their high-school ROTC uniforms and boots, which they thought would disguise their footprints.
+
+2. [Doody’s parents stand by belief in his innocence](https://www.pressreader.com/usa/the-arizona-republic/20131018/281754152054567)
+>Johnathan was born in Thailand and was 7 when his mother met Brian Doody, a U.S. Air Force member. In 1989, the family moved to Luke Air Force Base. To Laiad Doody, 65, Johnathan is still her little boy, the same boy who wanted to follow in his father’s footsteps and join the Air Force, who attended Buddhist services with her and who joined the ROTC.
+
+------------------------------------
+
+[Wesson family murders](https://en.wikipedia.org/wiki/Marcus_Wesson#Murders)\
+Fresno, California\
+March 12, 2004\
+9 killed
+
+Perpetrator(s):\
+**Marcus Delon Wesson, 57**\
+United States Army (USA)
+
+Source(s):
+1. [Marcus Wesson - Early life and education](https://en.wikipedia.org/wiki/Marcus_Wesson#Early_life_and_education)
+>After dropping out of high school, Wesson joined the Army, serving from 1966 to 1968 as an ambulance driver.[7][8] Shortly after leaving the military, Wesson moved in with an older woman, Rosemary Solorio and her eight children in San Jose, California.[7] In 1971, Solorio gave birth to Wesson's son. In 1974, Wesson began sexually abusing Solorio's eight-year-old daughter, Elizabeth.[9] Wesson married Elizabeth Solorio when she turned 14 and he was 27.[8] Four months later, she gave birth to her first child. Eventually the couple had 10 children together, including one infant who died.[8][10]
+>
+>One of Elizabeth's younger sisters left her own seven children with them, claiming to be unable to care for them due to a drug problem. Wesson never held a steady job; he lived off welfare and had his working adult children give him all their earnings.[11][12] In 1989, Wesson was convicted of welfare fraud and perjury.[13][14][15] The family often lived in run-down shacks, boats, and vacant houses.[8]
+>
+>Wesson was abusive toward his wife and children. He prevented Elizabeth from participating in the children's upbringing. He homeschooled the children and taught them from his own handwritten Bible that focused on Jesus Christ being a vampire. He told the children that he was God and had them refer to him as "Master" or "Lord". He taught the children to be prepared for Armageddon and said that the girls were destined to become Wesson's future wives. Wesson's school "curriculum" involved teaching girls oral sex as young as 8 or 9.[8] Their domestic responsibilities included washing Wesson's dreads and scratching his armpits and head.[8] The girls were not allowed to talk to their male siblings or their mother.[9] Both male and female children were physically abused.[9] Wesson raped two daughters and three nieces, beginning at age eight.[10] Each of the five girls became pregnant as a result.
+
+------------------------------------
+
+[Goleta postal facility shootings](https://en.wikipedia.org/wiki/Goleta_postal_facility_shootings)\
+Goleta, California\
+January 30 - 31, 2006\
+9 killed (including 1 perpetrator + 1 previous murder)
+
+Perpetrator(s):\
+**Jennifer San Marco, 44**\
+California Department of Corrections (DOC); Santa Barbara Police Department (SBPD); United States Postal Service (USPS)
+
+Source(s):
+1. [Goleta postal facility shootings - Background](https://en.wikipedia.org/wiki/Goleta_postal_facility_shootings#Background)
+>Jennifer San Marco was born in Brooklyn, New York. She went to Edward R. Murrow High School, later attending Brooklyn College. She then studied natural resources management at Rutgers University in New Jersey but did not graduate. In 1989 she came to California, where after studying she was hired as a guard at medium-security Chuckawalla Valley State Prison in Blythe. She quit two days before her probationary period ended. She never gave a reason for quitting but was described as a good worker.
+>
+>She held down a number of jobs, including a dispatcher for the Santa Barbara Police Department in the mid-1990s, a job for which she underwent a background check and psychological evaluation. She left the job after several months.[5] San Marco worked at a high school serving lunch before quitting in 2000. She eventually bought a condominium and went to work for the postal service as a clerk. She left on psychological disability following a 2003 incident in which she was pulled out from under a mail-sorting machine and had to be wheeled from her workplace by police in handcuffs.[1] She did return briefly, but was again removed from the building due to her erratic behavior and never returned. She was held at a Ventura mental hospital for three days in February 2001.
+>
+>San Marco's car broke down in Grants, New Mexico in 2004 and she decided to stay and reside there until the shooting. In the small town of Grants, she earned a reputation for strange behavior, which included speaking (or sometimes furiously shouting) to herself, ordering food at restaurants and bolting out the door before eating it, stripping naked in public (often in random parking lots), kneeling and praying in random places (often roadsides), talking to an imaginary friend, screaming death threats, yelling profane rap lyrics and making racist comments. She began getting tattoos and showed them to neighbor Jeannie Steen. When Steen didn't react, San Marco walked around her in a circle and spat on the ground.
+>
+>In July 2004, San Marco was denied a business license to begin publishing a periodical known as The Racist Press.[6] San Marco also at one point said she wanted to register a cat food business and was rejected because she lived in an unincorporated area of Cibola County. While being interviewed there, she would often talk to herself. After the rejection, she would frequently come to the office and stare at an employee named Sonya Salazar and ask to see her. Salazar was often told to hide when San Marco came to the office. San Marco once made a rude accusation that Salazar had slept with someone; authorities were called. She also came into contact with authorities after she appeared naked at a gas station. She was clothed when the officers arrived and ultimately let her off with a warning. These run-ins with authorities were frequent and she was once admonished for driving half-naked. San Marco sold her condominium and told people she was going to visit a sister on the East Coast.
+>
+>In November, a mental health clinic manager named Darlene Hayes said she saw San Marco alone in a post office parking lot kneeling at her car and talking to herself. When asked what she was doing, she replied, "They pray before they get in." She was supposedly talking about her sister and brother (whom she apparently believed were there). Hayes called the police and left several minutes later. According to a police lieutenant, there was no record of Hayes's call.
+>
+>A man who delivered propane gas to her and described her as polite noted that she always paid her bills on time, though he had noticed her talking to an "imaginary friend."[7]
+
+2. [Goleta postal facility shootings -  Possible motives and preparation](https://en.wikipedia.org/wiki/Goleta_postal_facility_shootings#Possible_motives_and_preparation)
+>San Marco was apparently convinced that she was the target of a nefarious conspiracy centered at the Goleta postal facility, according to writings recovered from her home in New Mexico. A spokesman for the Santa Barbara County Sheriff's Office conjectured that San Marco's paranoia and history of mental illness may have motivated her to commit the murders.[8] Racism may have also been an influence in the massacre, as six of the victims were minorities (three were black, one was Chinese-American, one was Hispanic and one was Filipino). She may have also murdered Graham for personal reasons. Graham had been in several arguments with San Marco. According to Graham's boyfriend, San Marco would often go outside and start singing loudly. Graham also complained to her brother that San Marco would come out and "rant and rave" in front of her building.[9]
+>
+>Among San Marco's writings were error-laden explanations of various religions and a confusing theory linking the U.S. government to "Son of Sam" killer David Berkowitz, the Ku Klux Klan and racist murders.[10] A diary with over 100 pages was also found full of meticulously tracked perceived slights and offenses she received from people. An auto body worker once said San Marco claimed that the postal service mistreated her, but that she never said anything violent or talked about murder (only that they had to "pay", which may indicate revenge as another possible motive).
+>
+>San Marco purchased the murder weapon and ammunition from two different pawn shops (one in Grants, the other in Gallup). She was able to do this with no problem, and she passed background checks. She also got a buzz cut hairstyle, which left her barely recognizable (and may have helped her in gaining entry into the building to commit the shooting).[11]
+
+------------------------------------
+
+[Redkino shooting](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%9C%D0%B0%D1%81%D1%81%D0%BE%D0%B2%D0%BE%D0%B5_%D1%83%D0%B1%D0%B8%D0%B9%D1%81%D1%82%D0%B2%D0%BE_%D0%B2_%D0%A0%D0%B5%D0%B4%D0%BA%D0%B8%D0%BD%D0%BE?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)\
+Redkino, Russia\
+June 4, 2017\
+9 killed
+
+Perpetrator(s):\
+**Sergey Egorov, 45**\
+Russian Airborne Forces
+
+Source(s):
+1. [Mass murder in Redkino - Course of events (Translated from the Russian)](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%9C%D0%B0%D1%81%D1%81%D0%BE%D0%B2%D0%BE%D0%B5_%D1%83%D0%B1%D0%B8%D0%B9%D1%81%D1%82%D0%B2%D0%BE_%D0%B2_%D0%A0%D0%B5%D0%B4%D0%BA%D0%B8%D0%BD%D0%BE?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>On the night of June 3-4, 2017, around 24:00, Sergey Egorov, born on January 19 [2] , 1972, came to the house of the Saveliev family for a feast attended by 10 people. By this time Yegorov was already drunk. During the celebration, after about 25-30 minutes, those present started talking about serving in the army, then Yegorov began to talk about how he served in the Airborne Forces . When asked in which division he served, the defendant could not answer, after which ridicule rained down on him. The offended Yegorov got into his red jeep and drove off to his dacha, located in the same village.
+
+------------------------------------
+
+[Sochi bombings](https://en.wikipedia.org/wiki/Sochi_bombings)\
+Sochi, Russia\
+April 3, 2008 - February 20, 2009\
+8 killed, 46 wounded
+
+Perpetrator(s):\
+**Ilya Galkin / Mikhail Denisenko**\
+Sochi Police
+
+Source(s):
+1. [Sochi bombings - Perpetrators](https://en.wikipedia.org/wiki/Sochi_bombings#Perpetrators)
+>The organizer and inspirer of the explosions was Galkin. Galkin and Denisenko were neighbors and were friends since childhood. At school, they were bullied. Denisenko was very dependent on Galkin. They were prone to cruelty. They found instructions for making explosives on the Internet. Both were united by hatred of society.[1][4][5]
+>
+>Ilya Ilyich Galkin[7] was born in 1983. He had a mother Nadezhda Galkina, father Ilya Deshko and a brother-in-law on his father Alexander Deshko.[5][8] After school, he studied at a police school. After which he worked in the Sochi police. The first time Galkin made explosives in February 2008. At the time of his arrest, he was a lieutenant.[9] In one of the interviews, Galkin's father said that he was attacked by the homeless in his childhood, and was nearly strangled once.[5] In the winter of 2003, he beat and shot three times with a pneumatic pistol at a homeless man. The poor man survived but ceased to see. All this was during working hours and his partner saw it. Between April 12 and 17, 2007, he killed 5 homeless people and his brother and severely wounded one. For murders, he used a signal pistol redone for firing hunting cartridges. He killed his victims with a shot in the face. He searched for victims in the district of heating mains. Knife wounds were found on the bodies of the homeless. The bodies of the homeless were discovered on April 17. On the evening of April 17, he had a drink with his brother and accidentally talked about the killings of the homeless. After that, he decided to kill him. He hit him on the head with an ax and dismembered the body.[1][3][10][11][12]
+>
+>Mikhail Sergeyevich Denisenko[7] was born in 1984. He had a wife, Inna Denisenko. Previously, he divorced his other wife due to the fact that Galkin did not like her. He worked as an operator on the local television channel Efkate. He worked there for 7 years. He was fond of electronics and technology. He made electric detonators for bombs.[6][5][1]
+
+------------------------------------
+
+[Midland–Odessa shooting](https://en.wikipedia.org/wiki/Midland%E2%80%93Odessa_shooting)\
+Midland / Odessa, Texas\
+August 31, 2019\
+8 killed (including 1 perpetrator), 25 wounded
+
+Perpetrator(s):\
+**Seth Aaron Ator, 36**\
+United States Navy (USN) / Department of Energy (DOE) maternal great-uncle (Benny Elbert Warren - Consolidated Nuclear Security / Sandia National Laboratories / Pantex); Texas Department of State Health Services maternal great-uncle (Denver Ray Warren); United States Armed Force paternal great-grandfather (Wester Winnette Duke)
+
+Source(s):
+1. [Seth Aaron Ator - Geneanet](https://gw.geneanet.org/tdowling?lang=en&pz=timothy+michael&nz=dowling&p=seth+aaron&n=ator)\
+
+2. [Benny Elbert Warren - Find a Grave](https://www.findagrave.com/memorial/105452727/benny-elbert-warren)
+>Elbert Warren [...] joined the Merchant Marines at the outbreak of World War II. He served in many assignments, the most notable of which was sailing a three-mast sailing ship, The Joseph Conrad. He left the Merchant Marines and went into the Navy. After the war, he returned to Dodson and farmed for 10 years. In 1957, he moved to Borger and worked for Phillips Petroleum Co. He went to work at Pantex in 1963 as a security guard and retired as a lieutenant in 1986.
+
+3. [Denver Ray Warren - Find a Grave](https://www.findagrave.com/memorial/15055769/denver-ray-warren)
+>Mr. Warren practiced as a registered pharmacist for 55 years with 13 of those years as regional pharmacist for the state of Texas. He received a commendation from Gov. Ann Richards for his distinguished service for the state.
+
+4. [Wester Winnette Duke - Find a Grave](https://www.findagrave.com/memorial/96611399/wester-winnette-duke)
+>Wester Winnett Duke [...] was a member of the Methodist Church and a veteran of World War I.
+
+5. [Midland–Odessa shooting - Perpetrator](https://en.wikipedia.org/wiki/Midland%E2%80%93Odessa_shooting#Perpetrator)
+>[Ator] was arrested in Waco in 2001 for trespassing and evading arrest for trying to break into a woman's bedroom after threatening to kill her brother, which he pleaded guilty to in 2002.[20][21]
+>
+>Ator lived in West Odessa in Ector County in "a metal shack that lacked electricity, plumbing, a floor and even furniture"; he lived alone, except for a small dog.[22] A neighbor said that, well before his killing spree, he had yelled at her while carrying a large rifle. She also said he sometimes shot animals from his roof, which she had complained to police about, but they never responded to her complaint.[19] Another neighbor told the Associated Press that her family had lived near Ator for the past five months and were afraid of him due to his tendency to shoot rabbits in the nighttime and him banging on their door early one morning.[23]
+>
+>In January 2014, Ator failed a national criminal background check when he tried to purchase a gun; the system flagged him as ineligible because of a prior local court determination that he was mentally unfit.[24] According to law enforcement officials, Ator subsequently bought the gun used in the shooting via a private sale, without having to go through a background check.[25][26]
+
+------------------------------------
+
+[Strijdom Square massacre](https://en.wikipedia.org/wiki/Strijdom_Square_massacre)\
+Pretoria, South Africa\
+November 15, 1988\
+8 killed, 16 wounded
+
+Perpetrator(s):\
+**Barend Hendrik Strydom, 23**\
+South African Police
+
+Source(s):
+1. [Strijdom Square massacre - Perpetrator](https://en.wikipedia.org/wiki/Strijdom_Square_massacre#Perpetrator)
+>Barend Hendrik Strydom (born 15 July 1965) was born in Wenen, Natal, South Africa. He joined the South African Police, but was dismissed after photographing himself with a decapitated motorist at the scene of an automobile accident.[2]
+>
+>A week prior, on 8 November 1988, he had killed a woman and injured another person. After the attack, Strydom claimed he was the leader of the White Wolves (Afrikaans: Wit Wolwe), but this was later dismissed as a fictitious organization invented by Strydom. He also said that he had meditated and prayed a number of days before the attack and said that God had not given him any sign to not to carry out the attack. He was sentenced to death; However, in 1990, the government declared a moratorium on capital punishment. In 1992, he was released from prison by President F. W. de Klerk as one of 150 political prisoners. He was then granted amnesty in 1994 by the Truth and Reconciliation Commission on the grounds that his attack was politically motivated.[3]
+
+------------------------------------
+
+[Osaka school massacre](https://en.wikipedia.org/wiki/Osaka_school_massacre)\
+Ikeda, Japan\
+June 8, 2001\
+8 killed, 15 wounded
+
+Perpetrator(s):\
+**Mamoru Takuma, 37**\
+Japan Air Self-Defense Force (JASDF)
+
+Source(s):
+1. [Mamoru Takuma - Early life](https://en.wikipedia.org/wiki/Mamoru_Takuma#Early_life)
+>Mamoru Takuma was born on 23 November 1963 in Itami, Hyōgo Prefecture, Japan. As a child, he displayed unusual and anti-social behavior: at the age of three, he rode his tricycle towards the center of a highway, causing traffic jams, and habitually killed small animals by wrapping them in newspaper and lighting them on fire. From elementary school to junior high, Takuma was both a victim and a perpetrator of bullying. He expressed envy and jealousy for the "highly educated and high-income elite" from an early age. Takuma was both physically abused and neglected by his father, whom he contemplated stabbing to death in his sleep.
+>
+>In February 1979, Takuma enrolled in high school in Amagasaki, but dropped out in March 1981. He worked part-time at a gas station for several months until enlisting in the Japan Air Self Defense Force at the end of 1981, at age 18. However, Takuma was discharged in January 1983 for boarding and sleeping with a teenage runaway.[3] His relationship with his parents worsened following the discharge, and there were incidents in which his father beat him with stones.[4] Takuma in turn threatened to enlist the yakuza to "mess up" their lives.[5]
+>
+>In 1984, Takuma and his mother left the family home and purchased an apartment, leaving his oldest brother and father by themselves. They lived together for a year and a half, until his father came back for his wife.[6] In February 1999, Takuma's brother, facing bankruptcy, died by suicide in by slashing his neck with a knife. His father was hospitalized due to drunkenness after the incident, but according to Takuma in detention center, he said, "I wanted him to commit suicide like Tsutomu Miyazaki's father."[7] Takuma's mother had a lifelong struggle with mental illness, died at the end of 2016. His father died in April 2020, aged 88. The former Takuma residence in Itami was demolished in September 2020; the site is currently vacant.[8][circular reference]
+
+2. [Mamoru Takuma - Criminal history](https://en.wikipedia.org/wiki/Mamoru_Takuma#Criminal_history)
+>On 21 November 1984, Takuma raped a woman while collecting rent for a condominium management company. After the incident, believing the woman had filed a complaint to the police, he consulted a psychiatrist with his mother on 12 December and he complained about hearing hallucinations, "feeling that he's plunged into someone" and other complaints. The hospital initially diagnosed him with anxiety, but later stated it was schizophrenia in the medical certificate and in response to police inquiries.
+>
+>Takuma, who was placed in a closed ward, was dissatisfied with his care. On 4 January 1985, he jumped from the roof of the hospital's fifth floor in a suicide attempt, but instead fractured his mandible and maxilla. He later wrote to his mother that he was hospitalized to avoid being pursued by the police in a rape case and jumped off the fifth floor to "harass his parents".[9][circular reference] After being discharged from the hospital, Takuma decided to commit even more crimes for "revenge on the world." Later, the doctor in charge of Takuma's psychological examination stated that it may have strengthened his resentment towards society.[10][circular reference]
+>
+>In November 1986, Takuma was sentenced to three years in prison for the rape charge. While in prison, he jumped out of the hospital ward, explaining in a letter to his mother that he did it because she would not cooperate regarding his discharge. He demanded that his parents pay for his living expenses after release. His father refused, citing Takuma's lack of remorse, and told him that he would hand over the money he traded in for his personal belongings to disown him.[11][12][circular reference]
+>
+>After his release from prison in March 1989, Takuma moved to Ikeda and found work driving buses and trucks. His coworkers described him as a quiet and unremarkable man, but a bit of a loner who did not like dealing with customers.[6] Takuma testified in a later psychological examination that he caused two fatal car accidents, one when he was a dump truck driver and the other when he was a semi-trailer truck. In the first incident, while transporting industrial waste in the mountains, Takuma drove in front of another truck and suddenly pressed the brake pedal on a downward turn, causing a collision; all the passengers of the other truck died the next day. He lied about the cause of the crash and was not indicted on any charges. In the second incident, while driving near the Metropolitan Expressway, Takuma caused a motorist to fatally collide with a side wall. He immediately left the scene.[13][circular reference]
+>
+>In September 1993, Takuma was again arrested for rape. In 1998, he was fired after assaulting a bus passenger over the smell of her perfume. He found a new job as maintenance man at Itami Elementary School, six kilometers away from Ikeda. Later that year, Takuma was arrested on suspicion of assaulting his ex-wife. On 3 March 1999, Takuma dissolved temazepam, a tranquilizer, into the tea served in the teachers' room, sending four people to the hospital for three days. Regarding this incident he said, "I was ignored by the teachers and did not go well with my family, and I wanted to relieve my anger due to human relationships." Takuma was arrested, but was not criminally punished as was found "not responsible" due to mental illness.
+>
+>In November 1999, Takuma was arrested on suspicion of burglary, but the charges were dropped. He managed to get a job as a taxi driver in September 2000, but was fired the following month after he assaulted a hotel bellhop in Osaka, breaking his nose. In November 2000, Takuma got a job as a truck driver at a construction materials company in Ikeda, but was fired a few months later due to problems including a road rage incident. He was also kicked out of several apartments for, among other things, throwing his garbage out from the balcony. On 23 May 2001, Takuma voluntarily admitted himself into a psychiatric hospital for depression, but left the next day without treatment. He was also arrested for driving his car in reverse gear on the Hanshin Expressway but released after he was found mentally unfit.
+
+------------------------------------
+
+[Bratislava shooting](https://en.wikipedia.org/wiki/%C4%BDubom%C3%ADr_Harman)\
+Bratislava, Slovakia\
+August 30, 2010\
+8 killed, 15 wounded
+
+Perpetrator(s):\
+**Ľubomír Harman, 47**\
+Slovak Armed Forces
+
+Source(s):
+1. [Ľubomír Harman - Early life](https://en.wikipedia.org/wiki/%C4%BDubom%C3%ADr_Harman#Early_life)
+>Harman went through the compulsory military service in the early 1980s, but he was never a professional soldier and he had no criminal record.
+
+------------------------------------
+
+[Omashaka massacre](https://en.wikipedia.org/wiki/Omashaka_massacre)\
+Omashaka, South West Africa\
+March 27, 1981\
+8 killed (including 1 perpetrator), 12 wounded
+
+Perpetrator(s):\
+**Unnamed shooter, 18**\
+South West Africa Territorial Force (SWATF)
+
+Source(s):
+1. [Omashaka massacre - Wikipedia](https://en.wikipedia.org/wiki/Omashaka_massacre)
+>The Omashaka massacre was a mass murder that occurred in Omashaka, a village five miles north of Ondangwa in Ovamboland, South West Africa on March 27, 1981, when a black soldier killed eight people and wounded twelve others, two of them seriously, before being arrested. The 18-year-old soldier, a member of the 101 Battalion[.]
+
+------------------------------------
+
+[Athurugiriya shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Athurugiriya, Sri Lanka\
+March 2, 1988\
+8 killed, 9 wounded
+
+Perpetrator(s):\
+G. H. G. Ranjith**\
+Sri Lankan Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Sofia shooting](https://en.wikipedia.org/wiki/Sofia_shooting)\
+Sofia, Bulgaria\
+December 25, 1974\
+8 killed, 8 wounded
+
+Perpetrator(s):\
+**Branimir Donchev Delchev**\
+Bulgarian State Economic Trust (DSO) father (Doncho Donchev)
+
+Source(s):
+1. [Back in the years: 1974, Christmas, a student kills 6 students in Sofia (Translated from the Bulgarian)](https://www-dnes-bg.translate.goog/notifikacii/2018/01/08/nazad-v-godinite-1974-a-koleda-uchenik-ubiva-6-studenti-v-sofiia.364384?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>Branimir has a twin brother - Delyan, and an older sister. The twins are fraternal and do not resemble each other either externally or in character. Branimir is a full head taller than Delyan. Their father, Doncho Donchev, is the deputy general director of DSO "Stara planina", he travels a lot, including abroad, and has no time for his children.
+
+------------------------------------
+
+[Wedgwood Baptist Church shooting](https://en.wikipedia.org/wiki/Larry_Gene_Ashbrook)\
+Fort Worth, Texas\
+September 15, 1999\
+8 killed, 7 wounded
+
+Perpetrator(s):\
+**Larry Gene Ashbrook, 47**\
+United States Navy (USN)
+
+Source(s):
+1. [DEATHS IN A CHURCH: THE OVERVIEW; An Angry Mystery Man Who Brought Death](https://www.nytimes.com/1999/09/17/us/deaths-in-a-church-the-overview-an-angry-mystery-man-who-brought-death.html)
+>Records show that Mr. Ashbrook had a spotty education record and was in and out of the United States Navy. He enrolled in Tarrant County College in 1971, when he was 19, taking classes in remedial English, creative design, math, guitar and physical education. He served at least two stints in the Navy, the second from 1977 to 1983, said a spokesman for the Department of Veterans Affairs in Dallas. In the Navy, he was a sonar operator on a P-3 Orion plane that tracks and destroys enemy submarines.
+
+------------------------------------
+
+[Dagestan shooting](https://rg-ru.translate.goog/2012/08/30/aliev.html?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)\
+Dagestan, Russia\
+August 30, 2012\
+8 killed, 6 wounded
+
+Perpetrator(s):\
+**Ramzan Aliyev, 30**\
+Russian Federal Security Service (FSB) Border Service of Russia
+
+Source(s):
+1. [Sergeant in Dagestan shot seven colleagues (Translated from the Russian)](https://rg-ru.translate.goog/2012/08/30/aliev.html?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)
+>So far, the following is known. Contract service sergeant of the FSB Border Department Ramazan Aliyev stepped into the daily duty. As expected, he had an AK-74 assault rifle and two equipped magazines with 50 rounds of ammunition. Unexpectedly, Aliyev approached the checkpoint of the internal troops, located near the barracks, and opened fire. Two servicemen of the internal troops who were there died on the spot, two more were seriously injured.
+
+------------------------------------
+
+[Toulouse and Montauban shootings](https://en.wikipedia.org/wiki/Toulouse_and_Montauban_shootings)\
+Midi-Pyrénées, France\
+March 11 - 22, 2012\
+8 killed (including 1 perpetrator), 5 wounded
+
+Perpetrator(s):\
+**Mohammed Merah, 23**\
+Central Directorate of Interior Intelligence (DCRI); French Army applicant; French Foreign Legion applicant
+
+Source(s):
+1. [Was Islamist gunman Mohamed Merah an informant for French spies?](https://www.nbcnews.com/news/world/was-islamist-gunman-mohamed-merah-informant-french-spies-flna589334)
+>Mohamed Merah, the gunman who killed seven people including three Jewish children, may have been an informant for France's intelligence services, according to reports that raise further questions about whether authorities missed chances to prevent the attacks.\
+>[...]\
+>It later emerged Merah had traveled to Afghanistan and Israel in 2010 and had been interviewed in November 2011 by the domestic intelligence agency Direction Centrale du Renseignement Intérieur (DCRI).
+>
+>Bernard Squarcini, head of the agency, was quoted by French newspaper Le Monde as saying Merah asked for a local DCRI agent by name while he was holed-up in the apartment surrounded by police.
+>
+>Squarcini told Le Monde that Merah shocked the female agent by saying: "Anyway, I was going to call you to say I had some tip-offs for you, but actually I was going to [kill] you.”\
+>[...]\
+>Yves Bonnet, former head of an intelligence agency that was merged with DCRI in 2008, told Toulouse newspaper La Dépêche du Midi that it was significant that Merah appeared to have a regular contact at the DCRI. “Having a contact is not totally innocent,” he told the newspaper. “This is not trivial.”
+>
+>Italian newspaper Il Foglio said Merah’s trip to Israel and Afghanistan in September 2010 was made with the knowledge of the French foreign secret service, the Direction Générale de la Sécurité Extérieure. However, London's Independent newspaper quoted a spokesman for the agency as dismissing that report as "grotesque".
+>
+>Squarcini has since insisted Merah was not helping authorities, telling Liberation the gunman was not "an informer for the DCRI or any other French or foreign services."
+
+2. [A third man? An informant? New questions dog Toulouse shooting probe](https://www.france24.com/en/20120329-toulouse-shooting-third-man-informant-new-questions-merah-probe)
+>Merah’s record of petty crimes seems at odds with his attempts to join the French army in January 2008 and the French Foreign Legion in July 2010. He failed both times.
+>
+>The French army rejected his application following an inquiry into his criminal record. According to the French daily, Le Monde, Merah spent just one night at the French Foreign Legion recruitment centre before leaving of his own accord.
+
+------------------------------------
+
+[South Morava Brigade barracks shooting](https://en.wikipedia.org/wiki/Vranje_shooting)\
+Vranje, Yugoslavia\
+June 3, 1993\
+8 killed (including 1 perpetrator), 4 wounded
+
+Perpetrator(s):\
+**Jožef Meneder**\
+Yugoslav People's Army (JNA)
+
+Source(s):
+1. [Vranje shooting - Perpetrator](https://en.wikipedia.org/wiki/Vranje_shooting#Perpetrator)
+>Jožef Meneder (Serbian Cyrillic: Јожеф Менедер) was born in Subotica in 1974. According to his neighbors, he was very aggressive. Acquaintances described him as a dark and painful individual. He used to be a carpenter up until joining the army. His acquaintances said that he was a member of a death metal band, and members of this group held parties at the cemetery. He had an inverted cross tattoo. On his left forearm he had a tattoo with the date of shooting. He belonged to the Bad Faith cult, which had its origins in the Black Roses cult. Satanic symbols, including postcards about Bad Faith, were found in his room in his parents' house. A month before the shooting, a security report said he could do something undesirable.[1][2][3][4]
 
