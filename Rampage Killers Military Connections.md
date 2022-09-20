@@ -2352,15 +2352,24 @@ October 16, 1991\
 
 Perpetrator(s):\
 **George Pierre Hennard, 35**\
-United States Navy (USN); United States Merchant Marine (USMM); United States Army (USA) father
+United States Navy (USN); United States Merchant Marine (USMM); United States Army (USA) father (Georges Hennard)
 
 Source(s):
 1. [Luby's shooting - Perpetrator](https://en.wikipedia.org/wiki/Luby's_shooting#Perpetrator)
 >George Pierre Hennard was born on October 15, 1956, in Sayre, Pennsylvania, in a wealthy family.[11] Hennard was the son of a Swiss-born surgeon and a homemaker.[16] He had two younger siblings, brother Alan and sister Desiree.[17] Since the age of 5, Hennard and his family moved across the country as his father worked at several army hospitals.[11] Hennard's family later moved to New Mexico, where his father worked at the White Sands Missile Range near Las Cruces. After graduating from Mayfield High School in 1974, he enlisted in the U.S. Navy and served for three years, until he was honorably discharged.[18] Hennard later worked as a merchant mariner, but was dismissed for drug use.[6] Several months later, Hennard enrolled in a drug treatment program in Houston.[11]
 
-2. [Luby's shooting - Possible motive](https://en.wikipedia.org/wiki/Luby's_shooting#Possible_motive)
->Hennard was described as reclusive and belligerent, with an explosive temper. He was discharged from the Merchant Marine on May 11, 1989[7][10] for possession of marijuana and racial incidents. That same month, Hennard's seaman papers were suspended after he had a racial argument with another shipmate.[11] Numerous reports included accounts of Hennard's expressed hatred of women.[1][6][8] An ex-roommate of his said, "He hated blacks, Hispanics, and gays. He said women were snakes and always had derogatory remarks about them, especially after fights with his mother."[8] Survivors of the shootings later said Hennard had passed over men to shoot women. Fourteen of the twenty three people killed were women, as were many of the wounded. He called two of the victims a "bitch" before shooting them.[8]
+2. [Portrait of Texas Killer: Impatient and Troubled](https://www.nytimes.com/1991/10/18/us/portrait-of-texas-killer-impatient-and-troubled.html)
+>Two of the wounded, Lou Carabello, 42 years old, and Kriemhild Davis, 62, were listed in critical condition today at Darnall Army Community Hospital at Fort Hood. Mr. Hennard's father, a former Army colonel, was the hospital's commanding officer in 1978 and 1979, Army records show.\
+>[...]\
+>Mr. Hennard's father, Georges, was born in Switzerland, where he received his medical degree, and speaks French, German and Spanish as well as English, the Army said. His mother, Jeanne, once sold antiques. The Hennards and their four children moved a a dozen times from base to base by the time George J. was 18 years old.
 >
+>Born in Pennsylvania, Mr. Hennard graduated from Las Cruces High School in New Mexico in 1974 while his family was living on the White Sands Missile base there. Mr. Hennard had transferred to Las Cruces from Bangor Area High School in Five Points, Pa.
+>
+>The Hennards moved to Fort Hood later in 1974. In 1980, the family purchased a large red brick house with six white columns in front and a swimming pool in an expansive backyard in Belton, several miles of east of Killeen.
+
+3. [Luby's shooting - Possible motive](https://en.wikipedia.org/wiki/Luby's_shooting#Possible_motive)
+>Hennard was described as reclusive and belligerent, with an explosive temper. He was discharged from the Merchant Marine on May 11, 1989[7][10] for possession of marijuana and racial incidents. That same month, Hennard's seaman papers were suspended after he had a racial argument with another shipmate.[11]\
+>[...]\
 >In 1990, Hennard called Isaiah (Ike) R. Williams, a port agent for the national maritime union in Wilmington, California, stating that he needed a letter of recommendation in order to regain his papers and rejoin the Merchant Marine. "I don't recall having given him one," Williams claimed. Hennard had learned in mid-February that his attempt to be reinstated had been denied.[20] Several months later, Hennard entered a drug treatment program in Houston.[7][11]
 >
 >Around two months before the shooting, Hennard entered a convenience store in Belton to buy breakfast. Mead, the clerk of the store, claimed that Hennard had leaned over the counter and said, "I want you to tell everybody, if they don't quit messing around my house something awful is going to happen."[7]
