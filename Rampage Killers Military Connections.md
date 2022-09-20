@@ -6770,13 +6770,12 @@ Perpetrator(s):\
 Kirkwood Municipal Government employer (Kirkwood Housing Authority Board of Directors); Kirkwood City Council candidate; United States Central Intelligence Agency (CIA) associates (YMCA); Kirkwood City Council / Police associates
 
 Source(s):
-1. “He Couldn’t Be Consoled”
-https://www.timesnewspapers.com/southcountytimes/features/147-he-couldn-146-t-be-consoled-148/article_795211e3-3a74-58fc-a846-aa0c1f778a93.html
+1. [“He Couldn’t Be Consoled”](https://www.timesnewspapers.com/southcountytimes/features/147-he-couldn-146-t-be-consoled-148/article_795211e3-3a74-58fc-a846-aa0c1f778a93.html)
 >The man responsible for the Feb. 7 shootings in the Kirkwood Council Chambers campaigned for a seat on that very council back in 1994. He lost that election, but remained upbeat.
 >
 >“I was just getting my feet wet,” Thornton reminisced in March 1995, almost a year after his election defeat. “I didn’t run a hardcore campaign. I just wanted to let folks know there are qualified people from Meacham Park who are willing to participate in Kirkwood government.”\
 >[...]\
->Thornton was involved in Club 44, the Kirkwood Area Chamber of Commerce and Project 2000. He sat on the board of directors for the Kirkwood-Webster YMCA, the Kirkwood Historical Society, EduCare, the Kirkwood Housing Authority and was part of a city steering group looking into improvements to the southeast area of Kirkwood.
+>Thornton was involved in Club 44, the Kirkwood Area Chamber of Commerce and Project 2000. He sat on the board of directors for the Kirkwood-Webster YMCA, the Kirkwood Historical Society, EduCare, the Kirkwood Housing Authority and was part of a city steering group looking into improvements to the southeast area of Kirkwood.\
 >[...]\
 >Former City Council Member Paul Ward served from 2000-2004, and was privy to Thornton’s many contentious outbursts at city council meetings. “I tried to help him, but he couldn’t be consoled,” Ward said. “The police chief and others talked to him many times, but he couldn’t be consoled. He lost his perspective,” Ward said.
 
