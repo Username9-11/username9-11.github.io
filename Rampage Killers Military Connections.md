@@ -6476,3 +6476,337 @@ Yemeni Armed Forces
 Source(s):
 1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
 >This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Ille-et-Vilaine / Cotes-du-Nord shootings](https://en.wikipedia.org/wiki/Guy_Martel)\
+Ille-et-Vilaine / Cotes-du-Nord, France\
+June 19, 1985\
+7 killed, 5 wounded
+
+Perpetrator(s):\
+**Guy Martel**\
+French Armed Forces; French Garde Mobile father
+
+Source(s):
+1. [Guy Martel - Life](https://en.wikipedia.org/wiki/Guy_Martel#Life)
+>Guy Martel was born in Paris in 1944 during the Nazi occupation of France. His father Victor was a member of the garde mobile, and he had three sisters. Martel earned a degree in mathematics and chemistry, joined the military and was sent to Costa Rica, where he taught in San José. He rarely spoke about his time there, but related that he had seen horrible things and had to perform the duties of someone of higher rank who had been killed. In 1969 Martel had been taken hostage by guerrilleros for three weeks; he was flown back to France. upon his release. From then on Martel complained about being ill, saying he had caught a virus and suffered from intestinal and spinal pain.
+>
+>Martel accepted a position as a natural sciences teacher at Henri Matisse college in Issy-les-Moulineaux. However, in 1972, after less than two years, he was forced to quit due to a nervous disorder and was put on a long term disability leave. Afterwards he had briefly sent to mental institutions three times – once in Paris, and twice in Brittany – and was accorded a degree of disability of 80%. In 1975, Martel was granted a disability pension and moved in with his parents in Baguer-Morvan. When his mother died from a heart attack in 1976, his condition began to deteriorate and he saw hostility everywhere. Due to a growing discord between him and his father, Martel decided to live alone and bought a house in Dol-de-Bretagne in 1979.[1]
+>
+>In Dol-de-Bretagne, Martel rarely left his home except to lie in his garden or to play tennis at a local sports hall. He also ate lunch every day at a home for elderly people. Besides his father; his uncle Charles; and his physician, a Dr Launay, Martel had no visitors and consequently was known as "monsieur tout seul" (Mr. All Alone) throughout the village. Martel generally was quickly fatigued and complained a lot about noise, especially those made by children, whom he called loud and annoying. One day, when a child pressed Martel's doorbell and ran away, he came out angrily, shouting: "If you do that again, I will kill you!"[2]
+
+------------------------------------
+
+[Hyderabad shooting](https://en.wikipedia.org/wiki/Hyderabad_shooting)\
+Hyderabad, British Raj\
+June 24, 1878\
+7 killed (including 1 perpetrator), 4 wounded
+
+Perpetrator(s):\
+**Unnamed shooter**\
+British Indian Army
+
+Source(s):
+1. [Hyderabad shooting - Wikipedia](https://en.wikipedia.org/wiki/Hyderabad_shooting)
+>The Hyderabad shooting is one of the earliest documented cases of a mass shooting in world history. On 24 June 1878, a Baloch sepoy in the British Indian Army killed 6 people and injured 4 in Sindh, British Raj. The unnamed Sepoy man killed his mistress whom he had suspected of infidelity. Armed with a Martini-Henry and 100 rounds of ammunition, he went on a shooting spree in Hyderabad. He shot anyone in his proximity, eventually suffering a mortal gunshot wound caused by an officer armed with an Adams M1872 Mark III revolver.[1]
+
+------------------------------------
+
+[ESL shooting](https://en.wikipedia.org/wiki/Richard_Farley#Shooting_at_ESL)\
+Sunnyvale, California\
+February 16, 1988\
+7 killed, 4 wounded
+
+Perpetrator(s):\
+**Richard Wade Farley, 39**\
+United States Navy (USN); United States Department of Defense (DOD) contractor employer (ESL Inc.); United States Armed Forces father
+
+Source(s):
+1. [Richard Farley - Early life](https://en.wikipedia.org/wiki/Richard_Farley#Early_life)
+>Richard Farley was born July 25, 1948 in Texas. He was the oldest of six children. His father was in the military, therefore the family frequently relocated, and eventually settled in California. He graduated from high school in 1966 and attended Santa Rosa Junior College. Farley then joined the United States Navy in 1967 where he stayed for ten years. After his discharge in 1977, Farley began working as a software technician at ESL Inc., a defense contractor in Sunnyvale, California.[2]
+
+2. [ESL Incorporated - Wikipedia](https://en.wikipedia.org/wiki/ESL_Incorporated)
+>ESL Incorporated, or Electromagnetic Systems Laboratory, was a subsidiary of TRW, a high technology firm in the United States that was engaged in software design, systems analysis and hardware development for the strategic reconnaissance marketplace. Founded in January 1964 in Palo Alto, California, the company was initially entirely privately capitalized by its employees. One of the company founders and original chief executive was William J. Perry, who eventually became United States Secretary of Defense under President Bill Clinton. Another company founder was Joe Edwin Armstrong.[1] ESL was a leader in developing strategic signal processing systems and a prominent supplier of tactical reconnaissance and direction-finding systems to the U. S. military. These systems provided integrated real-time intelligence.
+>
+>Most of TRW—including ESL—was acquired by the Northrop Grumman Corporation in December 2002.
+>
+>ESL primarily supplied domestic intelligence agencies, NASA and the U.S. military, but had certain direct relations with the North Atlantic Treaty Organization (NATO) and also provided some services for a variety of state agencies. Principal historic areas of competence are: (a) reconnaissance systems; (b) data communications systems (including advanced sonar and laser light scattering); (c) phased array radar surveillance systems; (d) advanced data processing systems; and (e) environmental systems. The company employed a large technical staff, most of them holding advanced academic degrees.
+
+3. [Richard Farley - Stalking](https://en.wikipedia.org/wiki/Richard_Farley#Stalking)
+>In April 1984, 35-year-old Richard Farley met 22-year-old Laura Black, who also worked at ESL Inc. Farley described himself as immediately smitten and later said that he instantly "fell in love" with Black. Farley began leaving gifts, including letters and homemade baked goods, on Laura Black's desk and asked her out numerous times.[2] Black repeatedly refused the invitations and later said in an interview that she "...tried really to ignore him but to be cordial".[3] Despite her refusals, Farley persisted; he began calling her desk every few hours as well as showing up at Black's aerobics class. By providing false information to the ESL HR department through pretexting, Farley was able to obtain Black's home address and home phone number. Farley was also known to have befriended the custodial department in an attempt to copy keys to Black's desk so he could rifle through her files to gain an insight into her life. He was also known to have pried through confidential personnel files of Black through false pretenses.
+>
+>During this time, Farley was sending one or two letters to Black a week. Though there were periods of time during which the letters would cease, in total Farley sent about two hundred letters over a period of four years, with the final letter sent from his prison cell after his rampage at ESL. Black moved four times during those four years, but Farley was able to obtain her address every time. Farley doctored photos of him and Black being together and mailed them to her.[4]
+>
+>In fall of 1985, Black asked the Human Resources Department at ESL for help. ESL ordered Farley to attend psychological counseling sessions, and despite attending these sessions, his harassment of Black continued. By spring of 1986, Farley was threatening fellow ESL employees. Because of his poor performance, his employment with ESL was terminated in May 1986.[5][6] He had been working for ESL for nine years and spent several months stalking Black full-time, then found work at a rival company, Covalent Systems Corporation in Sunnyvale.[7]
+
+------------------------------------
+
+[Mattias Flink - Killing spree](https://en.wikipedia.org/wiki/Mattias_Flink)\
+Falun, Sweden\
+June 11, 1994\
+7 killed, 3 wounded
+
+Perpetrator(s):\
+**Mattias Flink, 23**\
+Swedish Army
+
+Source(s):
+1. [Mattias Flink - Wikipedia](https://en.wikipedia.org/wiki/Mattias_Flink)
+>Mattias Flink (born 8 March 1970) is a Swedish spree killer who killed seven people on June 11, 1994, in Falun, Sweden. At the time, he was a second lieutenant in the Swedish Army. He was released from prison on 11 June 2014, exactly twenty years after the murders.[3]
+
+2. [Mattias Flink - Early years](https://en.wikipedia.org/wiki/Mattias_Flink#Early_years)
+>Flink was born and raised in Falun, Sweden.[4] His mother was a housewife and his father and grandfather worked as gunsmiths with their own shop. At the age of seven Flink joined the Scout Movement. His parents divorced when he was nine years old and the divorce is described as having been calm and sensible. Flink chose to stay with his father in the family house while his mother moved to an apartment just a couple of hundred meters from the house. According to psychological evaluations his mother's departure left deep scars within Flink. It is said that Flink developed some kind of alienation towards women.
+>
+>Flink attended high school with a focus on Electric Mechanical studies. After his graduation Flink enlisted as a conscript with Dalarna Regiment. He committed himself to become an officer of the Swedish Army and was employed at Dalarna Regiment in 1993.[5]
+
+3. [Mattias Flink - Mental health](https://en.wikipedia.org/wiki/Mattias_Flink#Mental_health)
+>During the spring of 1994 Flink had severe problems with his mental health, resulting in aggression, severe jealousy, sleeping disorders and paranoia.[6] This led to a total mental breakdown. He was reported as having been "thrown out of a restaurant for bothering women".[7]
+
+4. [Mattias Flink - Killing spree](https://en.wikipedia.org/wiki/Mattias_Flink#Killing_spree)
+>On 11 June 1994, Second Lieutenant Mattias Flink consumed a large amount of alcohol, then he went home to change his clothes. Dressed in his field uniform he walked to his regiment. He equipped himself with his Ak 5 assault rifle and 150 rounds of ammunition, 5.56×45mm NATO caliber. Flink then set out for a park in downtown Falun where he shot 6 members of the Women's Auxiliary Services at random. Shortly thereafter, he shot two men, a cyclist and a security officer, at a nearby road crossing. Six of the victims died immediately, while another woman died in the hospital (see below). One victim survived the attack.
+
+------------------------------------
+
+[Oikos University shooting](https://en.wikipedia.org/wiki/Oikos_University_shooting)\
+Oakland, California\
+April 2, 2012\
+7 killed, 3 wounded
+
+Perpetrator(s):\
+**One L. Goh, 43**\
+United States Army (USA) brother (Su-Wan Ko)
+
+Source(s):
+[Oikos University shooting - Perpetrator](https://en.wikipedia.org/wiki/Oikos_University_shooting#Perpetrator)
+>Goh later moved from Virginia to the San Francisco Bay Area, where he took up residence in Castro Valley and Oakland.[18] His mother Oak-Chul Kim also lived in Oakland, while his brother Su-Wan Ko, a non-commissioned officer in the United States Army, and another brother Su-Kwon remained in Virginia.[18][19] On March 8, 2011, Su-Wan was killed in an automobile accident in Virginia while on assignment for the George C. Marshall Center.[19][20] Later that year, his mother returned to Seoul, South Korea, where she died as well.[18] While a student at Oikos University, Goh had disciplinary problems, and was asked to leave the school a few months prior to the shooting.[18]
+
+2. [Marshall center honors soldier killed in auto accident](https://www.stripes.com/theaters/europe/marshall-center-honors-soldier-killed-in-auto-accident-1.138046)
+>A memorial service was held Thursday for Sgt. Su Wan Ko, who died in a traffic accident in Virginia while on assignment from the George C. Marshall Center in Garmisch.
+>
+>Ko had worked as an administrative noncommissioned officer at the Marshall center since 2008. He was on a temporary assignment in-processing to attend Special Forces selection training when he was involved in the accident. He died March 8.
+>
+>At the ceremony, about 250 community members were joined by his father, Young Nam Ko, and a brother, One Goh Ko, both of who live in Oakland, according to Jason Tudor, a Marshall Center spokesman. He is also survived by his mother, Oak Chul Kim of Seoul, South Korea, and another brother, Su Kwon Ko, who lives in Centreville, Va.
+
+3. [SSGT Su Wan Ko - Find a Grave](https://www.findagrave.com/memorial/69415368/su-wan-ko)
+>Gravesite Details\
+>SSG US Army, Iraq
+
+------------------------------------
+
+[Kanwali barracks shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Kanwali, India\
+November 24, 1938\
+7 killed, 2 wounded
+
+Perpetrator(s):\
+**Dost Muhammad**
+British Indian Army (Sepoy)
+
+Sources:
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[California State University, Fullerton, massacre](https://en.wikipedia.org/wiki/California_State_University,_Fullerton,_massacre)\
+Fullerton, California\
+July 12, 1976\
+7 killed, 2 wounded
+
+Perpetrator(s):\
+**Edward Charles Allaway, 37**\
+United States Marine Corps (USMC)
+
+Source(s):
+1. [Psychiatrist: An Allaway Relapse Not Predictable](https://www.latimes.com/archives/la-xpm-2001-nov-30-me-9888-story.html)
+>An avid hunter and former Marine, Allaway shot nine people, killing seven.
+
+2. [California State University, Fullerton massacre - Perpetrator](https://en.wikipedia.org/wiki/California_State_University,_Fullerton_massacre#Perpetrator)
+>Allaway was found guilty of six counts of first degree murder and one count of second degree murder. A second phase of the trial determined that he was not sane. Five different mental health professionals diagnosed him with paranoid schizophrenia.[9] He presented a history of mental illness, as he had tried to commit suicide and had been hospitalized and treated with electroconvulsive therapy in the past. He was committed to the California state mental hospital system, beginning at Atascadero State Hospital. He was then transferred and held at Patton State Hospital in San Bernardino. In 2016, he was transferred to the less secure Napa State Hospital. The families of Allaway's victims protested his transfer.[4]
+>
+>He was found to have injured a co-worker at a Michigan plant. A short time before the shooting rampage, he had threatened his wife with a knife and raped her.[3] Allaway's apparent motive was that he had delusions that pornographers were forcing his wife to appear in movies. The couple had separated over Memorial Day Weekend 1976 after a blow-up. His wife had filed for divorce shortly before Allaway attacked co-workers at the university.
+>
+>The defense alleged that library staff members screened commercial pornographic movies before library opening hours and in break rooms, but Allaway's wife was not in them.
+
+------------------------------------
+
+[Lynwood Drake's shooting spree](https://en.wikipedia.org/wiki/Lynwood_Drake#Shooting_spree)\
+Morro Bay / Paso Robles / San Miguel, California\
+November 7 - 8, 1992\
+7 killed (including 1 perpetrator), 2 wounded
+
+Perpetrator(s):\
+**Lynwood Crumpler Drake III**\
+United States Central Intelligence Agency (CIA) employer (Hollywood); United States Navy (USN) maternal cousin (Fitzhugh Dudley Staples Jr.); United States Marine Corps (USMC) / Hollywood associate (George Roy Hill - The World According to Garp)
+
+Source(s):
+1. [Lynwood Drake - Life](https://en.wikipedia.org/wiki/Lynwood_Drake#Life)
+>Drake, who was known as "Crazy Jim" by locals, was said to have often related to others that someday he would kill his enemies and himself. The last time he did so was one day before the shootings, but as he was regarded a "nut" nobody took his threats seriously. According to investigators and acquaintances Drake was a man who felt wronged by almost everyone he met.
+>
+>Drake had worked as a bartender, caterer and construction worker, but had also attended acting classes in New York, and had a minor role in the film The World According to Garp,[2] though at the time of the shooting he was unemployed and lived off of disability and his girlfriend's welfare.
+>
+>In June 1991 he was arrested for assaulting a day-care worker after his daughter had suffered a cut in a fall. He was sentenced to one year's probation and ordered to complete a mental health program for aggressive people, though there is no indication that he ever did so.[3]
+
+2. [Fitzhugh Dudley Staples Jr. - Find a Grave](https://www.findagrave.com/memorial/137282630/fitzhugh-dudley-staples)
+>Mr. Staples was honored to serve in the U.S Navy for almost 30 years, including tours as Supply Officer, USS Wood County and as commanding officer of 4 Naval Reserve units. He retired from the Navy with the rank of Captain and acknowledged that he could not have had the success he did in the Navy without the help and cooperation of the many people with whom he was fortunate to serve. Mr. Staples was employed by and became a partner in the law firm of Venable, Baetjer & Howard (now named Venable LLP). Later, he was employed as general counsel of three different companies, two of which were public companies. Mr. Staples was one of the original founders of Health Care for the Homeless, Inc., a Maryland-based non-profit organization headquartered in Baltimore, and served as its second president for 2 ½ years, during which time the organization strengthened its community and government support, and acquired a new headquarters building. Mr. Staples was active in the alumni activities of Williams College and served for several years as head of the Maryland chapter of the alumni association.
+
+3. [The World According to Garp (film) - Wikipedia](https://en.wikipedia.org/wiki/The_World_According_to_Garp_(film))
+>The World According to Garp is a 1982 American comedy-drama film produced and directed by George Roy Hill and starring Robin Williams in the title role. Written by Steve Tesich, it is based on the 1978 novel The World According to Garp by John Irving. For their roles, John Lithgow and Glenn Close were respectively nominated for Best Actor in a Supporting Role and Best Actress in a Supporting Role at the 55th Academy Awards.
+
+4. [George Roy Hill - Military service](https://en.wikipedia.org/wiki/George_Roy_Hill#Military_service)
+>During World War II, Hill served in the United States Marine Corps as a transport pilot with VMR-152 in the South Pacific.[4] The outbreak of the Korean War resulted in his recall to active duty service for 18 months as a night fighter pilot, attaining the rank of major.[4] After the war, he was stationed at the Marine Corps Air Station Cherry Point jet flight-training center in North Carolina.[3]
+
+5. [Killer's pose](https://news.google.com/newspapers?id=5rxSAAAAIBAJ&sjid=tX0DAAAAIBAJ&pg=5328%2C2672908)
+
+------------------------------------
+
+[Armavir shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Armavir, Armenia\
+February 11, 1998\
+6 killed, 2 wounded
+
+Perpetrator(s):\
+**Mkrtich Ohanyan, 22**\
+Armenian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Capitol Hill massacre](https://en.wikipedia.org/wiki/Capitol_Hill_massacre)\
+Seattle, Washington\
+March 25, 2006\
+7 killed (including 1 perpetrator), 2 wounded
+
+Perpetrator(s):\
+**Kyle Aaron Huff, 28**\
+United States Armed Forces father (Willis S. Hough)
+
+Source(s):
+1. [Capitol Hill Mass Murder Case](http://triggered.stanford.clockss.org/ServeContent?rft_id=info:doi/10.1093/brief-treatment/mhm005)
+>Kyle's [...] father, Willis S. Hough, served in the military and was assigned to Vietnam. It is believed that he may have suffered from posttraumatic stress disorder (PTSD) upon his return home. We do not know if he suffered depressive symptoms or how emotionally available he was to the twins. But Huff's parents divorced when the twins were entering their teen years, and his father later moved to Thailand.
+
+------------------------------------
+
+[Minneapolis Accent Signage Systems shooting](https://en.wikipedia.org/wiki/Minneapolis_firm_shooting)\
+Minneapolis, Minnesota\
+September 27, 2012\
+7 killed (including 1 perpetrator), 2 wounded
+
+Perpetrator(s):\
+**Andrew John Engeldinger, 36**\
+United States Department of Defense (DOD) contractor employer (Accent Signage Systems); United States Navy Reserve (USNR) paternal grandfather (Nicholas Francis Engeldinger); Israel Defense Forces (IDF) associate / employer (Reuven Rahamim - Accent Signage Systems)
+
+Source(s):
+1. [Minneapolis firm shooting - Perpetrator](https://en.wikipedia.org/wiki/Minneapolis_firm_shooting#Perpetrator)
+>Andrew John Engeldinger [...] was formerly employed by Accent Signage Systems, but recently fired from the business.[1][10]
+
+2. [Accent Signage Systems - Badges](https://www.accentsignage.com/badges/)
+>We make high quality, customized name badges. Contact Us today to see how we can make your customized badge vision a reality!\
+>[...]\
+>Our Badge Offerings Include:\
+>Hot-Stamped Badges\
+>Engraved Badges\
+>Digitally Printed Badges\
+>Custom-Shaped Badges\
+>Pocket Badges\
+>Military Badges
+
+3. [Nicholas Francis Engeldinger - Find a Grave](https://www.findagrave.com/memorial/624542/nicholas-francis-engeldinger)
+>MILITARY\
+>SM1C, US NAVY
+
+4. [Two Israeli-born Men Among Five Killed in Fatal Minnesota Shooting](https://www.haaretz.com/jewish/2012-09-28/ty-article/israeli-born-men-killed-in-u-s-shooting/0000017f-efa7-d0f7-a9ff-efe763c00000)
+>A man burst into a U.S. business, fatally shooting the Israeli-born owner and three others before shooting himself, family and officials said Friday.\
+>[...]\
+>The owner of Accent Signage, Reuven Rahamim, 61, was shot to death in "a senseless act of violence," son-in-law Chad Blumenfield said in a statement.
+>
+>Authorities have not revealed the names of the others who died.
+>
+>Rahamim was born and raised in Israel and served as a soldier in the Israeli army before coming to the U.S., Blumenfield said.
+
+------------------------------------
+
+[Pobedino shooting](https://en.wikipedia.org/wiki/Oleg_Naumov)\
+Pobedino, Russia\
+January 26, 1998\
+7 killed, 1 wounded
+
+Perpetrator(s):\
+**Oleg Naumov, 20**\
+Russian Army
+
+Source(s):
+1. [Oleg Naumov - Background](https://en.wikipedia.org/wiki/Oleg_Naumov#Background)
+Oleg Naumov was born in 1978, and was serving as a private in the Russian Ground Forces, having been conscripted into the military a year before the attack. He was stationed at a military base located in Pobedino, a village on the island of Sakhalin in the Russian Far East region. Naumov had a criminal record and a history of drug abuse from as early as 13-years-old, which was unknown to his commanders at the time.[1]
+
+------------------------------------
+
+[Crandon shooting](https://en.wikipedia.org/wiki/Crandon_shooting)\
+Crandon, Wisconsin\
+October 7, 2007\
+7 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Tyler James Peterson, 20**\
+Forest County Sheriff's Department; Crandon Police Department
+
+Source(s):
+1. [Crandon shooting - Wikipedia](https://en.wikipedia.org/wiki/Crandon_shooting)
+>The perpetrator, 20-year-old Tyler James Peterson (March 6, 1987 – October 7, 2007), who was a full-time deputy in the Forest County Sheriff's Department and a part-time officer with the Crandon Police Department, shot and killed six people and critically injured a seventh before committing suicide.[4]
+
+------------------------------------
+
+[Kirkwood City Council shooting](https://en.wikipedia.org/wiki/Kirkwood_City_Council_shooting)\
+Kirkwood, Missouri\
+February 7, 2008\
+7 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Charles Lee "Cookie" Thornton**\
+Kirkwood Municipal Government employer (Kirkwood Housing Authority Board of Directors); Kirkwood City Council candidate; United States Central Intelligence Agency (CIA) associates (YMCA); Kirkwood City Council / Police associates
+
+Source(s):
+1. “He Couldn’t Be Consoled”
+https://www.timesnewspapers.com/southcountytimes/features/147-he-couldn-146-t-be-consoled-148/article_795211e3-3a74-58fc-a846-aa0c1f778a93.html
+>The man responsible for the Feb. 7 shootings in the Kirkwood Council Chambers campaigned for a seat on that very council back in 1994. He lost that election, but remained upbeat.
+>
+>“I was just getting my feet wet,” Thornton reminisced in March 1995, almost a year after his election defeat. “I didn’t run a hardcore campaign. I just wanted to let folks know there are qualified people from Meacham Park who are willing to participate in Kirkwood government.”\
+>[...]\
+>Thornton was involved in Club 44, the Kirkwood Area Chamber of Commerce and Project 2000. He sat on the board of directors for the Kirkwood-Webster YMCA, the Kirkwood Historical Society, EduCare, the Kirkwood Housing Authority and was part of a city steering group looking into improvements to the southeast area of Kirkwood.
+>[...]\
+>Former City Council Member Paul Ward served from 2000-2004, and was privy to Thornton’s many contentious outbursts at city council meetings. “I tried to help him, but he couldn’t be consoled,” Ward said. “The police chief and others talked to him many times, but he couldn’t be consoled. He lost his perspective,” Ward said.
+
+[United States Youth Council - Wikipedia](https://en.wikipedia.org/wiki/United_States_Youth_Council)
+>The United States Youth Council (USYC) was a nonprofit coalition of organizations which served youth and young adults in the United States. It was founded in 1945 by the National Social Welfare Assembly as that organization's youth division, but became independent in the early 1960s. In 1967, The New York Times revealed that the USYC had received more than 90 percent of its funds from the Central Intelligence Agency, leading many of the organization's largest members to quit. USYC continued to receive funding from the United States government before disbanding in 1986.
+
+[United States Youth Council - Founding](https://en.wikipedia.org/wiki/United_States_Youth_Council#Founding)
+>The USYC was founded in 1945 by the National Social Welfare Assembly, a coalition of social service agencies. Originally named the "Young Adult Council of the NSWA" (YAC), the organization had 16 members, including American Youth Hostels, Camp Fire Girls, 4-H, American Unitarian Youth, National Catholic Welfare Conference, National Students Assembly, YMCA and YWCA.[1]
+>
+>YAC's structure was staff-driven. It was led by an executive director who was a full-time staff members of NSWA, and most of its funding came from the NSWA as well. International travel was often funded by outside sources, such as the Rockefeller Foundation. YAC nevertheless maintained a chairman who, under the organization's bylaws, was required to be under the age of 30. The organization also maintained council of representatives from each participating member. As late as 1967, 60 percent of WAY's budget was financed by contributions from the foundation.[1]
+
+[United States Youth Council - History](https://en.wikipedia.org/wiki/United_States_Youth_Council#History)
+>In 1948, the World Assembly of Youth (WAY) was formed as a non-communist alternative to the World Federation of Democratic Youth.[2] WAY's inaugural convention was in August 1948. Prior to the meeting, the Young Adult Council ejected most of its members with ties to political parties or trade unions. The YAC played a significant role in drafting the WAY constitution and electing its first leaders, and became the U.S. affiliate of WAY.[1]
+>
+>WAY struggled financially in its early years. YAC provided most of WAY's funding through a grant from the Foundation for Youth and Student Affairs, a front organization established and funded by the U.S. Central Intelligence Agency (CIA). YAC provided $301,000 to WAY from the foundation. Although WAY was troubled by its dependence on the Americans (and one American donor), the organization had no choice but to accept the money. YAC's executive director, Bernice Bridges, knew that the source of the funds was the U.S. government. But this fact did not appear to concern her or her superiors in NSWA.[1]
+>
+>In 1963, YAC changed its name to the United States Youth Council.[1]
+>
+>USYC, too, continued its reliance on CIA money. At the height of its strength in the middle to late 1960s, the U.S. Youth Council had 37 member organizations, including the College Democrats of America, Collegiate Council for the United Nations, National Federation of Catholic Youth, National Student Association, Students for a Democratic Society, YMCA, Young Christian Workers, Young Democrats of America, Young Republicans, and the Youth Division of the NAACP.[3] At various times, it worked closely with the International Ladies' Garment Workers' Union, the Leadership Conference on Civil Rights and the A. Philip Randolph Institute.
+>
+>In 1967, The New York Times revealed that the CIA had supplied 90 percent of the organization's funds, and was surreptitiously controlling its agenda.[3][4] Presidents and vice-presidents of USYC were aware of the source of the funds: They were given a top-secret security clearance by the CIA and required to sign a 20-year confidentiality agreement to keep the intelligence agency's involvement a secret.[1] The revelations caused a number of the U.S. Youth Council's largest members to withdraw.[5]
+>
+>USYC's council conducted an investigation which was largely inconclusive. The study found that some officers had clearly signed secrecy agreements, but the council was unable to prove that all presidents and vice-presidents had done so. The National Student Association and the University Christian Movement claimed the study was a whitewash, and withdrew from the USYC. In response, the USYC resolved not to accept any more funding from the Foundation for Youth and Student Affairs.[1]
+>
+>The loss of government financing nearly bankrupted the USYC. In December 1967, the United States Department of State stepped in to provide funding to keep the organization afloat. In time, financing was shifted to the United States Information Agency (USIA), which continued to fund its work openly.[6]
+>
+>The ongoing revelations of CIA funding led USYC and NSWA to sever their relationship in 1969.[1]
+>
+>USYC withdrew from WAY in 1976 after several years of tension over policies, programs, funding and anti-American feeling by delegates from under-developed countries. USYC became increasingly conservative and isolated within the American and international youth movement for the remainder of the 1970s and through the 1980s. In some respects, this enabled the organization to continue to receive funding from the Reagan administration.[1]
+>
+>In 1981, the United Nations announced that 1985 would be an International Youth Year (IYY). USYC attempted to take the lead in planning for U.S. participation in the IYY. Competition with a rival body, the U.S. Committee on International Youth Year, led to a congressional investigation. In 1985, Congress passed the Zorinsky amendment (U.S.C. 1461-1a), which barred programs funded by the USIA from operating domestically or conducting propaganda campaigns against domestic audiences. The law also required the IYY committees to be representative and open to all youth organizations. USYC refused to open the executive positions on its IYY committee to other groups, and American participation in the IYY collapsed.[1][6]
+>
+>USIA withdrew its funding for the USYC in 1986, and the organization folded.[1]
