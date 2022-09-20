@@ -529,7 +529,7 @@ Colombo, Sri Lanka\
 April 21, 2019\
 277 killed (including 8 perpetrators), 500+ wounded
 
-Perpetrator(s):
+Perpetrator(s):\
 **Zahran Hashim**\
 Saudi Arabian General Intelligence Directorate (GID) associate (Mohamed Aliyar)
 
