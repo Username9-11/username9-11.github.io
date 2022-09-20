@@ -5824,3 +5824,655 @@ Source(s):
 1. [Vranje shooting - Perpetrator](https://en.wikipedia.org/wiki/Vranje_shooting#Perpetrator)
 >Jožef Meneder (Serbian Cyrillic: Јожеф Менедер) was born in Subotica in 1974. According to his neighbors, he was very aggressive. Acquaintances described him as a dark and painful individual. He used to be a carpenter up until joining the army. His acquaintances said that he was a member of a death metal band, and members of this group held parties at the cemetery. He had an inverted cross tattoo. On his left forearm he had a tattoo with the date of shooting. He belonged to the Bad Faith cult, which had its origins in the Black Roses cult. Satanic symbols, including postcards about Bad Faith, were found in his room in his parents' house. A month before the shooting, a security report said he could do something undesirable.[1][2][3][4]
 
+------------------------------------
+
+[Tempe Army base shooting](https://murderpedia.org/male.M/m/madubela-sibusiso.htm)\
+Bloemfontein, South Africa\
+September 16, 1999\
+8 killed, 4 wounded
+
+Perpetrator(s):\
+**Sibusiso Madubela, 28**\
+South African Army
+
+Source(s):
+1. [Sibusiso MADUBELA - Murderpedia](https://murderpedia.org/male.M/m/madubela-sibusiso.htm)
+>A black army officer in South Africa army base went on a shooting spree killing six white soldiers and a female South African National Defence Force employee. Lt. Sibusiso Madubela, 28, of the 1st South African Infantry Battalion, moved from building to building at the Tempe military base in Bloemfontein randomly shooting at white soldiers with an R4 semiautomatic rifle.
+
+------------------------------------
+
+[Living Church of God shooting](https://en.wikipedia.org/wiki/Terry_Ratzmann#Shooting)\
+Brookfield, Wisconsin\
+March 12, 2005\
+8 killed (including 1 perpetrator), 4 wounded
+
+Perpetrator(s):\
+**Terry Ratzmann, 44**\
+United States Coast Guard (USCG); United States Department of Defense (DOD) contractor employer (General Electric); United States Department of Defense (DOD) contractor father (name unknown - Allis-Chalmers)
+
+Source(s):
+1. [Ratzmann served in Coast Guard, had distant father](https://www.gmtoday.com/business/ratzmann-served-in-coast-guard-had-distant-father/article_ccc91956-b86f-57ce-ae18-110963513bee.html)
+>Terry Ratzmann is shown in this undated family photo. WAUKESHA - Terry Ratzmann was ambitious growing up. In his teens and early 20s, he would build things just for the sake of being challenged. A sailboat, a greenhouse, a voice amplifier - whatever snared his curiosity. In those years, he also served his country, in the U.S. Coast Guard. That's how his best friend growing up, Mike Ruzicka, now of Belleville, Mich., remembered Ratzmann. Ruzicka talked Tuesday about a different Ratzmann than the man who rampaged through a church service Saturday at the Sheraton Hotel in Brookfield, shooting 11 fellow members and killing seven, along with himself. He said Ratzmann served four years in the U.S. Coast Guard, and that he had no interest in guns before joining the military. Ruzicka discussed Ratzmann's family life, including a father who was distant from his kids. Despite some unusual tendencies, Ratzmann never showed signs of depression back then, he said. The two men started drifting apart when Ruzicka went to college and Ratzmann joined the military. They stopped regularly communicating after that when Ruzicka moved to Janesville and then Michigan. "I was in complete shock," Ruzicka, 44, said of Ratzmann's actions. "It was really confusing and foreign to me." [...] Though the Ratzmann household was usually their hangout spot of choice, Ruzicka didn't remember much about Ratzmann's father. His dad was "distant" from his two sons and two daughters, he said. The rest of the family, he said, had a close bond. Ratzmann, at 44, was still living with his mother and one sister before the shootings. "I don't know if it's because he worked a lot or what," Ruzicka said of the elder Ratzmann's job at Allis-Chalmers. Ratzmann's mother and father divorced at some point in the four years following high school, Ruzicka said. During that time, while in the Coast Guard, Ratzmann was an electronic technician. That eventually became a career, as he had been a contracted electronic technician for GE Healthcare before Saturday. U.S. Coast Guard spokeswoman Julie Shifflet confirmed Ratzmann served from 1978 to 1982 and was honorably discharged.
+
+2. [General Electric's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=General+Electric+Department+of+Defense)
+
+3. [Allis-Chalmers' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Allis-Chalmers+Department+of+Defense)
+
+------------------------------------
+
+[2005 Korean Demilitarized Zone shooting](https://ko-m-wikipedia-org.translate.goog/wiki/%EC%97%B0%EC%B2%9C_530GP_%EC%82%AC%EA%B1%B4?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)\
+Yeoncheon, South Korea\
+June 19, 2005\
+8 killed, 4 wounded
+
+Perpetrator(s):\
+**Kim Dong-min, 20**\
+South Korean Army
+
+Source(s):
+1. [Yeoncheon 530GP Incident](https://ko-m-wikipedia-org.translate.goog/wiki/%EC%97%B0%EC%B2%9C_530GP_%EC%82%AC%EA%B1%B4?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>The Yeoncheon 530GP Incident was a shooting incident that occurred on June 19, 2005 at a GP belonging to the 28th Division of the Army in the DMZ in Samgot - ri, Jung- myeon , Yeoncheon -gun, Gyeonggi-do , Republic of Korea. Eight people died, two were injured, and two survived. [1] On May 7, 2008, the death sentence for Private Kim Dong-min, who was accused of mass shooting, was confirmed. [2]
+
+------------------------------------
+
+[Carthage nursing home shooting](https://en.wikipedia.org/wiki/Carthage_nursing_home_shooting)\
+Carthage, North Carolina\
+March 29, 2009\
+8 killed, 3 wounded (including 1 perpetrator)
+
+Perpetrator(s):\
+**Robert Kenneth Wayne Stewart, 45**\
+United States National Guard (USNG)
+
+Source(s):
+1. [Robert Kenneth Stewart - Murderpedia](https://murderpedia.org/male.S/s/stewart-robert-kenneth.htm)
+>Robert Kenneth Wayne Stewart [...] served six years in the National Guard and never rose above the rank of private before receiving an honorable discharge.\
+>[...]\
+>The cornerstone of Stewart's defense was based on the burgeoning scientific and legal evidence surrounding side effects of the popular sleep aid Ambien.
+>
+>Stewart had been taking the drug for two years, and defense experts testified he took a high dose of it the night before the shootings.
+>
+>Megerian and Franklin Wells, both public defenders, employed a rarely used defense called "automatism" to argue that Stewart was not in control of his actions when he committed the shootings.
+>
+>A Raleigh forensic psychiatrist hired by the defense testified that Stewart was "sleepwalking" during the shootings because he was suffering the side effects of Ambien.
+>
+>Ambien has been reported to cause strange behavior in a small number of users - from sleep-driving to sleep-eating.
+>
+>A toxicologist testified about a case of a candy store owner who got out of bed, drove to his shop, unlocked the door and was found inside gorging on candy - all while asleep.
+
+------------------------------------
+
+[Kihihi trading centre](https://amok.fandom.com/wiki/Moses_Katwesigye)\
+Kiruruma, Uganda\
+April 21, 2016\
+8 killed, 3 wounded
+
+Perpetrator(s):\
+**Moses Katoko Katwesigye**\
+Uganda People's Defence Force
+
+Source(s):
+1. [Moses Katwesigye - Amok Wiki](https://amok.fandom.com/wiki/Moses_Katwesigye)
+>Moses Katoko Katwesigye was an Ugandan soldier who killed eight people and wounded three others at Kihihi trading centre in Kiruruma village, Nyakatunguru parish in Kanungu district Uganda on April 21, 2016. [1][2][3][4][5][6]
+
+------------------------------------
+
+[Kyakhta shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Kyakhta, Russia\
+March 26, 1992\
+8 killed, 2 wounded
+
+Perpetrator(s):\
+**Unnamed shooter, 20**\
+Russian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Surxondaryo shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Surxondaryo, Uzbekistan\
+February 22, 1998\
+8 killed, 2 wounded
+
+Perpetrator(s):\
+**Anvar Madaminov**\
+Uzbek Army
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[2011 Grand Rapids shootings](https://en.wikipedia.org/wiki/2011_Grand_Rapids_shootings)\
+Grand Rapids, Michigan\
+July 7, 2011\
+8 killed (including 1 perpetrator), 2 wounded
+
+Perpetrator(s):\
+**Rodrick Shonte Dantzler, 34**\
+United States Army (USA) grandfather-in-law (John G. "Sonny" Heeren)
+
+Source(s):
+1. [2011 Grand Rapids shootings - Victims](https://en.wikipedia.org/wiki/2011_Grand_Rapids_shootings#Victims)
+>Dantzler killed seven people in two homes. At the home on Plainfield Avenue, he killed 27-year-old Amanda Emkens along with her 10-year-old daughter Marisa Emkens and her 23-year-old sister Kimberlee Emkens.[7][16] Kimberlee Emkens was a former girlfriend of Dantzler, although the two had not been in recent contact.[17] At the home on Brynell Court, the suspect killed 29-year-old Jennifer Heeren and her parents Thomas Heeren, 51, and Rebecca Heeren, 52.[7][16] Dantzler also killed his own 12-year-old daughter, Kamrie, with Jennifer Heeran.[18] Jennifer Heeren was the estranged wife of Dantzler and both had Kamrie Heeren-Dantzler as a daughter; the suspect's relationship with Heeren was abusive.[19]
+
+2. [John G. "Sonny" Heeren - Obituary](https://obits.mlive.com/us/obituaries/grandrapids/name/john-heeren-obituary?id=8947814)
+>Mr. John G. "Sonny" Heeren, aged 80, of Grand Rapids, passed away on Monday morning, November 23, 2009 at Spectrum Health - Butterworth Hospital. He is survived by [...] Thomas (Rebecca) Heeren [...] Jennifer (Sean) Heeren [...] Kamrie and Téa Heeren [...] He proudly served his country in the US Army during the Korean War.
+
+------------------------------------
+
+[Gorny shooting](https://en.wikipedia.org/wiki/Gorny_shooting)\
+Gorny, Russia\
+October 25, 2019\
+8 killed, 2 wounded
+
+Perpetrator(s):\
+**Ramil Shamsutdinov, 20**\
+Russian Armed Forces; Russian Armed Forces father (name unknown)
+
+Source(s):
+1. [Gorny shooting - Investigation](https://en.wikipedia.org/wiki/Gorny_shooting#Investigation)
+>The sole suspect was Pvt. Ramil Salengalovich Shamsutdinov (born 1999), a resident of the Vagay village, Tyumen Oblast, and son of a retired military commander. The Chita military court arrested Ramil Shamsutdinov.[8][9]
+
+------------------------------------
+
+[Iecava massacre](https://murderpedia.org/male.C/c/chubarov-yuri.htm)\
+Iecava, Latvia\
+September 20, 1997\
+8 killed, 1 wounded
+
+Perpetrator(s):\
+**Yuri Chubarov, 47**\
+Soviet Armed Forces
+
+Source(s):
+1. [Yuri CHUBAROV - Murderpedia](https://murderpedia.org/male.C/c/chubarov-yuri.htm)
+>Yuri Chubarov, a farmer and retired Russian soldier, arrived in this small town more than 20 years ago, bought a ruined house, fixed it up and lived quietly in a place where keeping to one's self is a virtue.
+
+------------------------------------
+
+[2011 Copley Township shooting](https://en.wikipedia.org/wiki/2011_Copley_Township_shooting)\
+Copley Township, Ohio\
+August 7, 2011\
+8 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Michael E. Hance, 51**\
+United States Army (USA) / Department of Defense (DOD) contractor father-in-law (Wayne Roland Dieter - Ameritech); United States Army (USA) brother-in-law (Brian Eric Dieter)
+
+Source(s):
+1. [2011 Copley Township shooting - Details](https://en.wikipedia.org/wiki/2011_Copley_Township_shooting#Details)
+>Using two handguns, including a Hi-Point Model JHP .45-caliber pistol (which he bought from Sydmor's Jewelry in neighboring Barberton, Ohio five days before)[3] and a .357 Magnum six-shot revolver he bought from the same location in 2005, Hance opened fire at a house in the 2300 block of Goodenough Avenue. He first shot his 49-year-old girlfriend Rebecca K. Dieter, who was the only survivor in the shooting. Dieter managed to call 9-1-1 before escaping to the porch of her house and being shot again in the back, after which she pretended to be dead.[2][4]
+>
+>He then ran into an adjacent house, where he shot and killed Dieter's brother Craig; Autumn Johnson, 16; her grandparents, Russell Johnson, 67, and Gudrun Johnson, 64; and Amelia Shambaugh, 16, who was visiting a friend at the time and was seated in her parked car when she was shot.[3] Hance then chased Autumn Johnson's father, 44-year-old Bryan Johnson, northward, and shot him to death in a nearby driveway on Schocalog Road
+
+2. [Wayne Roland Dieter - Find a Grave](https://www.findagrave.com/memorial/92768977/wayne-roland-dieter)
+>Wayne Roland Dieter, 86, of Copley, Ohio, passed away at home surrounded by his family on November 20, 2009.
+>
+>A Copley resident for almost 40 years, he was born on January 24, 1923 in New Bedford, Pa. During World War II, Wayne served with distinction in the 276th Coast Artillery Battalion of the U.S. Army throughout the Pacific. After the war, he returned to New Bedford earning a bachelor's degree in business from Youngstown State University. Wayne and Helen Louise Brenner were happily married for 58 years.
+>
+>Wayne retired from Ameritech Publishing in 1989 after nearly 30 years of service. Affectionately known as 'The Old Man' by his many friends at Ameritech, Wayne was a consummate salesman who received numerous awards for outstanding achievement.
+>
+>He was a founding member of Lion's Clubs in both New Bedford, Pa. and Copley, Ohio. As a result of his dedicated service to the Lions and the community, he was awarded the Melvin Jones Fellowship. He was an active member of Westminster Presbyterian Church for 40 years and could always be counted on to pitch in wherever he was needed most.
+
+3. [Capt Craig Brian Eric Dieter - Find a Grave](https://www.findagrave.com/memorial/92788088/craig-brian_eric-dieter)
+>age: 51 yrs 4 mos 13 days\
+>residence: Lakeside Park, Kentucky\
+>
+>United States Army\
+>
+>Craig Dieter was an engineer that worked for a company called Rock Tenn.\
+>[...]\
+>Copley Township police said the gunman, Michael Hance, killed seven people and also shot and injured his girlfriend. He had visited a Barberton firing range two or three days before he went on the deadly rampage.
+>
+>Police say it appears Craig Dieter, 51, was shot and killed first, then Russell Johnson, 67, and his wife, Gudrun, 64, were shot and killed.
+>
+>Next, Hance shot and killed the Johnson's granddaughter, Autumn Johnson, 16, and her friend Amelia Shambaugh, who was also 16.
+>
+>Hance then chased and gunned down 44-year-old Bryan Johnson. After that, he shot his girlfriend, Rebecca Dieter, 49, once or twice in the back. She's the only survivor.
+>
+>Finally, Hance killed Scott Dieter, 11, who was hiding in a neighbor's basement.
+>
+>Hance was shot and killed by Copley Township police.
+
+------------------------------------
+
+[2011 Seal Beach shooting](https://en.wikipedia.org/wiki/2011_Seal_Beach_shooting)\
+Seal Beach, California\
+October 12, 2011\
+8 killed, 1 wounded
+
+Perpetrator(s):\
+**Scott Evans Dekraai, 41**\
+United States Marine Corps (USMC)
+
+Source(s):
+1. [Seal Beach Massacre: Suspect's Ex-Wife Claimed Abuse](https://abcnews.go.com/US/seal-beach-massacre-suspects-wife-claimed-abuse/story?id=14726230)
+>Seal Beach police allege that Dekraai, an ex-marine, entered Salon Meritage in Seal Beach, Calif., wearing a bullet-proof vest and opened fire, killing six people immediately. The six victims were declared dead at the scene.
+
+2. [Details Emerge on Seal Beach Shooting Suspect](https://www.nbclosangeles.com/news/local/seal-beach-shooting-suspect-suffered-from-pstd/1910334/)
+>Scott Evans Dekraai, 41, a former tugboat crewman who served in the military, is being held on suspicion of murder
+
+3. [Update: Quick Facts on Accused Killer Scott Dekraai](https://patch.com/california/missionviejo/accused-killer-scott-dekraii-a-portrait)
+>Contrary to some news reports saying Dekraai is a former Marine, Maj. Shawn Haney of the U.S. Marine Corps said he does not show up on any of their enlistment records.
+
+------------------------------------
+
+[2021 Atlanta spa shootings](https://en.wikipedia.org/wiki/2021_Atlanta_spa_shootings)\
+Atlanta, Georgia\
+March 16, 2021\
+8 killed, 1 wounded
+
+Perpetrator(s):\
+**Robert Aaron Long, 21**\
+United States Central Intelligence Agency (CIA) associates (HopeQuest Ministry Group / Maverick Recovery Sober Living Recovery Residences / prostitutes & brothels)
+
+Source(s):
+1. [2021 Atlanta spa shootings - Perpetrator](https://en.wikipedia.org/wiki/2021_Atlanta_spa_shootings#Perpetrator)\
+>Long spent time in HopeQuest, an evangelical treatment facility located near Acworth and down the road from the first spa that he attacked. He was a patient at the treatment center for what he described as "sex addiction", a label used by some for those that cannot control their sexual urges as expected by purity culture.[44][45] He claimed to be "tortured" by his addiction to sex since he was "deeply religious", according to his halfway house roommate.[41][46] His roommate also said that, several times during his stay at the halfway house, Long said that he had "relapsed" and gone to massage parlors to visit sex workers.[46] His parents had kicked him out of their house the night before the shooting due to concerns about his sex addiction, and said he watched internet pornography several hours each day. A report to police said that he "was emotional" after being evicted from his parents' house.[35][46]
+
+2. [HopeQuest Ministry Group / Maverick Recovery Sober Living Recovery Residences logos --> CIA Compass seal](https://imgur.com/a/7XUWp3V)
+
+3. [2021 Atlanta spa shootings - Motive](https://en.wikipedia.org/wiki/2021_Atlanta_spa_shootings#Motive)
+>According to the police, Long described his actions as being the result of a sex addiction that conflicted with his religious beliefs.[44][47] Long had been a customer at two of the massage parlors, and saw them as sources of sexual temptation.[47] Police records show that two of the massage parlors had been the site of 10 prostitution arrests, the latest of which took place in 2013.[48] All three targeted spas appeared on an online guide to brothels.[49] Long claims to have initially thought about killing himself but instead decided to target the businesses to "help" others dealing with sex addiction.[46][47] According to the Cherokee County Sheriff's Department, Long wanted to "eliminate the temptation" by targeting spas.[50][51]
+
+4. [Prostitution's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=Operation+Midnight+Climax)
+
+------------------------------------
+
+[Novi Sad shooting](https://amok.fandom.com/wiki/Michel_Stefanovich_Prihatchenko)\
+Novi Sad, Kingdom of Yugoslavia\
+November 23 - 24, 1923\
+8 killed
+
+Perpetrator(s):\
+**Michel Stefanovich Prihatchenko**\
+Imperial Russian Army
+
+Source(s):
+1. [Michel Stefanovich Prihatchenko - Amok Wiki](https://amok.fandom.com/wiki/Michel_Stefanovich_Prihatchenko)
+>Prihatchenko, a former lieutenant and pistol champion of the Imperial Russian Army, had escaped from Russia together with Maria Zahnova, who was variously described as his mistress, or wife, and settled in Novi Sad, where he earned a living by piaying in a native Russian orchestra at a restaurant. Zahnova eventually left him for the leader of the band, who dismissed him from the orchestra three days prior to the murders on her insistence.
+
+------------------------------------
+
+[Vancouver family shooting](https://vancouversun.com/life/this-week-in-history-police-officer-leonard-hogues-grisly-murder-suicide-shocked-region?r)\
+Vancouver, Canada\
+April 21, 1965\
+8 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**Leonard Raymond Hogue**\
+Vancouver Police Department (VPD)
+
+Source(s):
+1. [This week in history: Police officer Leonard Hogue's grisly murder-suicide shocked region](https://vancouversun.com/life/this-week-in-history-police-officer-leonard-hogues-grisly-murder-suicide-shocked-region?r)
+>About 1:30 a.m. on April 21, 1965, Vancouver police Constable Leonard Hogue snapped. “He put six cartridges into his .357 Magnum revolver, walked into the bedroom and shot his wife Vera through the head,” The Vancouver Sun reported.\
+>[...]\
+>There were six Hogue children. Their father shot and killed them all before turning the gun on himself in a grisly murder-suicide at the family home in Coquitlam.
+
+------------------------------------
+
+[1987 Russian train shooting](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%94%D0%B5%D0%BB%D0%BE_%D0%A1%D0%B0%D0%BA%D0%B0%D0%BB%D0%B0%D1%83%D1%81%D0%BA%D0%B0%D1%81%D0%B0?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)\
+Soviet Union\
+February 23, 1987\
+8 killed
+
+Perpetrator(s):\
+**Arturas Sakalauskas**\
+Soviet Army
+
+Source(s):
+1. [Case of Sakalauskas - Identity of the suspect (Translated from the Russian)](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%94%D0%B5%D0%BB%D0%BE_%D0%A1%D0%B0%D0%BA%D0%B0%D0%BB%D0%B0%D1%83%D1%81%D0%BA%D0%B0%D1%81%D0%B0?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp#%D0%9B%D0%B8%D1%87%D0%BD%D0%BE%D1%81%D1%82%D1%8C_%D0%BF%D0%BE%D0%B4%D0%BE%D0%B7%D1%80%D0%B5%D0%B2%D0%B0%D0%B5%D0%BC%D0%BE%D0%B3%D0%BE)
+>The private missing in the carriage is Arturas Adolfovich Sakalauskas, a Lithuanian . He was drafted into the army in June 1986. His father, Adolfas Sakalauskas, worked as a turner in the workshops of research institutes, and his mother, Olga, was a deputy head of a department in the statistical department.
+
+2. [Case of Sakalauskas - Preconditions for murder (Translated from the Russian)](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%94%D0%B5%D0%BB%D0%BE_%D0%A1%D0%B0%D0%BA%D0%B0%D0%BB%D0%B0%D1%83%D1%81%D0%BA%D0%B0%D1%81%D0%B0?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp#%D0%9F%D1%80%D0%B5%D0%B4%D0%BF%D0%BE%D1%81%D1%8B%D0%BB%D0%BA%D0%B8_%D0%BA_%D1%83%D0%B1%D0%B8%D0%B9%D1%81%D1%82%D0%B2%D1%83)
+>As the investigation showed, Sakalauskas's colleagues constantly mocked him. Nechaev repeatedly put a bowl of hot soup on his head and made a “bicycle” (as in army jargon an act of mockery of a soldier is called, which consists in inserting matches between the toes of a soldier lying on his back (sleeping) and setting them on fire, from in pain, the soldier begins to make movements with his feet, similar to pedaling a bicycle); Gataullin, who acted as a cook, added a large amount of salt and sand to Sakalauskas's food, often simply deprived him of food; senior sergeant Semyonov (assistant chief of the guard) dipped his head into the toilet, put him on duty for ten hours, did not let him sleep , beat him, and once tore his ear.
+
+------------------------------------
+
+[Zenzevatka shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Zenzevatka, Russia\
+April 7, 2000\
+8 killed
+
+Perpetrator(s):\
+**Oleg Dolzhenko, 19**\
+Russian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Ingushetia shooting](https://english.pravda.ru/news/hotspots/16755-n/)\
+Ingushetia, Russia\
+August 23, 2002\
+8 killed
+
+Perpetrator(s):\
+**Oleg Khismatulin / Nikolai Bozhkov**\
+Russian Federal Security Service (FSB) Border Service of Russia
+
+Source(s):
+1. [Russian guards confess to killings](https://edition.cnn.com/2002/WORLD/europe/08/28/russia.bullying/index.html)
+>Two Russian border guards have confessed to killing eight of their comrades on a tour of duty near the breakaway republic of Chechnya, officials say.
+>
+>Russian officials initially said they suspected Chechen rebels were behind the killings which happened in the republic of Ingushetia, near Chechnya, on Russia's mountainous border with Georgia.
+>
+>But on Wednesday officials said Privates Nikolai Bozhkov and Oleg Khismatulin had confessed to killing the other members of their detachment.
+>
+>Alan Doyev, a police spokesman in neighbouring North Ossetia, where the two men were detained, told the Associated Press that the killings had been carried out to avenge bullying.
+>
+>He said Khismatulin had confessed to killing one guard and Bozhkov said he killed the other seven while they were sleeping.\
+>[...]\
+>Desertions, shootings and murders are not uncommon in the cash-strapped and demoralised Russian armed forces.
+>
+>Many of the incidents are blamed on vicious bullying of young conscripts by older soldiers, and on alcohol abuse.
+>
+>NTV reported that Khismatulin and Bozhkov may have been under the influence of drugs when they committed the killings.
+
+------------------------------------
+
+[2010 Appomattox shootings](https://en.wikipedia.org/wiki/2010_Appomattox_shootings)\
+Appomattox, Virginia\
+January 19 - 20, 2010\
+8 killed
+
+Perpetrator(s):\
+**Christopher Speight, 40**\
+United States Government contractor employer (Old Dominion Security)
+
+Source(s):
+1. [2010 Appomattox shootings - Shooting](https://en.wikipedia.org/wiki/2010_Appomattox_shootings#Shooting)
+>Speight was employed as a security guard for Old Dominion Security at the time of the incident.[3]
+
+2. [Old Dominion Security Company - Crunchbase](https://www.crunchbase.com/organization/old-dominion-security-company)
+>Old Dominion Security Company is a security and investigations company that provides corporate, hospital, and government security services.
+
+3. [2010 Appomattox shootings - Aftermath](https://en.wikipedia.org/wiki/2010_Appomattox_shootings#Aftermath)
+>On June 24, 2010, Appomattox County Circuit Court Judge Richard Blanton signed an order declaring Speight incompetent to stand trial. He was ordered sent to a state psychiatric hospital until such a time when he is able to assist his attorneys with his defense.[4]
+>
+>Two years after the shootings, police revealed that the three Sipes in the house were likely killed two days before Speight fatally shot the other five victims.
+>
+>The case remained on hold for years as attorneys dealt with pretrial motions and awaited additional mental evaluations. According to investigators Speight told them that he had been ordered by an Egyptian goddess named Jennifer to shoot his family, because they were possessed by demons. The others were killed, he said, so they could not help his first victims, since Jennifer demanded that their bodies had to rot.
+
+------------------------------------
+
+[Creston mass murder](https://en.wikipedia.org/wiki/Dale_Nelson)\
+Creston, Canada\
+September 5, 1970\
+8 killed
+
+Perpetrator(s):\
+**Dale Merle Nelson, 31**\
+British Columbia Provincial Government psychiatric associates (Riverview Hospital)
+
+Source(s):
+1. [Dale Nelson - Personal life](https://en.wikipedia.org/wiki/Dale_Nelson#Personal_life)
+>Nelson was a logger in Creston, British Columbia, married with three children.[1] He reportedly physically abused his wife.[2] Nelson was also known to become aggressive and unpredictable when he drank to excess and to have used LSD.[3] The combination of mental illness and substance use likely fueled his spree.
+>
+>Nelson fell into a depressed state in early 1970 and unsuccessfully attempted suicide.[1] He subsequently spent two months at Riverview Hospital in Coquitlam.[4]
+
+2. [Riverview Hospital (Coquitlam) - History](https://en.wikipedia.org/wiki/Riverview_Hospital_(Coquitlam)#History)
+>In 1876, Royal Hospital in Victoria was converted to British Columbia's first facility to house mentally ill patients. Due to crowding, Royal Hospital was closed and the patients moved to the new Provincial Asylum for the Insane in 1878. Again facing problems of overcrowding at the turn of the century, in 1904 the provincial government purchased 1,000 acres (400 ha) in then-rural Coquitlam for the construction of Riverview Hospital and the adjacent Colony Farm lands. Construction of a temporary “Hospital for the Mind” was started at the Riverview property in 1909.
+>
+>In 1911 British Columbia's first Provincial Botanist, John Davidson, established an arboretum, nursery and a botanical garden on the hospital lands, often with the assistance of patients as there was a belief in the therapeutic value.[5] The botanical garden was moved to the new University of British Columbia in 1916, but the arboretum and nursery remained.[6]
+>
+>In 1913 a permanent Provincial mental hospital, administered by Dr. Henry Esson Young was opened, treating about 300 seriously mentally-ill male patients. The building was originally constructed to hold 480 patients, but by the end of the year it housed 919.[7] By this time, Colony Farm was producing over 700 tons of crops and 20,000 gallons of milk in a year, using mostly patient labour. In 1950, the Male Chronic building is renamed West Lawn, the Female Chronic building East Lawn and the Acute Psychopathic Unit becomes Centre Lawn. The hospital itself is now called the Provincial Mental Hospital, Essondale. In 1983 the West Lawn building was closed. In 1984, 141 ares of Riverview’s upper hillside were sold, subdivided and developed as the Riverview Heights subdivision with 250 single family homes and the remaining Riverview forest acquired by the city of Coquitlam.
+>
+>In 1924, the Acute Psychopathic Unit, later called Centre Lawn, opened. Several hospital staff lived at the remote site, and by 1927 this had grown into a small community called Essondale; including shops, a school, and Fire Hall.[citation needed]
+>
+>In 1930, the 675-bed Female Chronic Unit (later called East Lawn) opened due to overcrowding.[7] The first phase of what would eventually be called the Crease Clinic, the Veteran's Unit opened in 1934, with the second phase opened in 1949, giving Riverview its most iconic building. Finally in 1955, the Tuberculosis Unit (now called North Lawn) opened, marking the peak of patient residence.[8]
+>
+>By 1956 the hospital had reached 4,306 patients. In 1959 the charge of mental health services was transferred from the Provincial Secretary to the newly formed Department of Health Services. The transfer was followed by a transition from custodial care to the more active psychiatric care of patients.[9] In 1967 Dr. Davidson resigned as Deputy Minister and was replaced by Dr F.G. Tucker, a resident physician of Essondale (Riverview) from 1953 who, in 1959, became the Clinical Director of the Crease Clinic.[8]
+>
+>A steady decline in beds and facilities started in the 1960s and continued up to 2004 at which point there were only 800 beds. Some say that the reason for the decreasing number was initially due to the introduction of anti-psychotic medications and the development of psychiatric units in acute care hospitals as well as a move toward outpatient care.[9] As early as 1967 a decision had been made to downsize Riverview Hospital. The determination was first brought up officially on paper three years after the publication of the Mental Health Act of 1964 that intended to have mental health care be as readily available to the population as that of physical health. The two acts worked in conjunction so that by 1970 there were 17 Mental Health Centres in British Columbia, 12 of which had opened within the previous four years.[7]
+>
+>Decreases continued. In 1969 the Provincial Government appointed a committee to review the role of the Mental Health Branch of social services in British Columbia. The committee decided to further downsize Riverview in a stated plan to implement other community care centres. As further closures were being planned, legislation was also passed in 1969 that deemed Riverview an “open hospital” allowing private practitioners to send their patients to Riverview. A shift away from directors trained in psychiatry to administrative ones was marked. As services and beds at Riverview continuously decreased, while opening access of it through private practice, another official plan to entirely close Riverview Hospital was written in 1987: A Draft Plan to Replace Riverview Hospital.[10]
+>
+>Regional clinics began drawing patients from Riverview, and both advances in treatment and eventual cutbacks in funding resulted in fewer people receiving mental health care province-wide. In 1983, West Lawn closed and farming operations at Colony Farm were discontinued. In 1984, the provincial government sold 57 hectares (141 acres) of Riverview lands to Molnar Developments. Shortly afterward, this land was subdivided and became Riverview Heights, with about 250 single family homes. In 1985 an acute geriatric unit was opened at Riverview Hospital.[11]
+
+------------------------------------
+
+[2001 Greyhound bus attack](https://en.wikipedia.org/wiki/2001_Greyhound_bus_attack)\
+Manchester, Tennessee\
+October 3, 2001\
+7 killed (including 1 perpetrator), 39 wounded
+
+Perpetrator(s):\
+**Damir Igrić, 29**\
+Croatian Army
+
+Source(s):
+1. [2001 Greyhound bus attack - Attacker](https://en.wikipedia.org/wiki/2001_Greyhound_bus_attack#Attacker)
+>Igrić [...] joined the Croatian army in 1991, when he was 19, and was discharged in 1993, after what the ambassador of Croatia, Ivan Grdešić, described as "violent behavior and substance abuse... he was connected with crimes in Croatia." When ethnic tensions began to flare during the mid-nineties he joined others in Croatia's "homeland war" of independence from Yugoslavia.[2]
+>
+>Igrić, a citizen of Croatia, entered the United States through the city of Miami, Florida during March 1999, on a 30-day transit visa. He overstayed the visa by two years, convincing US immigration officials he had relatives in Florida and New York. He worked in a restaurant in New York City before the Greyhound incident. Igrić had a long history of mental illness.[3]
+
+------------------------------------
+
+[Robert Charles - Killings](https://en.wikipedia.org/wiki/Robert_Charles#Killings)\
+New Orleans, Lousiana\
+July 23 - 27, 1900\
+7 killed (including 1 perpetrator), 20 wounded
+
+Perpetrator(s):\
+**Robert Charles**\
+United States Army (USA) founded employer (Henry McNeil Turner - The Voice of Missions)
+
+Source(s):
+1. [Mob Rule in New Orleans](https://www2.latech.edu/~bmagee/louisiana_anthology/texts/wells/wells--mob_rule.html)
+>Charles was evidently the local agent of the Voice of Missions, a “religious” paper, published at Atlanta, as great bundles of that sheet were found. It is edited by one Bishop Turner, and seems to be the official organ of all haters of the white race. Its editorials are anarchistic in the extreme, and urge upon the negro that the sooner he realizes that he is as good as the white man the better it will be for him.
+
+3. [The Ballad of Robert Charles - p. 154](https://www.google.ca/books/edition/The_Ballad_of_Robert_Charles/C8_9DwAAQBAJ?hl=en&gbpv=0)
+>In Atlanta, Henry McNeal Turner had particular reason to tread cart fully. Robert Charles's connection with Voice of Missions had brought much unwanted attention to Turner and his newspaper. Though he was generaly outspoken about racial affairs and mob violence, Turner had precious little to say about the events in New Orleans. Indeed, he addressed the controversy, only once in the pages of Voice of Missions, in a September editorial. "We desire to say, we have never seen Robert Charles; never spoke to him in our life, and have never written him a letter or received one from him," Turner in sisted. In spite of the testimony that Charles sold copies of the paper, Turner denied any association. "If he took our paper, he did no more than over ten thousand others do. We are not responsible, nor any other editor, for the deeds of men who read their paper." Turner insisted that his organ did not condone murder or advocate racial hatred. Though it promoted "the cause of religion, Missions and emigration, he claimed that Voice of Missions took no position on political or racial affairs, '06 Turner was clearly underselling himself and his newspaper. Voice of Missions was far more than a run-of-the- mill denominational monthly. It was a recognized vehicle for black nationalist sentiment and a powerful voice of protest. Over his long career, Turner never hesitated to speak his mind, no matter the risks or the controversy. In the wake of the violence in New Orleans, however, he was uncharacteristically circumspect.
+
+3. [Henry McNeal Turner - Wikipedia](https://en.wikipedia.org/wiki/Henry_McNeal_Turner)
+>Henry McNeal Turner (February 1, 1834 – May 8, 1915) was an American minister, politician, and the 12th elected and consecrated bishop of the African Methodist Episcopal Church (AME). After the American Civil War, he worked to establish new A.M.E. congregations among African Americans in Georgia.[1] Born free in South Carolina, Turner had learned to read and write and became a Methodist preacher. He joined the AME Church in St. Louis, Missouri, in 1858, where he became a minister. Founded by free blacks in Philadelphia, Pennsylvania in the early 19th century, the A.M.E. Church was the first independent black denomination in the United States. Later Turner had pastorates in Baltimore, Maryland, and Washington, DC.
+>
+>In 1863 during the American Civil War, Turner was appointed by the US Army as the first African-American chaplain in the United States Colored Troops. After the war, he was appointed to the Freedmen's Bureau in Georgia. He settled in Macon and was elected to the state legislature in 1868 during the Reconstruction era. An A.M.E. missionary, he also planted many AME churches in Georgia after the war. In 1880 he was elected as the first Southern bishop of the AME Church, after a fierce battle within the denomination because of its Northern roots.
+>
+>Angered by the Democrats' regaining power and instituting Jim Crow laws in the late nineteenth century South, Turner began to support black nationalism and emigration of blacks to the African continent. This movement had started before the Civil War under the American Colonization Society. Turner was the chief figure in the late nineteenth century to support such emigration to Liberia; most African-American leaders of the time were pushing for rights in the United States.
+
+4. [Henry McNeal Turner - Civil War](https://en.wikipedia.org/wiki/Henry_McNeal_Turner#Civil_War)
+>During the American Civil War, Turner organized one of the first regiments of black troops (Company B of the First United States Colored Troops), and was appointed as its chaplain. Turner urged both free-born blacks and "contrabands" to enlist. (The latter term refers to enslaved people who had escaped slavery and had their status classified as "unreturnable" because their former masters were engaged in war against the US government). Turner regularly preached to the men while they trained and reminded them that the "destiny of their race depended on their loyalty and courage". The regiment often marched to Turner's church to hear his patriotic speeches. In July 1863, the regiment had completed its formation and was preparing to leave for war. In November of that year, Turner was commissioned as chaplain, becoming the only black officer in the 1st USCT.[5]
+>
+>Turner discovered that the duties of a Union army chaplain in the Civil War were not well defined. Before the war, chaplains taught school at army posts. During the war, the duties expanded to include holding worship services and prayer meetings, visiting the sick and wounded in hospitals, and burying the dead. Each chaplain had to work out his role in his regiment, based on the expectations of the men in his care and his own talents. For Turner, this appointment enabled him to grow in influence among African Americans.[5]
+>
+>Turner was a chaplain for two years. Shortly after reporting for duty, he caught smallpox and spent months in the hospital recovering. He returned to his company in May 1864, just before they participated in their first armed conflict, the Battle of Wilson's Wharf on the James River. From May through December, his unit participated in the fighting around Petersburg and Richmond, Virginia. At the end of the year, they fought in the massive amphibious attack against Fort Fisher.
+>
+>Turner spent the spring of 1865 with his men as they joined Sherman's march through North Carolina. When the fighting ended, he was sent to Roanoke Island to help supervise a large settlement of freed slaves. Discharged in September, Turner was commissioned as chaplain of a different African-American regiment, which was assigned to the Freedmen's Bureau in Georgia. Shortly after arriving there, he resigned and left the army.[5]
+>
+>He turned his attention to politics, civil rights, black nationalism, and evangelizing for the A.M.E. Church among Southern freedmen.[5] Turner became a politician during the Reconstruction era, being elected to state government. He also was a powerful churchman, and a national race leader. While serving in the army, Turner had refined his thinking about the African race and its future in America.
+>
+>He gained wider attention nationally by two activities related to the war. First, he had written numerous letters from the battlefield which were published in newspapers, and gained him attention from readers and admirers in the North. These were his base for a lifetime of journalism. Second, in the first months after the war ended, he used his position as army chaplain to attract emancipated freedmen into the A.M.E. Church. Most former slaves had formerly belonged to white-dominated churches. The expansion of the independent AME Church in the South strongly influenced African-American life. Turner was the first of the 14 black chaplains to be appointed during the war.[5] Both the A.M.E. Church and the A.M.E. Zion Church, based in New York, also had numerous missionaries appealing to freedmen in the South.
+>
+>After the war, Turner was appointed by President Andrew Johnson to work with the Freedmen's Bureau in Georgia during Reconstruction. White clergy from the North and former military officers also led some Freedmen's Bureau operations.
+
+------------------------------------
+
+[Hoddle Street massacre](https://en.wikipedia.org/wiki/Hoddle_Street_massacre)\
+Victoria, Australia\
+August 9, 1987\
+7 killed, 19 wounded
+
+Perpetrator(s):\
+**Julian Knight, 19**\
+Australian Army Cadets; Australian Army Reserve; Australian Army father / family
+
+Source(s):
+1. [Hoddle Street massacre - Background](https://en.wikipedia.org/wiki/Hoddle_Street_massacre#Background)
+>Knight's father was involved in the military and, as a result, Knight moved around frequently as a child. His lifelong dream was to defend Australia in a war. After a troubled high-school life at Westbourne Grammar School, Knight entered the Royal Military College, Duntroon in Canberra, Australian Capital Territory on 13 January 1987, at the age of 18. While a military career had long been a dream, he lacked self-discipline and performed poorly at his studies and gained good results only in weapons expertise exercises.[4] Knight did not like authority and he hated the social hierarchy of the army which allowed people only a few months older than him to boss him around. One night, despite being confined to the base, Knight was involved in a fight and stabbing at a bar after being confronted by a senior.[4] Knight was consequently discharged and sent back to Melbourne 16 days prior to the massacre.
+
+2. [Julian Knight - Early life](https://en.wikipedia.org/wiki/Julian_Knight_(murderer)#Early_life)
+>Julian Knight is the eldest of three children. He was adopted by a family with strong army ties when he was ten days old. Knight moved often as a child, living in Melbourne and Puckapunyal, and also abroad in Malaysia, Hong Kong and Singapore. In early 1975, Knight's family settled in Laverton, Victoria, and he attended Laverton Primary School until the end of 1978. His parents divorced in 1980 when he was 12. He then attended Westbourne Grammar School, Fitzroy High School and later Melbourne High School, a selective secondary school with entry by academic examination. An entry written by students in the 1985 Melbourne High School yearbook says: Julian 'Swapo' Knight inherited the role of "cadet unit looney and chief political agitator". While at Westbourne he was known for his fascination with guns and the military, with strong interests in Nazi Germany and World War II. In 1986, he attended La Trobe University to study French, German history and politics. Knight has an IQ of 132, well above average.[2]
+
+3. [Julian Knight - Military career](https://en.wikipedia.org/wiki/Julian_Knight_(murderer)#Military_career)
+>Knight joined the Australian Army Cadets aged 14 and served in two cadet units, the Norwood High School Cadet Unit and the Melbourne HSCU. He later enlisted in the Army Reserve at the age of 17 while still in high school, serving as a trooper the 4th/19th Prince of Wales's Light Horse Regiment, an armoured reconnaissance unit. Knight entered the Royal Military College, Duntroon on 13 January 1987, at the age of 18. While a military career had long been a dream, he performed poorly at studies and gained good results only in weapons expertise exercises. Knight was advised to leave the army after an incident in which he stabbed his superior, a sergeant, while drinking.
+
+------------------------------------
+
+[Alphen aan den Rijn shopping mall shooting](https://en.wikipedia.org/wiki/Alphen_aan_den_Rijn_shopping_mall_shooting)\
+Alphen aan den Rijn, Netherlands\
+April 9, 2011\
+7 killed (including 1 perpetrator), 17 wounded
+
+Perpetrator(s):\
+**Tristan van der Vlis, 24**\
+Dutch Chief of Defence paternal uncle (Arie van der Vlis)
+
+Source(s):
+1. [Alphen aan den Rijn shopping mall shooting - Perpetrator](https://en.wikipedia.org/wiki/Alphen_aan_den_Rijn_shopping_mall_shooting#Perpetrator)
+>The shooter was 24-year-old Tristan van der Vlis who lived in an apartment complex in Alphen aan den Rijn with his parents.[16] He had lived in Alphen since his childhood.[17] According to the police, he was a member of a shooting association and possessed three firearms.[18] He had a history of psychological and psychiatric problems, including paranoid schizophrenia; in 2006 he spent 10 days in a closed institution after attempting suicide.[19] He wanted to punish God by murdering "his creatures".[20]
+>
+>Van der Vlis was obsessed with the 1999 Columbine High School massacre and chose the date of 9 April because it was the birthday of gunman Eric Harris, his 30th birthday had he survived. Van der Vlis started shooting at 12:08 pm because that was the time when Harris committed suicide.[21]
+>
+>Van der Vlis was the grandson of Hennaarderadeel and Franeker mayor Kornelis van der Vlis, who was a member of the National Socialist Movement during World War II. He was also the nephew of former Dutch General Arie van der Vlis, who also served as the Chief of the Defence Staff from 1992 to 1994.[22]
+
+2. [Former Chief of Defense Staff Van der Vlis passed away (Translated from the Dutch)](https://www-defensie-nl.translate.goog/actueel/nieuws/2020/07/06/oud-chef-defensiestaf-van-der-vlis-overleden?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>General retired Arie van der Vlis died the day before yesterday at the age of 79 in his hometown of Rijnsburg. As Chief of Defense Staff, Van der Vlis was the Netherlands' highest-ranking military officer from May 1992 to August 1994.
+>
+>On May 14, 1992, Van der Vlis became Chief of Defense Staff, nowadays referred to as Commander of the Armed Forces. In this position he had to deal with the government decision to send Dutch soldiers from the newly established airmobile brigade to the former Yugoslavia. However, he felt that the soldiers were too lightly armed and not well prepared to protect the enclave of Srebrenica. The mission failed to prevent the fall of the enclave in 1995.
+>
+>Van der Vlis resigned his position in August 1994, because he could not agree with the coalition agreement of Cabinet Kok I. That imposed another almost 1 billion in cutbacks on Defense. This shortly after the major restructuring operation in the form of the Priority Memorandum of January 1993.
+>
+>Van der Vlis started his military career in 1958 as a cadet at the Royal Military Academy in Breda. On his retirement he was appointed adjutant in the extraordinary service of Queen Beatrix. 
+>
+>After he left the service, he remained active on the board. He was chairman of the Supervisory Board of the Army Museum in Delft and a member of the Netherlands Institute for International Relations. He was also active for the Advisory Council on International Affairs, the Royal Association for the Practice of Martial Science and the Recommendation Committee of the Katwijk Foundation. He was also chairman of the National Committee for the Remembrance of the Capitulation 1945 in Wageningen.
+
+------------------------------------
+
+[2014 Isla Vista killings](https://en.wikipedia.org/wiki/2014_Isla_Vista_killings)\
+Isla Vista, California\
+May 23, 2014\
+7 killed (including 1 perpetrator), 14 wounded
+
+Perpetrator(s):\
+**Elliot Rodger, 22**\
+United States Central Intelligence Agency (CIA) family (Peter Rodger / Li Chin Tye / Soumaya Akaaboune / Georgia Rodger); British Merchant Navy / Armed Forces attaché paternal grandfather (George Rodger)
+
+1. [Peter Rodger - Wikipedia](https://en.wikipedia.org/wiki/Peter_Rodger)
+>Peter Anthony Rodger (born 6 April 1965) is a British filmmaker and photographer. Rodger is known for his 2009 documentary film Oh My God, as well as his work as a second unit director on The Hunger Games (2012). Rodger has won a number of awards, including from the Houston International Film Festival, the Chicago International Film Festival, the Telly Awards, the Mobius Awards, and the US International Film and Video Festival.[1]\
+
+2. [Peter Rodger - Personal life](https://en.wikipedia.org/wiki/Peter_Rodger#Personal_life)
+>Rodger was born on 6 April 1965 as one of 3 kids to British photojournalist George Rodger and his American assistant wife, Lois "Jinx" Rodger (née Witherspoon).[2]\
+>[...]\
+>In 2014, his son, Elliot, murdered six people and injured fourteen others – by gunshot, stabbing and vehicle ramming – in Isla Vista, California near the campus of the University of California, Santa Barbara (UCSB), then killed himself.[4]
+
+3. [Peter Rodger - IMDb](https://www.imdb.com/name/nm3201913/bio)
+>Peter Rodger grew up looking through a camera lens. As a teenager, the award-winning British director and photographer honed his skills by assisting his father, George Rodger, the renowned photojournalist and co-founder of Magnum Photos. After completing his education at England's Maidstone College of Art, his skill with the lens has made him one of the most sought-after talents in both the European and United States advertising markets.
+>
+>Peter has shot print and commercial campaigns in over forty countries, for such diverse clients as Mercedes, Save the Children Fund, City National Bank, Coca-Cola, Toyota, Microsoft, Infiniti, Lexus, Buick, Acura, Honda, Volvo, Land Rover, Fendi, Xavier Laurent Perfume, Apple Computers, University of Houston, Kodak, Freixenet Champagne, General Electric, Audi, Ecolab and Canon Cameras.
+>
+>He is repped for commercials by Untitled Inc. in Los Angeles, and has developed a deeply visual style of shooting that has become increasingly popular. Visceral cinematic imagery captures the soul of performance in a non-contrived, yet observational way that makes his filmmaking epic to watch but at the same time engaging with a natural, yet energetic execution.
+>
+>His ever-evolving style has yielded over 35 awards as best director from The Houston International Film Festival, Chicago International Film Festival, The Telly Awards, The Mobius Awards and the US International Film and Video Festival. During his illustrious commercial career, Peter produced and directed the epic non-fiction film entitled "Oh My God" - which explores peoples' diverse opinions and perceptions of God, released in 2009.
+>
+>And in 2012, Peter collaborated with Gary Ross as second unit director on the motion picture blockbuster "The Hunger Games," creating the propaganda film for the fictional "Capitol" in the story.
+>
+>He has written eight screenplays and is attached to direct three of them. In 2009, his first book "The OMG Chronicles" was released, published by Hayhouse.
+
+4. [Li Chin Tye - IMDb](https://www.imdb.com/name/nm0157710/?ref_=nmbio_pa_2)
+
+5. [Soumaya Akaaboune - IMDb](https://www.imdb.com/name/nm0015033/)
+
+6. [George Rodger - Life and career](https://en.wikipedia.org/wiki/George_Rodger#Life_and_career)
+>Rodger [...] joined the British Merchant Navy and sailed around the world. [...] In London, he found work as a photographer for the BBC's The Listener magazine. In 1938 he had a brief stint working for the Black Star Agency.
+>
+>With the outbreak of the Second World War, Rodger had a strong urge to chronicle the war. His photographs of the Blitz gained him a job as a war correspondent for Life magazine, based in the United States. Rodger covered the war in West Africa extensively and, towards the end of the war, followed the Allies' liberation of France, Belgium and Netherlands. He also covered the retreat of the British forces in Burma. He was probably the only British war reporter/photographer allowed to write a story on the Burma Road by travelling on it into China, with special permission from the Chinese military.[citation needed]
+>
+>Rodger was one of many photographers to enter the concentration camp at Bergen-Belsen in 1945, the first being members of the British Army Film and Photographic Unit. His photographs of the survivors and piles of corpses were published in Life and Time magazines and were highly influential in showing the reality of the death camps.
+
+7. [Elliot Rodger Report Details Long Struggle with Mental Illness](https://www.independent.com/2015/02/20/elliot-rodger-report-details-long-struggle-mental-illness/)
+>Rodger was never hospitalized due to mental illness, but the Sheriff’s report indicates he suffered from a number of mental health issues throughout his childhood, and he received treatment up to his death. He had reportedly considered suicide but had no prior history of aggression. As a child, he cried in crowds and preferred to write information down rather than speak. He displayed some repetitive behaviors such as tapping his feet or leg or making noises.
+>
+>At age 15, he was prescribed Xanax and Prozac. A year later, he stopped taking the medications regularly. He also took Paxil as needed, for instance if he was going to a party. In a journal entry, Rodger wrote that the pills made him feel too drowsy and tired so he would “have to rely entirely on my mind and positive thinking” to overcome his shyness.
+>
+>Rodger struggled with anger, jealousy, and basic social skills, and he sought help from three counselors in Santa Barbara; he attended 29 sessions between May 2013 and May 2014. He also met with his Los Angeles-based life coach Gavin Linderman, who was the one to warn Rodger’s mother about the manifesto and email sent out the night of the mass murders.
+>
+>The report states it was recommended that Rodger enter a residential treatment facility with daily therapy because he had great difficulty integrating with his peers and he showed anger toward couples. In the months before the shooting, Rodger was taking Xanax; he said he could cope with anxiety after taking it.
+
+------------------------------------
+
+[Akihabara massacre](https://en.wikipedia.org/wiki/Akihabara_massacre)\
+Tokyo, Japan\
+June 8, 2008\
+7 killed, 10 wounded
+
+Perpetrator(s):\
+**Tomohiro Katō, 25**\
+Japan Self-Defense Forces (JSDF) associates (military supply shop)
+
+Source(s):
+1. [Akihabara massacre - Investigation](https://en.wikipedia.org/wiki/Akihabara_massacre#Investigation)
+>Katō erased all contacts and communication records from his mobile phone just prior to the attack, the purpose of which he confessed was to avoid annoying those around him.[47] Katō later said that he posted the online messages hoping that police would take notice and stop him.[49] The weapons Katō used in the attack were reportedly purchased two days before at a military supply shop in Fukui, Fukui Prefecture, at about 12:40.[29] Katō spent about twenty minutes in the store, purchasing a telescopic baton and a pair of leather gloves, while the store's CCTV captured him conversing with the salesman and demonstrating stabbing motions.[50][51] Katō came to Akihabara the day before the attack to sell his personal computer and some software to raise money to rent the truck.[51][52]
+
+2. [Akihabara massacre - Early life and education](https://en.wikipedia.org/wiki/Akihabara_massacre#Early_life_and_education)
+>Tomohiro Katō (加藤 智大, Katō Tomohiro, 28 September 1982 – 26 July 2022) grew up in a suburban home in Aomori, Aomori Prefecture.[25] [26] His father was a top manager in a financial institution. Katō's grades were considered to be exceptional in elementary school and he was a top track athlete.[25] He entered Tsukuda Junior High School,[27] where he became president of the tennis club. However, Katō started to behave violently at home after enrolling at Aomori High School, an elite high school.[28][29] There, his class academic ranking fell to 300 (of 360 students) and failed entrance examinations for the prestigious Hokkaido University, eventually training as an auto mechanic at Nakanihon Automotive College.[25] Katō was hired as a temporary worker at an auto parts factory in central Shizuoka Prefecture, though he had been recently told that his job was to be cut at the end of June.[29]
+>
+>Katō reportedly did not get along well with his parents, and seldom returned home.[30][31] An interview with Katō's brother revealed that his parents had put immense pressure on both of them to perform and to excel in their studies,[30] ordering them to redo their homework to high standards in order to impress teachers in school, and recalled one incident when Katō was made to eat scraps of food from the floor.[31] Another neighbor recounted an incident where Katō's parents forced him to stand outside for hours in deep, cold snow during winter.[25] Previous online postings before his announcement of the attack contained sharp criticisms of his upbringing.[32] Deeply in debt and believing that his family had given up on him, Katō unsuccessfully attempted suicide in 2006 by ramming his car into a wall.[25]
+
+------------------------------------
+
+[Euskirchen court shooting](https://en.wikipedia.org/wiki/Euskirchen_court_shooting)\
+Euskirchen, Germany\
+March 9, 1994\
+7 killed (including 1 perpetrator), 8 wounded
+
+Perpetrator(s):\
+**Erwin Mikolajczyk, 39**\
+German Army aspirant
+
+Source(s):
+1. [Erwin MIKOLAJCZYK - Murderpedia](https://murderpedia.org/male.M/m/mikolajczyk-erwin.htm)
+>He also liked wearing army fatigues, not very strange at all. To add to these amusing habits he also collected guns, and belonged to the local gun club.
+
+------------------------------------
+
+[Lockheed Martin shooting](https://en.wikipedia.org/wiki/Lockheed_Martin_shooting)\
+Meridian, Mississippi\
+July 8, 2003\
+7 killed (including 1 perpetrator), 8 wounded
+
+Perpetrator(s):\
+**Douglas Williams, 48**\
+United States Department of Defense (DOD) contractor employer (Lockheed Martin)
+
+Source(s):
+1. [Lockheed Martin shooting - Wikipedia](https://en.wikipedia.org/wiki/Lockheed_Martin_shooting)
+>The Lockheed Martin shooting occurred on July 8, 2003, at the Lockheed Martin plant in Meridian, Mississippi. The gunman, Douglas Williams, an assembly line worker at the plant, shot 14 of his co-workers with a shotgun, killing six of them, before committing suicide.
+
+------------------------------------
+
+[Romanshorn shooting](https://en.wikipedia.org/wiki/Romanshorn_shooting)\
+Romanshorn, Switzerland\
+August 30 - 31, 1912\
+7 killed, 7 wounded (including 1 perpetrator)
+
+Perpetrator(s):\
+**Hermann Schwarz**\
+Swiss Army
+
+Source(s):
+1. [Hermann SCHWARZ - Murderpedia](http://www.murderpedia.org/male.S/s/schwarz-hermann.htm)
+>Seven men have been killed aand several others wounded in the capture of a madman named Hermann Schwarz, just discharged from the army, who first defied attack in a house in wich he barricaded himself and afterwards shot at pursuers who followed him into the woods.
+
+------------------------------------
+
+[Ta'izz National Museum shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Ta'izz, Yemen\
+December 13, 2009\
+7 killed, 6 wounded
+
+Perpetrator(s):\
+**Mansour Ali Doais, 30**\
+Yemeni Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
