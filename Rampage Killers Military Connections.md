@@ -6809,3 +6809,352 @@ Source(s):
 >In 1981, the United Nations announced that 1985 would be an International Youth Year (IYY). USYC attempted to take the lead in planning for U.S. participation in the IYY. Competition with a rival body, the U.S. Committee on International Youth Year, led to a congressional investigation. In 1985, Congress passed the Zorinsky amendment (U.S.C. 1461-1a), which barred programs funded by the USIA from operating domestically or conducting propaganda campaigns against domestic audiences. The law also required the IYY committees to be representative and open to all youth organizations. USYC refused to open the executive positions on its IYY committee to other groups, and American participation in the IYY collapsed.[1][6]
 >
 >USIA withdrew its funding for the USYC in 1986, and the organization folded.[1]
+
+------------------------------------
+
+[Murovdag Mountain shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Murovdag, Azerbaijan\
+February 20, 2011\
+7 killed, 1 wounded
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Azerbaijani Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[2014 Montgomery County shootings](https://en.wikipedia.org/wiki/2014_Montgomery_County_shootings)\
+Montgomery County, Pennsylvania\
+December 15 - 16, 2014\
+7 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Bradley William Stone, 35**\
+United States Marine Corps (USMC); United States Department of Veterans Affairs (DVA) psychiatric associates
+
+Source(s):
+1. [2014 Montgomery County shootings - Perpetrator](https://en.wikipedia.org/wiki/2014_Montgomery_County_shootings#Perpetrator)
+>Bradley William Stone, a 35-year-old resident of Pennsburg, Pennsylvania, was identified as the attacker. He was reported to be a military veteran who had been diagnosed with posttraumatic stress disorder,[25] although there was no evidence to indicate a diagnosis.[3]
+>
+>Stone was enlisted in 2002 as a reservist in the United States Marine Corps, mainly as a meteorologist.[1] He was assigned to the 3rd Battalion 14th Marines, a reserve artillery battalion in Philadelphia.[26] Stone had one deployment to Iraq that started on April 17, 2008, and ended on July 2 of the same year. He left service sometime later that year, although he remained on individual ready reserve until 2011. Stone left with the rank of sergeant, according to a Marine spokesperson.[13][27] Stone was reportedly being treated for unspecified combat-related physical injuries. On December 8, he met a psychiatrist at a Veterans Affairs medical center, and was found to have no suicidal or homicidal ideation.[3][28] He had pleaded guilty in November 2013 to an April 28 vehicular crash caused by drunken driving. As part of his sentence, he was participating in a county rehabilitation program for veterans.[26][29] Stone had previously had two other drunken-driving incidents, one that occurred in 2001 and the other in 2004.[5]
+
+------------------------------------
+
+[Hongcheon shooting](https://amok.fandom.com/wiki/Cho_Sang_Kook)\
+Hongcheon, South Korea\
+January 23, 1958\
+7 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**Cho Sang Kook, 27**\
+South Korean Army
+
+Source(s):
+1. [Cho Sang Kook - Amok Wiki](https://amok.fandom.com/wiki/Cho_Sang_Kook)
+>Cho Sang Kook (Korean: 조상구/趙相九) was a South Korean army captain who killed six people in Hongcheon, South Korea during the night of January 23, 1958.[1][2][3][4][5][6]
+
+------------------------------------
+
+[Hackettstown trail shooting](https://www.nytimes.com/1977/08/29/archives/quarrels-at-home-cited-as-cause-in-jersey-shootings.html)\
+Hackettstown, New Jersey\
+August 26, 1977\
+7 killed
+
+Perpetrator(s):\
+**Emil Benoist, 20**\
+United States Marine Corps (USMC); United Department of Veterans Affairs (DVA) psychiatric associates (Lyons Veterans Hospital)
+
+Source(s):
+1. [Suspect in Jersey Sniper Killings Had Extensive Psychiatric Record](https://www.nytimes.com/1977/08/30/archives/suspect-in-jersey-sniper-killings-had-extensive-psychiatric-record.html)
+>Emile Pierre Benoist, who killed himself after murdering six persons at random last Friday, was ordered 10 months ago to undergo psychiatric treatment, but he did not.
+>
+>The order, issued on Oct. 27, 1976, came to light today together with other details that indicated that Mr. Benoist's psychiatric and police records were more extensive than had first been reported. Mr. Benoist developed psychiatric problems and accumulated a police record soon after he left the Marine Corps after 33 days as a recruit. A Municipal Court judge here, William. H. Hibler, ordered him to undergo treatment, but he never did because he refused to sign a waiver.
+>
+>According to Warren County Probation Department officials interviewed tonight, Mr. Benoist was under probation at the time under a conviction last September for carrying two loaded shotguns in his car. The waiver would have allowed the department to obtain records of his previous psychiatric treatment at Lyons Veterans Hospital in Bernard Township.
+
+------------------------------------
+
+[Oyoun Qara massacre](https://en.wikipedia.org/wiki/Ami_Popper#Murders)\
+Rishon LeZion, Israel\
+May 20, 1990\
+7 killed
+
+Perpetrator(s):
+**Ami Popper**\
+Israel Defense Forces (IDF); Israel Defense Forces (IDF) brother
+
+Source(s):
+1. [Ami Popper - Background](https://en.wikipedia.org/wiki/Ami_Popper#Background)
+>Ami Popper was born in 1969 in Rishon Lezion, Israel, and had served in the Israel Defense Force (IDF) until he was dishonorably discharged. Reportedly, Popper was punished for inappropriate use of weapons during his military service, where he had attempted to commit suicide, for which he was imprisoned. 
+
+2. [Ami Popper - Murders](https://en.wikipedia.org/wiki/Ami_Popper#Murders)
+>On May 20, 1990, Popper, a dishonorably-discharged soldier, put on Israel Defense Forces uniform trousers, stolen from his brother, an active duty soldier.[3] He also stole his brother's assault rifle and five ammunition clips.[4] At around 6:15 a.m., he spotted a group of Palestinian workers from the Gaza Strip at a bus stop in the city of Rishon Lezion, waiting to be picked up for laboring jobs in Israel. Suspecting they were Arab, he demanded to see their identity cards. After confirming they were Arabs he ordered them to line up in three rows, on their knees. He then opened fire with an M16, and left the scene in his car. 7 Palestinians were killed immediately, while a further 10/11 were wounded badly. Palestinian reports state that, on arriving at the scene, Israeli police proceeded to beat up the surviving Palestinians.[2][5][6] Within an hour, he was arrested.
+>
+>In clashes that arose as Palestinians throughout the territories protested, Israeli security forces, while suppressing the protests, killed a further seven people, including a 14-year-old boy[2] After a week of clashes, 19 Palestinians were killed,[2] while around 700 more suffered injuries. Yitzhak Shamir dismissed his act as of no political significance since Popper was "deranged". The court found him sane and fit to stand trial.[7]
+>
+>Popper first told police that his attacks were a reaction to the First Intifada, later claiming to have been distraught because his girlfriend had decided to leave him. He also stated that he had been raped by an Arab when he was 13 and had committed these killings out of shame and a desire for revenge.[8] Two days later rabbi Meir Kahane held a celebration of his deed in Rishon LeZion.[9]
+
+------------------------------------
+
+[Gamardjveba shooting]https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military)\
+Gamardjveba, Georgia\
+June 24, 1997\
+7 killed
+
+Perpetrator(s):\
+**Zurab Chkheidze / Petre Kamkamidze**\
+Georgian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[1999 Xerox shootings](https://en.wikipedia.org/wiki/1999_Honolulu_shootings)\
+Honolulu, Hawaii\
+November 2, 1999\
+7 killed
+
+Perpetrator(s):\
+**Byran Uyesugi, 40**\
+United States Junior Reserve Officers' Training Corps (JROTC); United States Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor employer (Xerox Corporation)
+
+Source(s):
+1. [1999 Honolulu shootings - Perpetrator](https://en.wikipedia.org/wiki/1999_Honolulu_shootings#Perpetrator)
+>Born in Honolulu in 1959, Byran Koji Uyesugi grew up in the Nuuanu neighborhood. While attending Roosevelt High School, Uyesugi was a member of the school's Army JROTC chapter and the school's rifle team. Classmates remembered him as a quiet student who never got into trouble. According to his brother Dennis, Uyesugi crashed their father's car and hit his head on the windshield shortly after graduating high school in 1977; he was never the same afterwards.[3]
+>
+>Uyesugi had been employed by Xerox as a technician since 1984. Among his hobbies was raising and breeding goldfish and koi, which he would sell to local pet stores. He had an extensive collection of firearms. At the time of the murders he had as many as 25 guns registered in his name, dating to 1982. Police also took eleven handguns, five rifles and two shotguns from Uyesugi's father.[4]
+>
+>According to testimony from Uyesugi's father, Hiroyuki, Uyesugi was normal until he started working for Xerox in 1984. In 1988, Byran started to complain that he had a poking sensation in his head.[5][6][7]
+>
+>After being transferred to another workgroup, Uyesugi began making unfounded accusations of harassment and product tampering against fellow repairmen. They had difficulty dealing with him. Former co-workers who knew him reported the other members of his team allegedly ostracized him, making him feel isolated and withdrawn. Uyesugi reportedly made threats against other co-workers' lives. In 1993, he was ordered to undergo psychiatric evaluation and anger management courses after he kicked in and damaged an elevator door. Uyesugi was arrested for third-degree criminal property damage.[4] Co-workers told Dr. Michael Welner, chairman of the Forensic Panel and the forensic psychiatrist who interviewed Uyesugi prior to trial, that as early as 1995, Uyesugi was openly talking of carrying out a mass shooting at the workplace were he to be fired.[4] He complained that his co-workers were engaged in patterns of harassment, backstabbing behavior, and spreading of rumors.[8]
+>
+>In the period leading up to the shootings, Xerox management had become increasingly committed to phasing out the type of photocopier that Uyesugi serviced. He resisted learning the replacement machine, fearing that he could not keep up with its technical demands. After working around his refusal to train on the new machine, Uyesugi's manager insisted on November 1, 1999, that he would begin training the next day. In his interview with Dr. Michael Welner, who examined Uyesugi when the defendant brought an insanity defense, Uyesugi said he had believed that if he refused to take the training, management would fire him. He told Dr. Welner, "I decided to give them a reason to fire me."[8]
+
+2. [Xerox's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=Xerox+CIA)
+
+3. [Xerox's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Xerox+Department+of+Defense)
+
+------------------------------------
+
+[Wakefield massacre](https://en.wikipedia.org/wiki/Wakefield_massacre)\
+Wakefield, Massachusetts\
+December 26, 2000\
+7 killed
+
+Perpetrator(s):\
+**Michael Morgan McDermott, 42**\
+United States Navy (USN); United States Department of Energy (DOE) contractor employer (Maine Yankee Nuclear Power Plant); United States Department of Defense (DOD) contractor employer (Duracell)
+
+Sources:
+1. [Wakefield massacre - Perpetrator](https://en.wikipedia.org/wiki/Wakefield_massacre#Perpetrator)
+>On June 28 of [1976], McDermott enlisted in the United States Navy and served in several submarine training schools until September 1, 1977, when he was assigned to the Nuclear Power Training Unit in Idaho Falls. From April 5, 1978 to April 23, 1982, he served as an electrician on the USS Narwhal and was finally sent to the Personnel Support Detachment at the naval station in Charleston, South Carolina. In 1980, he changed his name to Michael Morgan McDermott. On June 27, 1982, McDermott was honorably discharged with the rank of Electrician's Mate Petty Officer Second Class.
+>
+>From 1982 to 1988, McDermott worked for the Maine Yankee Nuclear Power Plant, where he trained to become a reactor operator, though never managed to attain the position. After quitting his job at the power plant, he moved to Weymouth, Massachusetts and began working as a technologist in the battery products group of Duracell in Needham in 1990.\
+>[...]\
+>In February 2000, McDermott resigned from his job at Duracell when the company was about to move to Bethel, Connecticut, although he was offered a job at the new location, and ultimately joined Edgewater Technology in March.
+
+2. [Duracell - Origins](https://en.wikipedia.org/wiki/Duracell#Origins)
+>Duracell originated via the partnership of scientist Samuel Ruben and businessman Philip Rogers Mallory, who met during the 1920s. The P. R. Mallory Company of Burlington, Massachusetts, United States, relocated its headquarters to Indianapolis, Indiana, in 1924. The company produced mercury batteries for military equipment,[4] trumping the carbon-zinc batteries used then in virtually all applications. In 1956, P. R. Mallory & Co. acquired General Dry Batteries, Inc. (GDB) with headquarters in Cleveland, Ohio. GDB was then the third-largest U. S. manufacturer of zinc-carbon batteries and had made mercury batteries under license from P. R. Mallory during World War II and after the war until its acquisition in 1956.[5] During the 1950s, Kodak introduced cameras with a flash. The design required a new zinc-carbon cell size, and size AAA was developed.[4]
+>
+>In 1964, the term "Duracell" was introduced as a brand, from "durable cell". Until 1980, the batteries also bore the Mallory brand.
+
+------------------------------------
+
+[2018 Scottsdale shootings](https://en.wikipedia.org/wiki/2018_Scottsdale_shootings)\
+Scottsdale, Arizona\
+May 30 - June 4, 2018\
+7 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**Dwight Lamon Jones, 56**\
+United States Army (USA)
+
+Source(s):
+1. [Dwight Lamon Jones: 5 Fast Facts You Need to Know](https://heavy.com/news/2018/06/dwight-lamon-jones/)
+>Records show Jones was arrested in June 1984 in Cumberland, North Carolina on misdemeanor traffic charges. Details of that case were not immediately clear, but his address at the time was listed as Fort Bragg. The U.S. Army has not confirmed whether Jones was an active duty soldier stationed there at the time of the arrest.
+
+2. [Scottsdale shooting suspect left divorce full of discord, YouTube channel full of grudges](https://www.azcentral.com/story/news/local/scottsdale-breaking/2018/06/04/dwight-jones-scottsdale-shooting-suspect-left-divorce-records-youtube-grudges/669867002/)
+>Jones was born in North Carolina, according to public records, then graduated from a Missouri high school before joining the Army.
+
+3. [2018 Scottsdale shootings - Perpetrator](https://en.wikipedia.org/wiki/2018_Scottsdale_shootings#Perpetrator)
+>The perpetrator was identified as 56-year old Dwight Lamon Jones who had previously been arrested.[3] According to Rich Slavin, an assistant chief with the Scottsdale Police Department, Jones was arrested in 2008 or 2009 on charges of domestic violence, alleging that he mistreated his wife and a child.[9] Jones had been living at Extended Stay hotels for the past nine years.[9] He committed suicide before he was apprehended.
+>
+>His former wife told reporters that she "feared for my safety for the past nine years."[9] In her statement she continued with "He was a very emotionally disturbed person as the court records will confirm."[3] Less than a week before the spree killings Jones used social media to attempt to bring forward allegations that his ex-wife was the abuser and not Jones.[10] Jones created almost 10 hours of content outlining what he viewed as a conspiracy by his ex-wife, psychiatrists, lawyers and the Maricopa County Judicial system to rig a divorce and custody case to steal his son from him.[11]
+
+------------------------------------
+
+[2021 Rock Hill shooting](https://en.wikipedia.org/wiki/2021_Rock_Hill_shooting)\
+Rock Hill, South Carolina\
+April 7, 2021\
+7 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**Phillip Adams, 32**\
+United States Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor employer (National Football League)
+
+Source(s):
+1. [2021 Rock Hill shooting - Wikipedia](https://en.wikipedia.org/wiki/2021_Rock_Hill_shooting)
+>On April 7, 2021, six people, including two children, were shot and killed at a house in Rock Hill, South Carolina, United States. Phillip Adams, a former National Football League player, was named as the perpetrator.[3][4]
+
+2. [Phillip Adams (American football) - Shooting and death](https://en.wikipedia.org/wiki/Phillip_Adams_(American_football)#Shooting_and_death)
+>Adams had no prior criminal record.[29] His father, Alonzo, suggested that his football career may have played a role in the shooting, stating that the sport "messed him up".[28] An autopsy revealed that Adams suffered from an "unusually severe" case of the brain disease chronic traumatic encephalopathy.[30]
+
+3. [National Football League's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=National+Football+League+Department+of+Defense)
+
+4. [National Football League's Connections to the United States Armed Forces](https://www.google.com/search?q=National+Football+League+US+Military)
+
+------------------------------------
+
+[2021 Colorado Springs birthday shooting](https://en.wikipedia.org/wiki/2021_Colorado_Springs_shooting)\
+Colorado Springs, Colorado\
+May 9, 2021\
+7 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**Teodoro Macias, 28**\
+United States Armed Forces associate (name unknown - branch unknown)
+
+Source(s):
+1. [EXCLUSIVE: Colorado man, 28, known as 'Junior' and described by neighbors as 'serious and quiet' is revealed as the Mother's Day massacre shooter who killed six and turned gun on himself](https://www.dailymail.co.uk/news/article-9564135/Teodoro-Macias-Jr-28-known-Junior-killed-six-Colorado-shooting.html)
+>A smashed window at the back of the home showed where a stray round exited while another bullet hole could be seen in the wall of a neighboring trailer. The owner, a veteran who asked not to be named, said he had been watching TV with his family when a bullet crashed through his wall and out the other side. The veteran said the first he knew of the incident was when gunfire broke out and he and his family dropped to the floor. He added: 'This is like the fourth worst massacre in Colorado history and it was right next door to me. We keep thinking about those children. They're in a lot of pain.'
+
+------------------------------------
+
+[1993 World Trade Center bombing](https://en.wikipedia.org/wiki/1993_World_Trade_Center_bombing)\
+New York City, New York\
+February 26, 1993\
+6 killed, 1,042 wounded
+
+Perpetrator(s):\
+**Ramzi Yousef / Mahmud Abouhalima / Mohammed A. Salameh / Nidal A. Ayyad / Abdul Rahman Yasin / Ahmed Mohammad Ajaj / Eyad Ismoil**\
+United States Central Intelligence Agency (CIA); Pakistani Inter-Services Intelligence (ISI); United States Central Intelligence Agency (CIA) / Inter-Services Intelligence (ISI) maternal uncles (Khalid Shaikh Mohammed / Zahid Shaikh Mohammed); United States Central Intelligence Agency (CIA) associates (Al-Kifah Refugee Center); United States Central Intelligence Agency (CIA) associate (Omar Abdel-Rahman); United States Army (USA) Special Operations Forces (SOF) / Central Intelligence Agency (CIA) associate (Ali Mohamed); Egyptian Army / United States Federal Bureau of Investigation (FBI) associate (Emad Salem)
+
+Source(s):
+1. [1986-1993: CIA and Bin Laden Both Closely Tied to Recruiting and Fund-Raising Office for Afghanistan](http://web.archive.org/web/20210214040209/http://www.historycommons.org/context.jsp?item=a86kifahcenter#a86kifahcenter)
+>By the mid-1980s, Osama bin Laden and his mentor Abdullah Azzam jointly founded a charity front based in Pakistan which is called Maktab al-Khidamat (MAK) (which means “services office”) and is also known as Al-Kifah (which means “struggle”) (see 1984). Branches start to open in the US; the first one apparently opens in Tucson, Arizona, where al-Qaeda has a sleeper cell (see 1986). But around 1986, Khaled Abu el-Dahab, the right hand man of double agent Ali Mohamed, informally founds the branch in Brooklyn, New York, and it soon becomes the most important US branch. [NEW YORK TIMES, 10/22/1998; BURR AND COLLINS, 2006, PP. 269-270] On December 29, 1987, three men, Mustafa Shalabi, Fawaz Damra, and Ali Shinawy, formally file papers incorporating Al-Kifah, which is called the Al-Kifah Refugee Center. At first, it is located inside the Al Farouq mosque, which is led by Damra. But eventually it will get it own office space next to the mosque. Shalabi, a naturalized citizen from Egypt, runs the office with two assistants: Mahmud Abouhalima, who will later be convicted for a role in bombing the World Trade Center in 1993 (see February 26, 1993), and El Sayyid Nosair, who will assassinate a Jewish leader in New York in 1990 (see November 5, 1990). [NEW YORK TIMES, 4/11/1993; NEWSWEEK, 10/1/2001; CLEVELAND PLAIN DEALER, 11/4/2001] Jamal al-Fadl, a founding member of al-Qaeda and future FBI informant (see June 1996-April 1997), also works at the Al-Kifah Refugee Center in its early days. [MILLER, STONE, AND MITCHELL, 2002, PP. 155] The Brooklyn office recruits Arab immigrants and Arab-Americans to go fight in Afghanistan, even after the Soviets withdraw in early 1989. As many as 200 are sent there from the office. Before they go, the office arranges training in the use of rifles, assault weapons, and handguns, and then helps them with visas, plane tickets, and contacts. They are generally sent to the MAK/Al-Kifah office in Peshawar, Pakistan, and then connected to either the radical Afghan faction led by Abdul Rasul Sayyaf or the equally radical one led by Gulbuddin Hekmatyar. [NEW YORK TIMES, 4/11/1993] The CIA has some murky connection to Al-Kifah that has yet to be fully explained. Newsweek will later say the Brooklyn office “doubled as a recruiting post for the CIA seeking to steer fresh troops to the mujaheddin” fighting in Afghanistan. At the same time, the Brooklyn office is where “veterans of [the Afghan war arrived] in the United States—many with passports arranged by the CIA.” [NEWSWEEK, 10/1/2001] Robert I. Friedman, writing for New York magazine, will comment that the Brooklyn office was a refuge for ex- and future mujaheddin, “But the highlight for the center’s regulars were the inspirational jihad lecture series, featuring CIA-sponsored speakers.… One week on Atlantic Avenue, it might be a CIA-trained Afghan rebel traveling on a CIA-issued visa; the next, it might be a clean-cut Arabic-speaking Green Beret, who would lecture about the importance of being part of the mujaheddin, or ‘warriors of the Lord.’ The more popular lectures were held upstairs in the roomier Al-Farouq Mosque; such was the case in 1990 when Sheikh [Omar] Abdul-Rahman, traveling on a CIA-supported visa, came to town.” One frequent instructor is double agent Ali Mohamed, who is in the US Special Forces at the time (see 1987-1989). Bin Laden’s mentor Azzam frequently visits and lectures in the area. In 1988, he tells “a rapt crowd of several hundred in Jersey City, ‘Blood and martyrdom are the only way to create a Muslim society.… However, humanity won’t allow us to achieve this objective, because all humanity is the enemy of every Muslim.’” [NEW YORK MAGAZINE, 3/17/1995] Ayman Al-Zawahiri, future Al-Qaeda second in command, makes a recruiting trip to the office in 1989 (see Spring 1993). [NEW YORKER, 9/9/2002] The Brooklyn office also raises a considerable amount of money for MAK/Al-Kifah back in Pakistan. The Independent will later call the office “a place of pivotal importance to Operation Cyclone, the American effort to support the mujaheddin. The Al-Kifah [Refugee Center was] raising funds and, crucially, providing recruits for the struggle, with active American assistance.” [INDEPENDENT, 11/1/1998] Abdul-Rahman, better known as the “Blind Sheikh,” is closely linked to bin Laden. In 1990, he moves to New York on another CIA-supported visa (see July 1990) and soon dominates the Al-Kifah Refugee Center. Shalabi has a falling out with him over how to spend the money they raise and he is killed in mysterious circumstances in early 1991, completing Abdul-Rahman’s take over. Now, both the Brooklyn and Pakistan ends of the Al-Kifah/MAK network are firmly controlled by bin Laden and his close associates. In 1998, the US government will say that al-Qaeda’s “connection to the United States evolved from the Al-Kifah Refugee Center.” Yet there is no sign that the CIA stops its relationship with the Brooklyn office before it closes down shortly after the 1993 WTC bombing. [NEW YORK TIMES, 10/22/1998]
+
+2. [January 24, 1994: CIA Concludes It Is ‘Partly Culpable’ for WTC Bombing](http://web.archive.org/web/20210629090113/http://www.historycommons.org/context.jsp?item=a012498partlyculpable#a012498partlyculpable)
+>The Boston Herald reports that an internal CIA report has concluded that the agency is “partially culpable” for the 1993 World Trade Center bombing (see February 26, 1993) because it helped train and support some of the bombers. One source with knowledge of the report says, “It was determined that a significant amount of blowback appeared to have occurred.” A US intelligence source claims the CIA gave at least $1 billion to forces in Afghanistan connected to Gulbuddin Hekmatyar. More than a half-dozen of the WTC bombers belonged to this faction, and some of the CIA money paid for their training. The source says, “By giving these people the funding that we did, a situation was created in which it could be safely argued that we bombed the World Trade Center.” Those connected to the bombing who went to Afghanistan include Sheikh Omar Abdul-Rahman, Clement Rodney Hampton-el, Siddig Siddig Ali, Ahmed Ajaj, and Mahmud Abouhalima. [BOSTON HERALD, 1/24/1994] Additionally, Ramzi Yousef trained in Afghanistan near the end of the Afghan war, and there are claims he was recruited by the CIA (see Late 1980s). “Intelligence sources say the CIA used the Al-Kifah Refugee Center in Brooklyn—founded to support the Afghani rebels fighting Soviet occupation—to funnel aid to Hekmatyar, setting the stage for terrorists here to acquire the money, guns and training needed to later attack the Trade Center. CIA support also made it easier for alleged terrorist leaders to enter the country.” [BOSTON HERALD, 1/24/1994] It will later be alleged that the CIA repeatedly blocked investigations relating to Al-Kifah, which was al-Qaeda’s operational base in the US (see Late 1980s and After).
+
+3. [Late 1980s: Ramzi Yousef Recruited by CIA?](http://web.archive.org/web/20210629020000/http://www.historycommons.org/context.jsp?item=a1980syousefcia#a1980syousefcia)
+>Al-Qaeda bomber Ramzi Yousef is said to be recruited by the CIA, though details are not known. Author Richard Labeviere reported without elaboration in a 1999 book, “A classified FBI file indicates that [Yousef] was recruited by the local branch of the CIA.” [LABEVIERE, 1999, PP. 220-221] In 1995, Newsday will report, “FBI officials also are considering a probe of whether the CIA had any relationship with Yousef, who fought with the CIA-financed mujaheddin in Afghanistan in the 1980s.” [NEWSDAY, 4/16/1995] But there appears to be no further reporting on whether such a probe was conducted. Yousef is believed to have masterminded a series of bombings in the early 1990s, including the 1993 World Trade Center bombing and the planned Bojinka attack, before being captured in 1995 (see February 7, 1995). If Yousef was recruited by the CIA, it may have been in the late 1980s when the CIA recruited and trained thousands of people around the world to fight in Afghanistan (see 1986-1992). In the late 1980s, Yousef was studying engineering at a Wales college, but he’d also joined the Muslim Brotherhood while there. During a break from school in 1988, he went to one of bin Laden’s training camps in Afghanistan and spent several months honing his bomb-making skills. [MILLER, STONE, AND MITCHELL, 2002, PP. 78]
+
+4. [1988-Spring 1995: KSM’s Brother Works for Charity Allegedly Connected to CIA](http://web.archive.org/web/20210629001538/http://www.historycommons.org/context.jsp?item=a93zahidmercy#a93zahidmercy)
+>Zahid Shaikh Mohammed, the brother of 9/11 mastermind Khalid Shaikh Mohammed (KSM), works as the head of the Pakistani branch of the charity Mercy International. A book published in 1999 will allege that this charity, based in the US and Switzerland, was used by the CIA to funnel money to Muslim militants fighting against US enemies in places such as Bosnia and Afghanistan (see 1989 and After). It is not known when Zahid got involved with the charity, but he is heading its Pakistani branch by 1988, when his nephew Ramzi Yousef first goes to Afghanistan (see Late 1980s). [REEVE, 1999, PP. 120] In the spring of 1993, US investigators raid Zahid’s house while searching for Yousef (see Spring 1993). Documents and pictures are found suggesting close links and even a friendship between Zahid and Osama bin Laden. Photos and other evidence also show close links between Zahid, KSM, and government officials close to Nawaf Sharif, who is prime minister of Pakistan twice in the 1990s. The investigators also discover that Zahid was seen talking to Pakistani President Farooq Ahmad Khan Leghari during a Mercy International ceremony in February 1993. [REEVE, 1999, PP. 48-49, 120] But despite the raid, Zahid apparently keeps his job until about February 1995, when Yousef is arrested in Pakistan (see February 7, 1995). Investigators learn Yousef had made a phone call to the Mercy office, and there is an entry in Yousef’s seized telephone directory for a Zahid Shaikh Mohammed. Pakistani investigators raid the Mercy office, but Zahid has already fled. [UNITED PRESS INTERNATIONAL, 4/11/1995; GUARDIAN, 9/26/2001; MCDERMOTT, 2005, PP. 154, 162] It is unclear what subsequently happens to Zahid. In 1999 it will be reported that he is believed to be in Kuwait, but in 2002 the Kuwaiti government will announce he is a member of al-Qaeda, so presumably he is no longer welcome there. [REEVE, 1999, PP. 48; LOS ANGELES TIMES, 9/1/2002] Mercy International’s Kenya branch will later be implicated in the 1998 US embassy bombing in that country, as will KSM, Zahid’s brother (see Late August 1998).
+
+5. [Summer 1989: Ali Mohamed Uses His US Military Expertise to Train Muslim Radicals](http://web.archive.org/web/20180114085351/http://www.historycommons.org/context.jsp?item=asummer89alialkifah#asummer89alialkifah)
+>Ali Mohamed, a spy for bin Laden working in the US military, trains Islamic radicals in the New York area. Mohamed is on active duty at Fort Bragg, North Carolina, at the time, but he regularly comes to Brooklyn on the weekends to train radicals at the Al-Kifah Refugee Center, a charity connected to both bin Laden and the CIA. Lawyer Roger Savis will later say, “He came quite often and became a real presence in that [Al-Kifah] office, which later metastasized into al-Qaeda.… He would bring with him a satchel full of military manuals and documents. It was Ali Mohamed who taught the men how to engage in guerrilla war. He would give courses in how to make bombs, how to use guns, how to make Molotov cocktails.” Mohamed’s gun training exercises take place at five different shooting ranges. One series of shooting range sessions in July 1989 is monitored by the FBI (Mohamed apparently is not at those particular sessions in person) (see July 1989). Mohamed’s trainees include most of the future bombers of the World Trade Center in 1993. [LANCE, 2006, PP. 47-49]
+
+6. [July 1989: FBI Monitors Future Bombers’ Weapons Training Sessions; Fails to Follow Up](http://web.archive.org/web/20201117120007/http://www.historycommons.org/context.jsp?item=a0789calverton#a0789calverton)
+>FBI agents photograph Islamic radicals shooting weapons at the Calverton Shooting Range on Long Island, New York. The radicals are secretly monitored as they shoot AK-47 assault rifles, semiautomatic handguns, and revolvers for four successive weekends. The use of weapons such as AK-47’s is illegal in the US, but this shooting range is known to be unusually permissive. Ali Mohamed is apparently not at the range but has been training the five men there: El Sayyid Nosair, Mahmud Abouhalima, Mohammed Salameh, Nidal Ayyad, and Clement Rodney Hampton-El. Nosair will assassinate Rabbi Meir Kahane one year later (see November 5, 1990) and the others, except Hampton-El, will be convicted of the 1993 World Trade Center bombing (see February 26, 1993), while Hampton-El will be convicted for a role in the “Landmarks” bombing plot (see June 24, 1993). Some FBI agents have been assigned to watch some Middle Eastern men who are frequenting the Al-Kifah Refugee Center in Brooklyn. Each weekend, Mohamed’s trainees drive from Al-Kifah to the shooting range and a small FBI surveillance team follows them. The FBI has been given a tip that some Palestinians at Al-Kifah are planning violence targeting Atlantic City casinos. By August, the casino plot will have failed to materialize and the surveillance, including that at the shooting range, will have come to an end. Author Peter Lance will later comment that the reason why the FBI failed to follow up the shooting sessions is a “great unanswered question.” [LANCE, 2003, PP. 29-33; NEW YORK TIMES, 10/5/2003]
+
+7. [November 5, 1990 and After: US Promotes Lone Gunman Theory in Kahane Assassination, Hiding Evidence of Al-Qaeda Links](http://web.archive.org/web/20180114094842/http://www.historycommons.org/context.jsp?item=a110590lonegunmantheory#a110590lonegunmantheory)
+>US government agencies cover up evidence of a conspiracy in the wake of El Sayyid Nosair’s assassination of controversial right-wing Zionist leader Rabbi Meir Kahane (see November 5, 1990). Nosair is captured a few blocks from the murder site after a police shoot-out. An FBI informant says he saw Nosair meeting with Muslim leader Sheikh Omar Abdul-Rahman a few days before the attack, and evidence indicating a wider plot with additional targets is quickly found. [VILLAGE VOICE, 3/30/1993] Later that night, police arrive at Nosair’s house and find a pair of Middle Eastern men named Mahmud Abouhalima and Mohammed Salameh there. They are taken in for questioning. Additionally, police collect a total of 47 boxes of evidence from Nosair’s house, including: [LANCE, 2003, PP. 34-35]
+>
+>- Thousands of rounds of ammunition.
+>- Maps and drawings of New York City landmarks, including the World Trade Center.
+>- Documents in Arabic containing bomb making formulas, details of an Islamic militant cell, and mentions of the term “al-Qaeda.”
+>- Recorded sermons by Sheikh Omar Abdul-Rahman in which he encourages his followers to “destroy the edifices of capitalism” and destroy “the enemies of Allah” by “destroying their… high world buildings.”
+>- Tape-recorded phone conversations of Nosair reporting to Abdul-Rahman about paramilitary training, and even discussing bomb-making manuals.
+>- Videotaped talks that Ali Mohamed delivered at the John F. Kennedy Special Warfare Center at Fort Bragg, North Carolina.
+>- Top secret manuals also from Fort Bragg. There are even classified documents belonging to the US Joint Chiefs of Staff and the Commander in Chief of the Army’s Central Command. These manuals and documents had clearly come from Mohamed, who completed military service at Fort Bragg the year before and frequently stayed in Nosair’s house.
+>- A detailed and top secret plan for Operation Bright Star, a special operations training exercise simulating an attack on Baluchistan, a part of Pakistan between Afghanistan and the Arabian Sea. [RALEIGH NEWS AND OBSERVER, 10/21/2001; RALEIGH NEWS AND OBSERVER, 11/13/2001; WALL STREET JOURNAL, 11/26/2001; ABC NEWS, 8/16/2002; LANCE, 2003, PP. 34-35]
+>-Also within hours, two investigators will connect Nosair with surveillance photographs of Mohamed giving weapons training to Nosair, Abouhalima, Salameh, and others at a shooting range the year before (see July 1989). [LANCE, 2003, PP. 34-35] But, ignoring all of this evidence, still later that evening, Joseph Borelli, the New York police department’s chief detective, will publicly declare the assassination the work of a “lone deranged gunman.” He will further state, “I’m strongly convinced that he acted alone.… He didn’t seem to be part of a conspiracy or any terrorist organization.” The 9/11 Congressional Inquiry will later conclude, “The [New York Police Department] and the District Attorney’s office… reportedly wanted the appearance of speedy justice and a quick resolution to a volatile situation. By arresting Nosair, they felt they had accomplished both.” [VILLAGE VOICE, 3/30/1993; LANCE, 2003, PP. 34-36] Abouhalima and Salameh are released, only to be later convicted for participating in the 1993 bombing of the World Trade Center. Investigators will later find in Nosair’s possessions a formula for a bomb almost identical to one used in the WTC bombing. [NEW YORK MAGAZINE, 3/17/1995] As one FBI agent will later put it, “The fact is that in 1990, myself and my detectives, we had in our office in handcuffs, the people who blew up the World Trade Center in ‘93. We were told to release them.” The 47 boxes of evidence collected at Nosair’s house that evening are stored away, inaccessible to prosecutors and investigators. The documents found will not be translated until after the World Trade Center bombing. Nosair will later be acquitted of Kahane’s murder (though he will be convicted of lesser charges), as investigators will continue to ignore all evidence that could suggest Nosair did not act alone (see December 7, 1991). [ABC NEWS, 8/16/2002; LANCE, 2003, PP. 34-37] District Attorney Robert Morgenthau, who prosecuted the case, will later speculate the CIA may have encouraged the FBI not to pursue any other leads. Nosair worked at the Al-Kifah Refugee Center which was closely tied to covert CIA operations in Afghanistan (see Late 1980s and After). [NEW YORK MAGAZINE, 3/17/1995]
+
+8. [February 26, 1993: WTC Is Bombed but Does Not Collapse, as Bombers Had Hoped](http://web.archive.org/web/20180114100837/http://www.historycommons.org/context.jsp?item=a022693wtcbombing#a022693wtcbombing)
+>An attempt to topple the World Trade Center fails, but six people are killed and over 1000 are injured in the misfired blast. An FBI explosives expert later states that, “If they had found the exact architectural Achilles’ heel or if the bomb had been a little bit bigger, not much more, 500 pounds more, I think it would have brought her down.” Ramzi Yousef, who has close ties to bin Laden, organizes the attempt. [VILLAGE VOICE, 3/30/1993; US CONGRESS, 2/24/1998] The New York Times later reports on Emad Salem, an undercover agent who will be the key government witness in the trial against Yousef. Salem testifies that the FBI knew about the attack beforehand and told him they would thwart it by substituting a harmless powder for the explosives. However, an FBI supervisor called off this plan, and the bombing was not stopped. [NEW YORK TIMES, 10/28/1993] Other suspects were ineptly investigated before the bombing as early as 1990. Several of the bombers were trained by the CIA to fight in the Afghan war, and the CIA later concludes, in internal documents, that it was “partly culpable” for this bombing (see January 24, 1994). [INDEPENDENT, 11/1/1998] 9/11 mastermind Khalid Shaikh Mohammed is an uncle of Yousef and also has a role in the WTC bombing (see March 20, 1993). [INDEPENDENT, 6/6/2002; LOS ANGELES TIMES, 9/1/2002] One of the attackers even leaves a message which will later be found by investigators, stating, “Next time, it will be very precise.” [ASSOCIATED PRESS, 9/30/2001]
+
+------------------------------------
+
+[Waukesha parade attack](https://en.wikipedia.org/wiki/Waukesha_parade_attack)\
+Waukesha, Wisconsin\
+November 21, 2021\
+6 killed, 62 wounded
+
+Perpetrator(s):\
+**Darrell Edward Brooks Jr., 39**\
+United States Central Intelligence Agency (CIA) associate (Logan Needham - Hollywood) United States Central Intelligence Agency (CIA) / Federal Government mutual associates (Logan Needham - Crystal Darkness documentary)
+
+Source(s):
+1. [The life and crimes of accused Waukesha Christmas parade killer Darrell Brooks](https://nypost.com/2021/11/25/darrell-brooks-long-life-of-crime-before-waukesha-christmas-parade-attack/)
+>Brooks was just 11 years old when he was diagnosed with bipolar disorder and depression while growing up in the inner-city of Milwaukee without his father, court records show.
+>
+>He was admitted to a mental hospital at 12 and attempted suicide numerous times in his early years after losing his grandmother and watching his father abuse his mom, papers say.\
+>[...]\
+>A year after Brooks was charged with his first felony in 1999 at age 17 for substantial battery intending bodily harm, he was given three years of probation. But he soon found himself tangled up in the law once again, being hit with misdemeanor charges in 2002 and 2003 over separate incidents.
+>
+>In 2005, he moved to Reno, Nevada, in a bid for a fresh start but within a year, he was charged with statutory sexual seduction and contributing to the delinquency of a minor after he raped and impregnated a teen girl who he claims told him she was 18 at the time. 
+>
+>He settled the case by pleading guilty but was ordered not to contact the victim — a requirement he repeatedly violated by calling the teen using a stolen phone card and confronting her at a bus stop, landing him back in jail where he served just 129 days, records show.
+>
+>As a result of that conviction, Brooks was forced to register as a sex offender in the state and during his time behind bars, he participated in a 2007 documentary called “Crystal Darkness.”
+>
+>He told filmmaker Logan Needham about his struggles with methamphetamines and his failures as a father. 
+>
+>“I thought I would be this wonderful father, the greatest dad ever … I’m going to give him everything that I didn’t have. Then it’s like, reality setting in. You actually become the drug,” Brooks said in the film of his addiction.  
+>
+>Needham told The Post he recalled Brooks “seemed very genuine” in his desire to turn his life around.
+>
+>“We interviewed people who killed and other really bad stuff, and now they were reaping the consequences from that,” Needham said this week. “It was always very sad. But with [Brooks], I felt like he definitely had remorse. And I think he felt bad about the decisions he had made to land him where he was.”
+>
+>Needham said over the years, he would sometimes get updates on the inmates he interviewed, but he lost track of Brooks and said he was shocked to hear he was the suspect connected to the Waukesha Christmas parade tragedy.  
+
+2. [Logan Needham - IMDb](https://www.imdb.com/name/nm3003612/)
+
+3. [Crystal Darkness - Wikipedia](https://en.wikipedia.org/wiki/Crystal_Darkness)
+>Crystal Darkness is a 30-minute documentary film on the dangers and prevalence of the drug methamphetamine. The film features testimonies of young people who have gone through meth addiction, as well as interviews with high-profile politicians and law enforcement officials.[1]
+>[...]\
+>Starring\
+>John McCain\
+>Jon Kyl\
+>Childhelp Founders Sara O'Meara and Yvonne Fedderson\
+>Joe Arpaio
+
+4. [Crystal Darkness - Childhelp sponsorship](https://en.wikipedia.org/wiki/Crystal_Darkness#Childhelp_sponsorship)
+>The program is sponsored by Childhelp, a national child abuse prevention and treatment non-profit organization. Childhelp is responsible for maintaining the program’s hot line, 1-888-METH-AID, in addition to its child abuse hot line, 1-800-4-A-CHILD. The non-profit organization reports over two-thirds of the cases of child abuse it handles have a direct correlation to meth use or production by the child’s parents or guardian.[8]
+
+5. [Childhelp - Founders](https://en.wikipedia.org/wiki/Childhelp#Founders)
+>Sara O'Meara (then Sara Buckner) and Yvonne Lime Fedderson (then Yvonne Lime) first met in 1958 on the set of the ABC situation comedy, The Adventures of Ozzie & Harriet.[3] The two played the part of Ricky Nelson's girlfriend and quickly became friends.
+>
+>While on a government-sponsored goodwill tour to support the troops in Tokyo the pair founded Childhelp in 1959 when they opened International Orphans to support 11 Japanese-American children found wandering the streets, unable to get into any orphanages because of their mixed heritage. Within three weeks the number of children increased to 100.
+>
+>Over the years Childhelp became one of the largest child abuse prevention and treatment non-profit organizations and operate today as Chairman and CEO (Sara) and President (Yvonne). Their efforts have won them more than 100 awards and honors. The most recent award in June 2008, was the 2008 Most Dynamic Woman Award from Clarins USA. Sara and Yvonne have been nominated for the Nobel Peace Prize for five consecutive years from 2005–2009, receiving endorsements from prestigious figures such as former U.S. Supreme Court Justice Sandra Day O'Connor and former First Lady Barbara Bush.[4][5]
+
+5. [Childhelp - Sara O'Meara](https://en.wikipedia.org/wiki/Childhelp#Sara_O'Meara)
+>As Childhelp Co-Founder, Chairman and CEO Sara O'Meara is actively involved in the development and oversight of the organization. Sara serves as the organization's key spokesperson and is primarily responsible for fund development and overall oversight of the organization's business. She has served on the boards of international organizations concerned with child welfare. As a board member for the International Union for Child Welfare, she was the sole United States representative among First Ladies and ministers of numerous nations. She also served as chairman of the International Alliance of Child Abuse and Neglect.
+>
+>Sara has received more than 100 awards for her service to children, including the Arizona Foundation for Women's Sandra Day O'Connor Award received in 2004. Most recently, Sara was awarded the 2008 Most Dynamic Woman of the Year award from Clarins USA. Others include an award for international collaboration to prevent child abuse presented by the Queen Elizabeth II of the United Kingdom; a U.S. Department of Justice award presented by President Ronald Reagan; the Kiwanis World Service Medal and an award from the National Federation of Business and Professional Women's Clubs. She has been the recipient of several awards in Washington, D.C., including the National Caring Award and the Hubert Humphrey Memorial Award at the Touchdown Club, and the Lifetime Achievement Award at the National Charity Awards Dinner. Sara, along with co-founder Yvonne Fedderson, have been nominated for the fourth time for the Nobel Peace Prize. Endorsements for the prestigious nomination include letters from U.S. Supreme Court Justice Sandra Day O'Connor and former First Lady Barbara Bush, along with numerous politicians, educators and corporate executives.
+>
+>Sara O'Meara was born Sara Buckner in Knoxville, Tennessee and was educated at Briarcliff Junior College, New York; Endicott College, Massachusetts; The Sorbonne, France; and Pasadena Playhouse, California. Sara lives in Paradise Valley, Arizona. She has a son, John Hopkins. Her other son, Charles, died in 1988 in an auto accident. Sara also has two stepdaughters, Taryn and Whitney, and three grandchildren. Sara lost her husband Colonel Robert (Bob) Sigholtz in 2005. Bob was a highly decorated Colonel who fought in three wars – World War II, the Korean War and the Vietnam War. He was also the Athletic Director of Georgetown University.
+
+6. [Childhelp - Yvonne Fedderson](https://en.wikipedia.org/wiki/Childhelp#Yvonne_Fedderson)
+>As a Childhelp Co-Founder and President, Yvonne Fedderson is actively involved in the development and oversight of the organization. Yvonne's focus is upon developing and supporting the organization's more than 25 chapters and auxiliaries. More than 2,500 volunteers nationwide organize fund-raising events in their communities, which raise more than $2 million annually.
+>
+>Since 1994, Yvonne has also served as president and CEO of her late husband's company, Don Fedderson Productions. Her responsibilities include managing the rights of the television programs he produced, including Family Affair, My Three Sons, and The Betty White Show. She has served on the company's board of directors for more than 30 years. Yvonne, a graduate of the Pasadena Playhouse, under the name of Yvonne Lime, has had an extensive acting career in film, television and stage.
+>
+>Yvonne has been active in a number of humanitarian organizations including the Assistance League, and the Mary and Joseph League, as well as several professional organizations. She also has served on the board of directors of Children to Children, Inc. and is an honorary board member for The Dyslexia Foundation.
+>
+>Yvonne has received more than 100 honors and awards for her service to children, some of which include the National Children's Alliance's Champions of Children Award, the State of California Legislature's Woman of the World Award, and the Women's International Center's Living Legacy Award. Most recently, Sara and Yvonne were awarded the 2008 Most Dynamic Woman of the Year award from Clarins USA. She and Sara have also been given the Kiwanis World Service Medal, the American Ireland Fund Humanitarian Award, The University of California Riverside Chancellor's Founder's Award, and Family Circle Magazine's "Women Who Make a Difference." Sara and Yvonne have been nominated for the fourth time for the Nobel Peace Prize. Endorsements for the prestigious nomination include letters from U.S. Supreme Court Justice Sandra Day O'Connor and former First Lady Barbara Bush, along with numerous politicians, educators, and corporate executives.
+>
+>Yvonne Fedderson was born in Glendale, California and now makes her home in Paradise Valley, Arizona. Her daughter Dionne Fedderson also lives in Paradise Valley.
+
+------------------------------------
+
+[Perm State University shooting](https://en.wikipedia.org/wiki/Perm_State_University_shooting)\
+Perm, Russia\
+September 20, 2021\
+6 killed (including 1 perpetrator), 48 wounded
+
+Perpetrator(s):\
+**Timur Bekmansurov, 18**\
+Russian Armed Forces mercenary / Police father (Marat Bekmansurov)
+
+Source(s):
+1. [University massacre 'shooter', 18, regains consciousness after having leg amputated](https://www.dailystar.co.uk/news/world-news/university-massacre-shooter-18-regains-25141681)
+>His father Marat Bekmansurov, 40, who was a policeman before becoming a mercenary soldier in eastern Ukraine and Syria, admitted he had helped his son buy the weapon he allegedly used in the campus bloodbath. “He saved money on his own for this gun, and I added (around £350) for him to buy it,” said the father.
