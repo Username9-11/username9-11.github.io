@@ -4715,6 +4715,22 @@ Source(s):
 >[...]\
 >The reservation of the Red Lake Band of Ojibwe is in northwest Minnesota and is one of two nationally that are "closed"; only Ojibwe tribal members may live there and own land. Its residents suffer high rates of unemployment, violence, and suicide. Housing is poor, and many students do not finish high school.[3] Work opportunities are limited on the reservation, which has a population of more than 5,000. A study in 2004 found that a high proportion of students in high school had thought of suicide.[4]
 
+3. [Red Lake shootings - Motives](https://en.wikipedia.org/wiki/Red_Lake_shootings#Motives)
+>Weise expressed frustration about living in Red Lake, and felt his life was beyond his control. During these years, he got close to his grandfather, Daryl Lussier, Sr., who gave him a bedroom of his own. Lussier, Sr. lived with his companion Michele Sigana. Weise was said to have a good relationship with his grandfather.[2]
+>
+>Although Weise had been separated from his mother and stepfather for years by the time of their divorce in May 2004, he attempted suicide soon after, and again in June 2004. At that time, his aunts[1] and the Red Lake Medical Center arranged for Weise to be taken to a hospital for psychiatric treatment, where he stayed for three days.[2]
+>
+>Weise was prescribed Prozac as an anti-depressant, to be continued as treatment together with counseling. His doctor had increased his dosage a week before the shooting, to 60 mg a day of Prozac.[24] Weise's aunts, with whom he lived much of the time at Red Lake, said they had arranged for his medical care and were concerned about the increase in his dosage.[1] His actions reopened the debate about Prozac use among children and adolescents. In October 2004, the Food and Drug Administration (FDA) had issued a warning about its use, but it is still the only anti-depressant that is FDA-approved for children.[1]
+>
+>Lorene Gurneau, a relative of Weise's paternal grandmother, said she and other family members thought Weise had never gotten over his father's suicide in 1997. In addition, his mother's car accident in 1999 had left her brain damaged and in a nursing home, which meant that he had effectively lost both parents by the age of ten.[2] When his mother's ex-husband refused to take custody of him, he felt like he didn't belong.[22]
+
+4. [Red Lake shootings - Internet activites](https://en.wikipedia.org/wiki/Red_Lake_shootings#Internet_activities)
+>Weise was discovered to have been quite active on the Internet. According to The Smoking Gun, Weise created two violent Flash animations for the flash website Newgrounds, using the alias "Regret". One animation, entitled "Target Practice", features a character who murders three people with a rifle, blows up a police car with a grenade, and kills a Klansman. The 30-second animation ends with the shooter putting the gun in his mouth and pulling the trigger. Weise had created another Flash animation, entitled "Clown", in which a clown kills a man by eating his head.[25]
+>
+>A LiveJournal account, apparently created by Weise, contained three entries posted between December 2004 and January 2005. The weblog was customized to be rendered in black and white. In his posts, Weise expressed his desire for change and salvation in his life.[21]
+>
+>Weise was a fan of the music genre known as horrorcore, and was particular a fan of rappers such as Mars, Jimmy Donn and Prozak.[26] He was known to frequent the Mars website.[citation needed] Jimmy Donn's song "Game Over" (which is a song about a school shooting) was said to be one of Weise's favorite songs, and Weise owned Jimmy Donn's album The Darker Side.[26]
+
 ------------------------------------
 
 [1974 Seoul shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
@@ -6698,7 +6714,7 @@ September 27, 2012\
 
 Perpetrator(s):\
 **Andrew John Engeldinger, 36**\
-United States Department of Defense (DOD) contractor employer (Accent Signage Systems); United States Navy Reserve (USNR) paternal grandfather (Nicholas Francis Engeldinger); Israel Defense Forces (IDF) associate / employer (Reuven Rahamim - Accent Signage Systems)
+United States Department of Defense (DOD) contractor employer (Accent Signage Systems); United States Navy Reserve (USNR) paternal grandfather (Nicholas Francis Engeldinger); Israel Defense Forces (IDF) associate / employer (Reuven Rahamim - Accent Signage Systems); Minneapolis Police Department (MPD) associate (Michael Chiappetta)
 
 Source(s):
 1. [Minneapolis firm shooting - Perpetrator](https://en.wikipedia.org/wiki/Minneapolis_firm_shooting#Perpetrator)
@@ -6727,6 +6743,21 @@ Source(s):
 >Authorities have not revealed the names of the others who died.
 >
 >Rahamim was born and raised in Israel and served as a soldier in the Israeli army before coming to the U.S., Blumenfield said.
+
+5. [Depression meds found in Accent Signage shooter's home, police say](https://www.mprnews.org/story/2012/10/08/depression-meds-found-in-accent-signage-shooters-home-police-say)
+>A police search of the home of Accent Signage Systems shooter Andrew Engeldinger found medications commonly prescribed for depression and insomnia, according to a Minneapolis Police Department report.
+>
+>The medications are an indication that Engeldinger may have been treated for mental illness. That contrasts with the account of family members who said Engeldinger refused psychiatric treatment and had never been diagnosed with a mental illness. Family members said Engeldinger stopped talking to them about two years ago when he became increasingly paranoid and delusional.
+>
+>Authorities have not said whether mental illness played a role in the killing. Police say Engeldinger shot and killed five people before committing suicide after being fired from his job at Accent Signage in Minneapolis on Sept. 27.
+>
+>Police found prescription bottles for two anti-depressant medications, Mirtazapine and Trazodone, and for Temazepam, a medication used to treat insomnia, in Engeldinger's home. They also found many empty prescription bottles, including 18 empty prescription bottles for a generic form of the anti-depressant drug Wellbutrin, according to the police report.
+>
+>All of the prescriptions bottles bore Engeldinger's name. The report did not list the dates of the prescriptions or the names of prescribing physicians. Engeldinger's mother, Carolyn Engeldinger, told police the family has a history of schizophrenia. Police did not find any anti-psychotic medications, which are commonly prescribed for schizophrenia, in Engeldinger's home.
+>
+>The report also indicates Engeldinger's interest in guns likely began about a year ago.
+>
+>Minneapolis Police Sgt. Michael Chiappetta, who works part-time at the Burnsville Rifle and Pistol Range, told police he recognized Engeldinger as a frequent customer at the range. He said Engeldinger appeared to be a "new shooter and was trying to gain proficiency shooting," according to the report.
 
 ------------------------------------
 
