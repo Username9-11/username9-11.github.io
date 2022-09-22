@@ -7189,3 +7189,322 @@ Russian Armed Forces mercenary / Police father (Marat Bekmansurov)
 Source(s):
 1. [University massacre 'shooter', 18, regains consciousness after having leg amputated](https://www.dailystar.co.uk/news/world-news/university-massacre-shooter-18-regains-25141681)
 >His father Marat Bekmansurov, 40, who was a policeman before becoming a mercenary soldier in eastern Ukraine and Syria, admitted he had helped his son buy the weapon he allegedly used in the campus bloodbath. “He saved money on his own for this gun, and I added (around £350) for him to buy it,” said the father.
+
+------------------------------------
+
+[Anne Anne Kindergarten stabbing](https://en.wikipedia.org/wiki/Anne_Anne_Kindergarten_stabbing)\
+Sham Shui Po, Hong Kong\
+June 3, 1982\
+6 killed, 38 wounded (including 1 perpetrator)
+
+Perpetrator(s):\
+**Lee Chi Hang, 28**\
+Hong Kong Government psychiatric associates (Castle Peak Hospital)
+
+Source(s):
+1. [Anne Anne Kindergarten stabbing - Perpetrator](https://en.wikipedia.org/wiki/Anne_Anne_Kindergarten_stabbing#Perpetrator)
+>Lee, who was diagnosed with schizophrenia, was the son of Lee Wing Chiu and Leung Lai Kuen. According to his father, he was a silent boy who did poorly in school, showed strange behaviour, and spoke incoherently. In 1976, he was admitted to Castle Peak Hospital, a mental institution, for six months, after fighting with a neighbour.[3] He subsequently received treatment at the Yaumati Psychiatric Centre.[2] Lee frequently had depression and threatened to kill his parents during an argument on New Year's Eve of 1979. In the time prior to the stabbing, he was unemployed and was said to have appeared emotionally unstable.[5]
+
+2. [Castle Peak Hospital - Wikipedia](https://en.wikipedia.org/wiki/Castle_Peak_Hospital)
+
+------------------------------------
+
+[Cleveland Elementary School shooting](https://en.wikipedia.org/wiki/Cleveland_Elementary_School_shooting_(Stockton))\
+Stockton, California\
+January 17, 1989\
+6 killed (including 1 perpetrator), 32 wounded
+
+Perpetrator(s):\
+**Patrick Edward Purdy, 24**\
+United States Armed Forces aspirant; United States Army (USA) father (Patrick Benjamin Purdy)
+
+Source(s):
+1. [Patterns Among School Shooters: Body-Related Issues and the Military - Aberrant Adult Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Patrick Purdy\
+>Molested (engaged in male prostitution as young teen)\
+>Identified as gay and complained of harassment\
+>[...]\
+>Patrick Purdy\
+>Father: military\
+>[...]\
+>Patrick Purdy\
+>Had military aspirations but never applied, perhaps because he knew he would be rejected because of his many arrests, alcoholism, and drug abuse; tried to be security guard: quit one job and was fired from two others; he then gave up on that career
+
+2. [Cleveland Elementary School shooting (Stockton) - Perpetrator](https://en.wikipedia.org/wiki/Cleveland_Elementary_School_shooting_(Stockton)#Perpetrator)
+>Purdy's mother remarried in September 1969; she divorced her husband four years later. Albert Gulart, Sr., Purdy's stepfather, said Purdy was an overly quiet child who cried often. In fall 1973, Kathleen separated from Gulart and moved with her children from Stockton to the Sacramento area. In December of that year, the Sacramento Child Protective Services were twice called to her residence, on allegations that Kathleen was physically abusing her children.[11] When Purdy was thirteen, he struck his mother in the face and was permanently banned from her house.[12] He lived on the streets of San Francisco for a period before being placed in foster care by authorities.[11] He was later placed in the custody of his father, who was living in Lodi, California, at the time.[12] While attending Lodi High School, Purdy became an alcoholic and a drug addict, and attended high school sporadically.[3][9]
+>
+>On September 13, 1981, Purdy's father was killed after being struck by a car.[12] His family filed a wrongful-death suit in San Joaquin Superior Court against the driver of the car, asking for US$600,000 in damages; the suit was later dismissed. Purdy accused his mother of taking money his father had left him, using the money to buy a car and taking a vacation to New York City. This incident appeared to deepen the animosity between them.[13][14] After his father's death, Purdy was briefly homeless, before being placed in the custody of a foster mother in Los Angeles.[11]
+>
+>Purdy's criminal activities had begun by 1977, when Sacramento police confiscated BB guns from then 12-year-old Purdy.[11] In June 1980, Purdy was first arrested at age 15 for a court-order violation.[12] He was arrested that same month for underage drinking. Purdy was then arrested for prostitution in August 1980,[15][16] possession of marijuana and drug dealing in 1982, and in 1983 for possession of an illegal weapon and receipt of stolen property. On October 11, 1984, he was arrested for being an accomplice in an armed robbery at a service station, for which he spent 32 days in the Yolo County Jail. In 1986, Kathleen called police after Purdy vandalized her car after she refused to give him money for narcotics.[9][17]
+>
+>In April 1987, Purdy and his half-brother Albert were arrested for firing a semi-automatic pistol at trees in the Eldorado National Forest. At the time, he was carrying a book about the white supremacist group Aryan Nations. He told the County Sheriff that it was his "duty to help the suppressed and overthrow the suppressor."[18] In prison, he twice attempted suicide, once by hanging himself with a rope made out of strips of his shirt, and a second time by cutting his wrists with his fingernails. A subsequent psychiatric assessment found him to have a mild mental impairment, and to be a danger to himself and others.[18][19]
+>
+>In the fall of 1987, Purdy began attending welding classes at San Joaquin Delta College; he complained about the high percentage of Southeast Asian students there. In October 1987, he left California and drifted among Oregon, Nevada, Texas, Florida, Connecticut, South Carolina, and Tennessee, searching for jobs. In early 1988, he worked at Numeri Tech, a small machine shop located in Stockton. From July to October 1988, he worked as a boilermaker in Portland, Oregon, living in Sandy with his aunt.
+>
+>On August 3 in Sandy, he purchased a Chinese-made AK-47 at Sandy Trading Post,[20] which he later used in the shooting. He eventually returned to Stockton and rented a room at the El Rancho Motel on December 26. After the shooting, police found his room decorated with numerous toy soldiers.[3][9][13] On December 28, Purdy purchased a Taurus pistol at Hunter Loan and Jewelry Company in Stockton.
+>
+>Police stated that Purdy had problems with alcohol and drug addiction. He talked openly of hatred toward Asian immigrants,[18] believing that they took jobs from "native-born" Americans.[14][21] According to Purdy's friends, who described him as friendly and never violent toward anyone, he was suicidal at times and frustrated that he failed to "make it on his own".[18] Steve Sloan, a night-shift supervisor at Numeri Tech, said: "He was a real ball of frustration, and was angry about everything." Another one of Purdy's former co-workers stated, "He was always miserable. I've never seen a guy that didn't want to smile as much as he didn't."[18] In a notebook found in a hotel where he lived in early 1988, Purdy wrote about himself in the following terms: "I'm so dumb, I'm dumber than a sixth-grader. My mother and father were dumb."[9]
+
+3. [37 Mass Shooters Who Were On Antidepressants](https://thoughtcatalog.com/jeremy-london/2019/09/37-mass-shooters-who-were-on-antidepressants/)
+>Purdy killed five children and wounded 30 others at a schoolyard shooting spree in Stockton, CA in January, 1989, leading to a movement to ban semiautomatic assault weapons. He had been taking the antidepressant Amitryptyline as well as the antipsychotic Thorazine.
+
+------------------------------------
+
+[Northern Illinois University shooting](https://en.wikipedia.org/wiki/Northern_Illinois_University_shooting)\
+DeKalb, Illinois\
+February 14, 2008\
+6 killed (including 1 perpetrator), 21 wounded
+
+Perpetrator(s):\
+**Steven Kazmierczak, 27**\
+United States Army (USA); United States Navy (USN) applicant
+
+Source(s):
+1. [Northern Illinois University shooting - Personal life](https://en.wikipedia.org/wiki/Northern_Illinois_University_shooting#Personal_life)
+>Kazmierczak graduated from Elk Grove High School in 1998, during which he was treated temporarily for mental illness at the Elk Grove Village Thresholds-Mary Hill House psychiatric center,[34] for being "unruly" at home, according to his parents Gail and Robert Kazmierczak. He was diagnosed with schizoaffective disorder as a teenager.[35] He later went on to study sociology at Northern Illinois University (NIU). Though his family moved to Florida in 2004, Kazmierczak continued his education in Illinois.[36][37] He enlisted in the United States Army in September 2001, and was discharged before completing basic training in February 2002 for lying on his application about his mental illness.[38][39] His mother died in Lakeland, Florida in September 2006 from amyotrophic lateral sclerosis (also known as Lou Gehrig’s disease or ALS).[40][41][42] At the time of Steven's death, his father was living in a retirement community in Lakeland.[43]
+
+2. [Patterns Among School Shooters: Body-Related Issues and the Military - College Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Steven Kazmierczak\
+>Joined the Army but was discharged after it was discovered he had lied about his mental health history\
+>Shortly before his attack, he tried to enlist in the Navy
+
+3. [Northern Illinois University shooting - Possible motives](https://en.wikipedia.org/wiki/Northern_Illinois_University_shooting#Possible_motives)
+>ABC News reports that his behavior seemed to become more erratic in the weeks leading up to the shooting, and that it is believed he stopped taking medication beforehand.[39] His girlfriend confirmed that Kazmierczak was taking Xanax (anti-anxiety), Ambien (sleep aid), and Prozac (antidepressant), all of which were prescribed to him by a psychiatrist. She said that he stopped taking Prozac about three weeks prior to the February 14 shooting. She also said that, during their two-year relationship, she had never seen him display violent tendencies and she expressed bewilderment over the cause of the rampage. "He was anything but a monster," she said. "He was probably the nicest, most caring person ever."[50]
+
+------------------------------------
+
+[1993 Long Island Rail Road shooting](https://en.wikipedia.org/wiki/1993_Long_Island_Rail_Road_shooting)\
+Long Island, New York\
+December 7, 1993\
+6 killed, 19 wounded
+
+Perpetrator(s):\
+**Colin Ferguson, 35**\
+United States Government contractor employer (Ademco Security Group); Jamaican Armed Forces / Government family associates
+
+Source(s):
+1. [1993 Long Island Rail Road shooting - Perpetrator](https://en.wikipedia.org/wiki/1993_Long_Island_Rail_Road_shooting#Perpetrator)
+>Colin Ferguson was born in Kingston, Jamaica, on January 14, 1958[7] to Von Herman and May Ferguson. Von Herman was a wealthy pharmacist and the managing director of the large pharmaceutical company Hercules Agencies,[8] and was described by Time magazine as "one of the most prominent businessmen in Jamaica".[9]\
+>[...]\
+>Von Herman was killed in a car crash in 1978 when Ferguson was aged 20, and his funeral was attended by government and military luminaries. Ferguson's mother died from cancer soon afterwards, and the deaths destroyed the family's fortunes.[9]
+
+2. [A Tormented Life -- A special report; A Long Slide From Privilege Ends in Slaughter on a Train](https://www.nytimes.com/1993/12/12/nyregion/tormented-life-special-report-long-slide-privilege-ends-slaughter-train.html)
+>Mr. Ferguson got a clerical job with Ademco Security Group, of Syosset, L.I., a manufacturer of burglar alarms and other security equipment. He worked there 15 months. Then on Aug. 18, 1989, while standing on a stool pulling invoices from a filing cabinet, Mr. Ferguson slipped and fell, suffering injuries to his head, neck and back. He filed a claim for workers' compensation disability benefits and, after several hearings, was awarded $75 a week.
+
+3. [ADEMCO Group](https://www.aecdaily.com/sc.php?node_id=1497970&tabidx=corporate&company=)
+>Originally founded by entrepreneur Maurice Coleman in 1929 as a sideline to his Brooklyn-based Progress Electric Co., the Alarm Device Manufacturing Company (ADEMCO) went on to emerge as an international powerhouse with one of the most trusted, recognized and well-respected names in the security industry. Today, we are the world�s largest and most experienced manufacturer of electronic security systems, with our products protecting millions of homes, businesses and government facilities across the globe.
+
+------------------------------------
+
+[Quebec City mosque shooting](https://en.wikipedia.org/wiki/Quebec_City_mosque_shooting)\
+Quebec City, Canada\
+January 29, 2017\
+6 killed, 19 wounded
+
+Perpetrator(s):\
+**Alexandre Bissonnette, 27**\
+Royal Canadian Army Cadets (RCAC); Canadian Armed Forces (CAF) grandfather (name unknown)
+
+Source(s):
+1. [Alexandre Bissonnette: 5 Fast Facts You Need to Know](https://heavy.com/news/2017/01/alexandre-bissonnette-quebec-city-canada-mosque-shooting-attack-suspect-gunman-shooter-photos-pictures-video-motive/)
+>In November 2015, he posted a photo of medals he said belong to his grandfather. “For remembrance day coming up a picture of my grandfathers medals! From left to right is the 1939-1945 star, the france and germany star, the defence medal, the canadian VOLUNTEER medal and the war medal 1939-1945, we changed the ribbons and cleaned them, nice job,” he wrote. Another photo showed Bissonnette as a child. He was a former Royal Canadian Army Cadet.
+
+2. [The Quebec [Mosque] attack: The accused was being treated for anxiety and alcohol problems — (Actualité, Journal de Quebec)](https://ssristories.org/attentat-a-quebec-laccuse-etait-traite-pour-anxiete-et-avait-des-problemes-dalcool-actualite-le-journal-de-quebec/)
+>The suspect in the shooting at the Quebec mosque was under the influence of alcohol and  antidepressants at the time of the attack. If the authorities had known of his this, he would have been denied a permit for possession of a restricted weapon or had his permit revoked.\
+>[...]\
+>Throughout his teen and adult years, Bissonnette consulted several doctors and psychologists. He was prescribed anti-depressants, such as Luvox and Paxil. Bissonnette began taking Paxil at the beginning of January 2017. He told Lamontagne that he doubled, even tripled his dose and also consumed alcohol.
+>
+>At 18, he began to make a few friends and started to drink alcohol when going out with them. Lamontagne testified that Bissonnette had three one-night stands in his early 20s, but no long-term relationships.
+>
+>He said Bissonnette told him that he wasn’t able to approach women when he wasn’t drunk. He also used alcohol to manage his anxiety. In 2013, he started drinking alone as well as before work. By 2016, Bissonnette was drinking six times a week, at least eight drinks in one sitting and hiding alcohol in his car and parents’ home.
+>
+>In August 2014, Bissonnette planned to hang himself in his parents’ shed one day when they were at the family cabin but changed his mind when his fraternal twin brother decided to stay home. Two months later, he received his restricted firearms licence after lying on his application that he did not have psychiatric problems in his past, nor suicidal thoughts.
+>
+>It was around this time that he became interested in mass shootings and the shooters responsible, feeling an affinity for those of them who’d also been bullied or mistreated in their childhoods.
+
+------------------------------------
+
+[Poe Elementary School bombing](https://en.wikipedia.org/wiki/Poe_Elementary_School_bombing)\
+Houston, Texas\
+September 15, 1959\
+6 killed (including 1 perpetrator), 18 wounded
+
+Perpetrator(s):\
+**Paul Harold Orgeron, 49**\
+United States Army (USA) brothers (Alvin Joseph Orgeron / Robert Ralph Orgeron); United States Army (USA) paternal uncles (George Alexis Theriot / Rene Saul Theriot)
+
+Source(s):
+1. [Alvin Joseph Orgeron - Find a Grave](https://www.findagrave.com/memorial/34496874/alvin-joseph-orgeron)
+>Inscription\
+>PFC US ARMY\
+>WORLD WAR II
+
+2. [Robert Ralph Orgeron - Find a Grave](https://www.findagrave.com/memorial/61747827/robert-ralph-orgeron)
+>Inscription\
+>"PFC US Army"\
+>"World War II"
+
+3. [Pvt George Alexis Theriot - Find a Grave](https://www.findagrave.com/memorial/18039198/george-alexis-theriot)
+>Military Inscription: 
+>
+>GEORGE A THERIOT\
+>PVT US ARMY\
+>WORLD WAR I
+
+4. [Rene Saul Theriot - Find a Grave](https://www.findagrave.com/memorial/148314398/rene-saul-theriot)
+
+------------------------------------
+
+[Rancho Tehama shootings](https://en.wikipedia.org/wiki/Rancho_Tehama_shootings)\
+Rancho Tehama, California\
+November 13 - 14, 2017\
+6 killed (including 1 perpetrator), 18 wounded
+
+Perpetrator(s):\
+**Kevin Janson Neal, 44**\
+United States Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor sister (Sheridan Orr - Red Hat / Cisco Systems / HP / Intel / Microsoft / Zebra Technologies)
+
+Source(s):
+1. [Sister of California shooting suspect says he suffered from paranoia: He 'had no business with firearms'](https://abcnews.go.com/US/sister-california-shooting-suspect-suffered-paranoia-business-firearms/story?id=51181071)
+>The sister of the suspected gunman who went on a shooting rampage at several northern California locations Tuesday said his mental health had been deteriorating for years.
+>
+>In an emotional interview, North Carolina resident Sheridan Orr told ABC Raleigh-Durham station WTVD that her brother, Kevin Neal, suffered from paranoia.
+>
+>"It was always something," Orr said. "His mental health had slipped."
+>
+>She added: "He clearly had no business with firearms and refused to get any help. He wouldn't even go to government clinics when we would arrange it because he was afraid of the government getting his numbers. It was full-on paranoia and delusion."
+
+2. [Sheridan Orr - LinkedIn](https://www.linkedin.com/in/sheridanorr)
+
+3. [Sheridan Orr - Contact Information](https://buzzpopfizz.wordpress.com/contact-information/)
+>Sheridan Orr is the Managing Partner of The Interrobang! Agency a customer experience consulting firm.  Having held positions ranging from product portfolio manager to industry consultant to Chief Marketing Officer, Sheridan brings a vast range of marketing and brand expertise in the retail arena.
+>
+>As the managing partner of The Interrobang Agency, she used design thinking as a methodology to help retailers craft differentiated and engaging customer experiences.  She’s worked with major brands as well as tier one retailers including Macy’s, Nike, Walmart, Enterprise, Costco and T-Mobile.
+>
+>She is a featured blogger and writer for top retail sites including  RetailCustomerExprerience.com, CustomerThink.com, Social Media Today, TheCustomer Collective, Customer Loyalty and CustomerLeadershipOne.com.  Her blog, also the title of her forthcoming book, Buzz, Pop, Fizz: Creating Customer Experiences that Sizzle has been syndicated around the world.  She is also a featured speaker at industry trade shows including Micros Retail Connect and Customer Engagement Technology World.
+>
+>Prior to founding The Interrobang Agency, Ms. Orr was the Chief Marketing Officer for Mzero.  She led the company’s brand, digital and marketing strategies as well as established a consulting methodology to help retailers create a customer self-service strategy.  In this role, she worked with strategic partners like HP, Intel, Microsoft and Zebra as well as top retailers.  Prior to joining Mzero, she worked for Red Hat and Cisco Systems.
+
+4. [Rancho Tehama shootings - Perpetrator](https://en.wikipedia.org/wiki/Rancho_Tehama_shootings#Perpetrator)
+>Kevin Janson Neal attended East Carolina University from August 2001 to May 2004 but did not qualify for a degree and never declared a major. Relatives said Neal, who moved to California in 2005, had a history of mental illness and anger management issues, as well as an obsession with conspiracy theories.[9][35] His mother had reportedly noticed a decline in his mental health since 2016.
+>
+>Neighbors complained to police about Neal firing guns from his property, but whenever sheriff's deputies visited his doorstep, Neal would not respond to their knocking.[29][8] A neighbor later said he believed Neal might have been testing the response time of law enforcement.[11] In total, deputies were called to Neal's Bobcat Lane home 21 times for various reasons in 2016 and 2017.[36]
+>
+>On January 31, 2017, Neal was arrested and charged with two felonies, and five misdemeanors, after stabbing neighbor Hailey Poland, assaulting her mother-in-law, and snatching a mobile phone away from them.[32] He was held on a US$160,000 bail bond, which was posted by his mother. His mother also spent $10,000 on legal fees to secure his release.[10][4] Following his release, Neal continued to harass the neighbors, causing them to successfully seek a restraining order that required him to surrender his firearms and not purchase additional guns.[1] He handed over a single pistol and attested that he had no other guns.[1][37] Police said that, despite this, he illegally manufactured the guns he used in the shootings.[29] Ghost guns are currently legal to manufacture in California, but the terms of Neal's restraining order made it illegal for him to possess them, or any other guns. Since January 31, 2018, ghost guns required a serial number in the state.[38] The two handguns that Neal possessed during his shooting rampage were not registered to him.[29]
+>
+>The day before the shootings, Neal called his mother to tell her he was "fed up" with his neighbors, whom he suspected of making methamphetamine.[10] He had previously attempted to report his neighbors to the California Department of Forestry and Fire Protection.[29][39] One of the neighbors involved in the January 31 incident later became one of those killed in the shootings.[32] Although Danny Elliott had meth in his system when Neal killed him and had been put on probation in 2016 for a misdemeanor charge of possessing drug paraphernalia, sheriff's deputies and California Fire officials said they never found evidence of a meth operation, despite multiple visits to Bobcat Lane.[22]
+
+------------------------------------
+
+[2011 Tucson shooting](https://en.wikipedia.org/wiki/2011_Tucson_shooting)\
+Casas Adobes, Arizona\
+January 8, 2011\
+6 killed, 15 wounded
+
+Perpetrator(s):\
+**Jared Lee Loughner, 22**\
+United States Army (USA) applicant; Arizona City Parks Department mother (Amy Loughner); United States Air Force (USAF) paternal grandfather (name unknown); United States Navy (USN) / Department of Veterans Affairs (DVA) maternal grandfather (name unknown)
+
+Source(s):
+1. [Jared Lee Loughner - Background]
+https://en.wikipedia.org/wiki/Jared_Lee_Loughner#Background
+>Jared Lee Loughner is the only child of Randy and Amy (née Totman) Loughner.[8][9][10] They were described by a neighbor as a very private family.[8] Amy Loughner worked for the City Parks Department. Randy Loughner was a retired gasoline truck driver, but journalists did not determine if he worked outside the house at the time of the shooting. While Loughner had friends in high school, neighbors noted that in the following years, he kept more to himself and rarely spoke to others.[11]
+
+2. [Jared Lee Loughner - Behavior change](https://en.wikipedia.org/wiki/Jared_Lee_Loughner#Behavior_change)
+>Loughner attended Mountain View High School, and dropped out in 2006.[9] Around this time, when he was about eighteen years old, those who knew him noted a change in his personality. Kelsey Hawkes, who dated Loughner for several months in high school, later said she was shocked after hearing of his arrest. "I've always known him as the sweet, caring Jared," said Hawkes, 21 at the time and then a student at the University of Arizona.[12]
+>
+>At some point, Loughner was fired from his job at a Quiznos restaurant, with his manager saying he had undergone a personality transformation. After this, Loughner briefly volunteered at a local animal shelter, walking dogs, but he was eventually asked not to return. The shelter manager later said, "He was walking dogs in an area we didn't want dogs walked...he didn't understand or comprehend what the supervisor was trying to tell him. He was just resistant to that information."[13]
+>
+>Loughner's former classmate and friend Tong Shan stated that her last encounter with Loughner was in October 2010, after he was suspended and dropped out of college and just before he purchased the semi-automatic handgun used in the shooting. She said that while Loughner was "anti-government," he never appeared violent, nor did he mention his plans to buy a gun.[14]
+>
+>According to court records, Loughner had two previous offenses:[15] in October 2007, he was cited in Pima County for possession of drug paraphernalia and on October 13, 2008, he was charged after defacing a street sign in Marana, near Tucson (a charge that was dismissed following the completion of a diversion program in March 2009).[13][16] The police report noted that he drew a stylized CX, which Loughner said were Christian symbols.[17]
+
+3. [Jared Lee Loughner - Substance use](https://en.wikipedia.org/wiki/Jared_Lee_Loughner#Substance_use)
+>Zach Osler, a high-school classmate of Loughner's and his closest friend, indicated that Loughner's life began to unravel after his high-school girlfriend broke up with him. He began to abuse alcohol and other drugs, including cannabis (marijuana), cocaine, psychedelic mushrooms, LSD, and Salvia divinorum (a hallucinogen legal in Arizona).[18][19]
+>
+>After struggling with drugs for more than two years, Loughner gave up alcohol, tobacco, and recreational drugs in late 2008 and has not used since, according to one of his longtime friends.[20] The U.S. Army confirmed that Loughner had been rejected as "unqualified" for service in 2008.[21][22][23] According to military sources, Loughner admitted to marijuana use on numerous occasions during the application process.[9]
+>
+>Former classmate Caitie Parker remembers Loughner as a "pot head".[24] Loughner has a history of drug use, having been arrested in September 2007 for possession of marijuana and drug paraphernalia.[25] "I haven't seen him in person since '07," Parker recalled in early 2011. "I'm looking back at this [as] a 14–19-year-old...who knows if any of us knew what for sure we were yet."[26]
+>
+>In the months leading up to the shooting, Loughner's parents became increasingly alarmed at their son's behavior; at one point, they resorted to disabling his car every night in order to keep him at home. On one occasion, his father confiscated his shotgun and both parents urged him to get help.[27] Loughner also became obsessed with controlling what he perceived to be lucid dreams.[28]
+
+4. [Jared Lee Loughner - Suspension from college](https://en.wikipedia.org/wiki/Jared_Lee_Loughner#Suspension_from_college)
+>From February to September 2010, while a student at Pima Community College, Loughner had five contacts with college police for classroom and library disruptions. Some of his teachers complained to the administration about his disruptions and bizarre behavior, as they thought it a sign of mental illness and feared what he might do. On September 29, 2010, college police also discovered a YouTube video shot by Loughner, in which his spoken commentary stated that the college was illegal according to the United States Constitution. He described his school as "one of the biggest scams in America".
+>
+>The college decided to suspend Loughner and sent a letter to his parents, to consult with them and him together.[30] The college told Loughner that if he wanted to return, he needed to resolve his code of conduct violations and obtain a mental health clearance (indicating, in the opinion of a mental health professional, that his presence did not constitute a danger to himself or others). On October 4, Loughner and his parents met with campus administrators and Loughner indicated he would withdraw from the college.[29] During Loughner's time at Pima, a classmate said she worried that he might commit a school shooting. One of his teachers has claimed a similar suspicion after the Tucson shooting.[citation needed] He never submitted to a mental health evaluation and did not return to the college.
+>
+>Several college classmates recalled an incident in which Loughner, during a class discussion, had mocked and laughed at a young woman who was describing her abortion. One classmate described Loughner's reaction as "wildly inappropriate".[14] "(Loughner) started making comments about terrorism and laughing about killing the baby," former classmate Don Coorough recalled to ABC News.[14][31] Yet another classmate, Lydian Ali, recalled that "a girl had written a poem about an abortion. It was very emotional and she was teary eyed and he said something about strapping a bomb to the fetus and making a baby bomb out of it."[32][33][34][35][36]
+
+5. [Patterns Among School Shooters: Body-Related Issues and the Military - Non-School Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Jared Loughner\
+>Paternal grandfather: Air Force\
+>Maternal grandfather: Navy; later worked as nurse in VA hospital\
+>[...]\
+>Jared Loughner\
+>Tried to enlist in Army but was rejected
+
+------------------------------------
+
+[Guellat Bou Sbaa shooting](https://amok.fandom.com/wiki/Ali_Guerfi)\
+Guellat Bou Sbaa, French Algeria\
+March 29 - 30, 1961\
+6 killed, 14 wounded
+
+Perpetrator(s):\
+**Ali Guerfi**\
+French Armed Forces
+
+Source(s):
+1. [Ali Guerfi - Amok Wiki](https://amok.fandom.com/wiki/Ali_Guerfi)
+>Ali Guerfi (also identified as Guercif el Hadi) was an Algerian civilian employee of the French military who killed six people and wounded 14 others in Guellat Bou Sbaa, French Algeria on March 29 and March 30, 1961.
+
+------------------------------------
+
+[1991 Sacramento hostage crisis](https://en.wikipedia.org/wiki/1991_Sacramento_hostage_crisis)\
+Sacramento County, California\
+April 4, 1991\
+6 killed (including 3 perpetrators), 14 wounded
+
+Perpetrator(s):\
+**Loi Khac Nguyen, 21 / Pham Khac Nguyen, 19 / Long Khac Nguyen, 17 / Cuong Tran, 17**\
+South Vietnamese Army (ARVN) father (Bim Khac Nguyen)
+
+Source(s):
+1. [Where is Loi Nguyen Now?](https://thecinemaholic.com/where-is-loi-nguyen-now/)
+>Loi Khac Nguyen is a Vietnamese refugee who was part of a big family. His father, Bim Khac Nguyen, was a South Vietnamese soldier who escaped the country with his family in the 1970s. The family that comprised of six siblings got to California in 1980 and moved to Sacramento later. The four gunmen who attacked the store were 21-year-old Loi, his brothers — 19-year-old Pham Nguyen and 17-year-old Long Nguyen — and a family friend, 17-year-old Cuong Tran. All of them struggled at school, and Loi had dropped out in his senior year. He had difficulty finding employment at the time.
+
+------------------------------------
+
+[Sanaa school shooting](https://en.wikipedia.org/wiki/Sanaa_school_shooting)\
+Sanaa, Yemen\
+March 30, 1997\
+6 killed, 12 wounded
+
+Perpetrator(s):
+**Mohammad Ahman al-Nazari, 48**\
+United States Central Intelligence Agency (CIA) associates (Operation Cyclone)
+
+Source(s):
+1. [Sanaa school shooting - Background](https://en.wikipedia.org/wiki/Sanaa_school_shooting#Background)
+Mohammad Ahman al-Nazari was a 48-year-old resident of Sanaa, Yemen, and a veteran of the Soviet–Afghan War, where he had fought in the Mujahideen against the Soviet Union during their invasion of Afghanistan. Nazari's five children attended the Tala'i Private School in the Asbahi neighborhood of Sana'a, where it was alleged that one of his daughters had been molested by the school administrator, despite there being no evidence found to confirm this.[1] Nazari had also previously been employed as a bus driver for Tala'i Private School and the nearby Musa Bin Nusayr School, but was fired for unknown reasons some time before the shooting.
+
+2. [The Soviet-Afghan War's Connections to the United States Central Intelligence Agency](http://web.archive.org/web/20200727193621/http://www.historycommons.org/timeline.jsp?timeline=afghanwar_tmln&afghanwar_tmln_soviet_occupation_of_afghanistan=afghanwar_tmln_us_aid_to_islamist_mujaheddin)
+
+3. [Operation Cyclone - Wikipedia](https://en.wikipedia.org/wiki/Operation_Cyclone)
+
+------------------------------------
+
+[Malaysian mail train shooting](https://amok.fandom.com/wiki/Shaweleka_Fungabelo)\
+Kuala Lumpur, Malaysia\
+August 11, 1955\
+6 killed, 11 - 14 wounded
+
+Perpetrator(s):\
+**Shaweleka Fungabelo**\
+Rhodesian Army
+
+Source(s):
+1. [Shaweleka Fungabelo - Amok Wiki](https://amok.fandom.com/wiki/Shaweleka_Fungabelo)
+>Fungabelo originated from a village in northern Rhodesia and was a member of B-Company, 1st Battalion of the Northern Rhodesia Regiment, which was sent to southeast Asia to fight against Communist guerillas. 
+
+------------------------------------
