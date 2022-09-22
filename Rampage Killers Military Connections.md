@@ -6914,7 +6914,7 @@ Rishon LeZion, Israel\
 May 20, 1990\
 7 killed
 
-Perpetrator(s):
+Perpetrator(s):\
 **Ami Popper**\
 Israel Defense Forces (IDF); Israel Defense Forces (IDF) brother
 
@@ -6931,7 +6931,7 @@ Source(s):
 
 ------------------------------------
 
-[Gamardjveba shooting]https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military)\
+[Gamardjveba shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
 Gamardjveba, Georgia\
 June 24, 1997\
 7 killed
