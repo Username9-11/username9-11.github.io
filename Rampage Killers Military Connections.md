@@ -7508,3 +7508,139 @@ Source(s):
 >Fungabelo originated from a village in northern Rhodesia and was a member of B-Company, 1st Battalion of the Northern Rhodesia Regiment, which was sent to southeast Asia to fight against Communist guerillas. 
 
 ------------------------------------
+
+[2016 shooting of Dallas police officers](https://en.wikipedia.org/wiki/2016_shooting_of_Dallas_police_officers)\
+Dallas, Texas\
+July 7 - 8, 2016\
+6 killed (including 1 perpetrator), 11 wounded
+
+Perpetrator(s):\
+**Micah Xavier Johnson, 25**\
+United States Army Reserve (USAR); United States Department of Veterans Affairs (DVA) psychiatric associates
+
+Source(s):
+1. [2016 shooting of Dallas police officers - Early life and education](https://en.wikipedia.org/wiki/2016_shooting_of_Dallas_police_officers#Early_life_and_education)
+>Micah Xavier Johnson was born in Magee, Mississippi[62] and raised in Mesquite, Texas.[9][57][63][64] He once described his childhood as "stressful" during a VA visit on August 15, 2014, but further details were redacted on the visit report.[65] When he was four, his parents divorced.[64][66]
+>
+>Johnson transferred into John Horn High School when he was 17 and participated in its Junior Reserve Officers' Training Corps program, according to the Mesquite Independent School District.[64][66] He struggled academically, graduating in 2009 with a 1.98 grade-point average and a ranking of 430 out of 453 students in his class.[64][67][68]
+
+2. [2016 shooting of Dallas police officers - Military service](https://en.wikipedia.org/wiki/2016_shooting_of_Dallas_police_officers#Military_service)
+>Immediately after high school,[69] Johnson enlisted in the U.S. Army Reserve and served from March 2009 to April 2015 as a 12W carpentry and masonry specialist.[70] He completed basic training, which required qualification on handling of an M16 rifle or M4 carbine, basic rifles for U.S. military personnel.[71] According to Justin Garner, a high-school friend and classmate who later served alongside Johnson in the same unit, Johnson lacked proficiency in certain required technical skills, such as marksmanship.[63] 
+>
+>Johnson was activated at the rank of private first class in September 2013 in support of the War in Afghanistan, where he was deployed from November 2013 to July 2014[3][66][72] with the 420th Engineer Brigade.[73]
+>
+>People who knew Johnson during his time in the Army described him as openly religious and often socializing with white soldiers.[68] A squad leader, who trained Johnson in tactical maneuvers and protection in 2009 and 2010, described him as "klutzy", "goofy sometimes", and "a nice guy", but also quiet and unmotivated.[74][75]
+>
+>Documents released by the Army on July 29 detailed early signs of disturbing behavior being exhibited by him, but specific details were redacted.[76] They also said that while Johnson was sociable, he was generally described by soldiers as a loner who sometimes ate his lunch in a vehicle alone while the rest of his unit ate outside together.[77] 
+
+3. [2016 shooting of Dallas police officers - Discharge](https://en.wikipedia.org/wiki/2016_shooting_of_Dallas_police_officers#Discharge)
+>On May 1, 2014,[79] during his deployment, he was accused of sexual harassment by a female soldier, who sought a protective order against him and said that he needed mental health counseling.[64][80][81][82] The accusation was made after the soldier reported four pairs of women's underwear missing from her laundry bag. A "health and welfare inspection" of soldiers' rooms found one pair in Johnson's quarters, while a soldier discovered the remaining three in Johnson's pocket. Upon being confronted about it, Johnson fled with the undergarments and attempted to dispose of them in a nearby dumpster. He then lied that a female civilian acquaintance gave the underwear to him, but the female soldier confirmed that they were in fact hers.[77][78][83][84]
+>
+>The female soldier told investigators that she and Johnson had been platonic friends for five years, but had stopped talking to each other. She described their relationship as being tumultuous and involving fights and disagreements. She specifically recalled one incident where Johnson punched out a car window over her leaving for college and severed an artery, then forced her to bring him to a hospital for treatment. However, Johnson claimed that he punched out the window when the soldier missed a movie they planned to see together, and added that he had been under stress from his job and turbulent home life at the time.[79][85][86][87]
+>
+>According to the soldier, Johnson asked her for a pair of her underwear before the May 1 incident, but she declined. Also, during a Facebook conversation with her, Johnson mentioned "tying her down and having her face down on the bed" but then claimed the statement was a joke. Though she told him that rape was "never a joke" and to stop contacting her, the soldier did not report him for harassment at the time because she was used to that kind of rhetoric.[79][88] Though the May 1 incident did not meet the Army's criteria for sexual harassment, investigators found that Johnson's sexually suggestive comments to the female soldier met said criteria.[77][78][83][84]
+>
+>Following the inspection, he was disarmed under the recommendation of his platoon sergeant, who felt he posed a potential threat. Another Army official later described the action as unusual, as Johnson did not appear to be visibly agitated or a threat to himself or others at the time.[85][86] Johnson was then placed under 24-hour escort, which was reportedly a shameful and ostracizing experience,[64] before being temporarily moved to Bagram Airfield on May 3, but he did not have enough time to pack all of his belongings. While soldiers were emptying Johnson's quarters and packing his belongings for him on May 14, they discovered an unauthorized single M430I High Explosive Dual Purpose 40mm grenade, a .50-caliber round, and another soldier's prescription medication in his sleeping bag.[77][78][79][84]
+>
+>Later, the Army sent Johnson back to the U.S., and according to the military lawyer who represented Johnson at the time, the Army initiated proceedings to give Johnson an "other than honorable" discharge. The lawyer claimed this was "highly unusual" because written reprimands are usually issued before more drastic steps are taken, and also because the decision was allegedly based on a single sexual harassment allegation. The lawyer was evidently unaware of the grenade and other contraband discovered in Johnson's possession shortly before he was repatriated to the United States from Afghanistan as well as other factors in Johnson's possibly redacted record.[70][80][82] On the advice of his attorney, Johnson waived his right to a hearing in exchange for a more favorable general discharge under honorable conditions.[80][89] He was honorably discharged in September 2014, apparently as a result of an Army error.[81] Johnson remained in the Individual Ready Reserve (IRR), meaning he could be recalled into the Army if needed, and was part of the IRR at the time of his death.[67][85]
+>
+>Johnson received the Afghanistan Campaign Medal with campaign star, Army Achievement Medal, Global War on Terrorism Service Medal, Armed Forces Reserve Medal, and NATO Medal for his tour of duty in Afghanistan.[30][74]
+>
+>Some of Johnson's fellow soldiers criticized the Army's handling of the case.[64][89]
+
+4. [2016 shooting of Dallas police officers - Before the shooting](https://en.wikipedia.org/wiki/2016_shooting_of_Dallas_police_officers#Before_the_shooting)
+>The Veterans Health Administration released documents in August 2016 showing that Johnson had symptoms for posttraumatic stress disorder (PTSD) following his return from Afghanistan. He was not formally diagnosed with the condition, and doctors concluded that he presented no serious risk to himself or others. Johnson had sought treatment for anxiety, depression, and hallucinations, once telling doctors that he had experienced nightmares after witnessing fellow soldiers dying in explosions. Johnson also said that he would hear voices and mortars exploding; and that after returning to the U.S., he would be paranoid, suffer from lower back pain, and experience panic attacks a few times per week. For the latter condition, he recalled one incident at a Wal-Mart that required a police response. For his conditions, Johnson was prescribed several medications, including a muscle relaxant, an antidepressant, and anti-anxiety and sleep medication.[65]
+
+------------------------------------
+
+[Palm Bay shopping center shootings](https://murderpedia.org/male.C/c/cruse-william.htm)\
+Palm Bay, Florida\
+April 23, 1987\
+6 killed, 10 wounded
+
+Perpetrator(s):\
+**William Bryan Cruse, Jr., 60**\
+United States Army Air Forces (USAAF) cousin (Henry Clay Jones); United States Army (USA) cousin (Lelia Jones Busler); United States Armed Forces associates (Theodore Bartholomew / William Patterson)
+
+Source(s):
+1. [William Bryan Cruse - Family Tree](https://i.imgur.com/2YVt04U.png)
+
+2. [Henry C Jones - Find a Grave](https://www.findagrave.com/memorial/155560130/henry-c-jones)
+
+3. [TSgt Henry Clay Jones - Find a Grave](https://www.findagrave.com/memorial/56761251/henry-clay-jones)
+>aka H.C. Jones\
+>H. C. resided in Estill County, Kentucky prior to the war.\
+>~ ~ ~ ~ ~ ~\
+>Enlisted on 9 October 1940 in Ft Thomas, Kentucky\
+>Technical Sergeant U.S. Army Air Forces 15057625\
+>1st Ferry Group, 3rd Squadron\
+>C-87 Liberator Express #41-23791\
+>★ Distinguished Flying Cross\
+>★ Air Medal
+>
+>C-87 Liberator Express #41-23791 departed its home station of Chabua, India on 09 April 1943 on a routine ferrying flight to China. It was assigned to the 3rd Ferrying Squadron, 1st Ferrying Group, Air Transport Command of the 10th Air Force.
+This aircraft simply disappeared while enroute over the Hump. Numerous attempts were made to contact this ship, but no reply was received to any of the calls. The plane and its crew were never located. The nature of the loss is undetermined.
+>
+>In 2008 this C-87 was found by MIA Recoveries. They crashed on a mountain side in the Arunachal Pradesh Providence, India for an unknown reason. No remains were found.
+>
+>Having actually gone "Missing" on the above date, he was not officially declared by the military as being dead until December 13, 1945.
+>
+>H C Jones was declared "Missing In Action" in this crash during the war.
+
+4. [COL Lelia Jones Busler - Find a Grave](https://www.findagrave.com/memorial/155549359/lelia-busler)
+
+5. [New Owners Content With Cruse Home They Like Creel Road, Which is Tired of Media](https://www.orlandosentinel.com/news/os-xpm-1987-12-27-0170120149-story.html)
+>Cruse's guilt or innocence is up to the courts to decide. But his Creel Road neighborhood received no such justice. It lost its innocence without benefit of judge or jury.
+>
+>Reporters from across the nation clogged the usually quiet street, trampled the green lawns, pounded on doors and pestered the people behind them with questions.\
+>[...]\
+>Theodore Bartholomew, 57, a retired military man and Creel Road resident for 12 years, said neighbors do not even talk about the shooting among themselves. 
+>[...]\
+>William Patterson, 56, another retired military man who has spent 11 years on Creel Road, said he expects Cruse's trial to keep the neighborhood in the news for a while longer -- but not forever.
+
+------------------------------------
+
+[Yaroslavsky shooting](https://en.wikipedia.org/wiki/Yaroslavsky_shooting)\
+Yaroslavsky, Russia\
+August 25, 2002\
+6 killed (including 1 perpetrator), 10 wounded
+
+Perpetrator(s):\
+**Sergey Semidovskiy, 40**\
+Russian Police
+
+Source(s):
+1. [Yaroslavsky shooting - Wikipedia](https://en.wikipedia.org/wiki/Yaroslavsky_shooting)
+>The Yaroslavsky shooting was a mass murder that occurred in Yaroslavsky, Primorsky Krai, Russia on 25 August 2002, when 40-year-old police captain Sergey Semidovskiy (Russian: Сергей Семидовский) killed five people and wounded ten others in and outside a bar with a Saiga carbine, after an argument with several customers.
+
+------------------------------------
+
+[Makassar attack](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Makassar, Indonesia\
+October 22, 1876\
+6 killed, 9 wounded
+
+Perpetrator(s):\
+**Darmin**\
+Indonesian Military
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Shooting in the Philippines](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Philippines\
+September, 1978\
+6 killed, 7 wounded
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Filipino Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia]https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military)
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
