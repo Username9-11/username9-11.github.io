@@ -7644,3 +7644,508 @@ Source(s):
 >This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
 
 ------------------------------------
+
+[Maritsa barracks shooting](https://www-24chasa-bg.translate.goog/novini/article/9331977?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)\
+Maritsa, Bulgaria\
+December 19, 1967\
+6 killed, 6 wounded
+
+Perpetrator(s):\
+**Angel Grigorov Kostadinov Velkov**\
+Bulgarian People's Army
+
+Source(s):
+1. [Bloody Nicholas Day in the army 53 years ago (Translated from the Bulgarian)](https://www-24chasa-bg.translate.goog/novini/article/9331977?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>The shooter is Angel Grigorov Kostadinov Velkov. Caught, he was later sentenced to death, and in prisons it was a practice to present the mortals with 4 names, to make sure that there was no coincidence of names with other prisoners and in the commotion around the execution of the sentences, an unconvicted person was not shot. He was born on July 28, 1948 in the Sofia village of Gradets, but lived in a working-class district of Sofia - his father was a builder.
+>
+>He entered the barracks in the fall of 1967 - on October 1, as a driver in the sixth company of the 49th motorized rifle regiment in the city of Maritsa. This regiment is known in Bulgarian history as the "Black Regiment". But not because the military service in it was hard - it really was hard, but because during the First World War 85 percent of the personnel of the regiment died. Those who remain alive, after returning from the front, paint the fence of the barracks black as a sign of mourning and respect for the memory of the killed.
+
+------------------------------------
+
+[Shooting in the Philippines](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Philippines\
+July 13, 1978\
+6 killed, 6 wounded
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Filipino Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Kratovo massacre](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%9C%D0%B0%D1%81%D1%81%D0%BE%D0%B2%D0%BE%D0%B5_%D1%83%D0%B1%D0%B8%D0%B9%D1%81%D1%82%D0%B2%D0%BE_%D0%B2_%D0%9A%D1%80%D0%B0%D1%82%D0%BE%D0%B2%D0%B5?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US)\
+Kratovo, Russia\
+June 10, 2017\
+6 killed (including 1 perpetrator), 6 wounded
+
+Perpetrator(s):\
+**Igor Yuryevich Zenkov, 50**\
+Russian Ministry of Emergency Situations (MChS)
+
+Source(s):
+1. [Massacre in Kratovo - Suspect (Translated from the RUssian)](https://ru-m-wikipedia-org.translate.goog/wiki/%D0%9C%D0%B0%D1%81%D1%81%D0%BE%D0%B2%D0%BE%D0%B5_%D1%83%D0%B1%D0%B8%D0%B9%D1%81%D1%82%D0%B2%D0%BE_%D0%B2_%D0%9A%D1%80%D0%B0%D1%82%D0%BE%D0%B2%D0%B5?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US#%D0%9F%D0%BE%D0%B4%D0%BE%D0%B7%D1%80%D0%B5%D0%B2%D0%B0%D0%B5%D0%BC%D1%8B%D0%B9)
+>According to the investigation, the attacker is a local resident Igor Yuryevich Zenkov. He was born in 1967. From 1992 to 2014, he was an employee of the Ministry of Emergency Situations of Russia , held the position of a 5th grade repairman of the rescue equipment repair department of the rescue operations engineering and technical support service. Over the years of service, he repeatedly went on business trips to hot spots, but, according to official data, he did not take part in hostilities [4] . According to some reports, he was awarded the Order of Courage [5] .
+
+2. [Ministry of Emergency Situations (Russia) - Wikipedia](https://en.wikipedia.org/wiki/Ministry_of_Emergency_Situations_(Russia))
+>The Ministry of the Russian Federation for Civil Defence, Emergency Situations and Elimination of Consequences of Natural Disasters (Russian: Министерство Российской Федерации по делам гражданской обороны, чрезвычайным ситуациям и ликвидации последствий стихийных бедствий), also known as the Ministry of Emergency Situations (Министерство по чрезвычайным ситуациям; abbreviated MChS, МЧС России) or internationally as EMERCOM (derived from "Emergency Control Ministry"), is a Russian government agency overseeing the civil emergency services in Russia.
+>
+>President Boris Yeltsin established EMERCOM on January 10, 1994, though the ministry can be traced back to December 27, 1990, when the Russian Soviet Federative Socialist Republic (RSFSR) established the Russian Rescue Corps and assigned it the mission of rapid response in the case of emergencies.[3]
+
+------------------------------------
+
+[West Nickel Mines School shooting](https://en.wikipedia.org/wiki/West_Nickel_Mines_School_shooting)\
+Lancaster County, Pennsylvania\
+October 2, 2006\
+6 killed (including 1 perpetrator), 5 wounded
+
+Perpetrator(s):\
+**Charles Carl Roberts IV, 32**\
+Pennsylvania State Government contractor / Police Officer father
+
+Source(s):
+1. [Charles Carl Roberts IV - Personal life](https://murderpedia.org/male.R/r/roberts-charles.htm)
+>Charles Carl Roberts IV was born in Lancaster, Pennsylvania. His father is retired from the local police force. In 2004, his father applied to the state for a special license to provide paratransit service to the Amish. Charles earned a diploma through a home-school association, and neither he nor his family were Amish.
+
+2. [West Nickel Mines School shooting - Perpetrator](https://en.wikipedia.org/wiki/West_Nickel_Mines_School_shooting#Perpetrator)
+>The gunman, identified as Charles Roberts IV, aged 32, was a milk tanker truck driver who served several Amish farms in the Nickel Mines area (including some of the victims' families). He had three children and a wife, for whom he left four separate suicide notes. When State Police Commissioner Jeffrey B. Miller interviewed Roberts' co-workers, they claimed to have noticed a "change" in him during the months immediately prior to the shooting. They also claimed that he seemed to return to normal in the week just before the shooting. Miller hypothesizes that this "calm" may have been when he (Roberts) decided to do the shooting. Miller also noted that Roberts' neighbors reported his mood as unusually jovial during this time period.[citation needed]
+>
+>Roberts was at the time a resident of nearby Georgetown, another unincorporated area of Bart Township.[12] His wife last saw him at 8:45 a.m. when they walked their children to a bus stop before she left. When Mrs. Roberts returned home a little before 11:00 a.m., she discovered four suicide notes; one addressed to herself and one to each of their three children. Roberts telephoned his wife from the schoolhouse using his cellphone and told her that he had molested two young female relatives (between the ages of 3 and 5) 20 years previously (when he was 12) and had been daydreaming about molesting again. One note Roberts left behind indicated his despondency concerning a daughter who died approximately 20 minutes after birth nine years earlier. He stated that he had "been having dreams for the past couple of years about doing what he did 20 years ago and he has dreams of doing them again", according to State Police Commissioner Colonel Jeffrey Miller. On October 4, 2006, the two relatives whom Roberts said he molested 20 years ago told police that no such abuse had ever happened, resulting in even greater confusion concerning the gunman's motive and mental state.[13] K-Y Jelly, a lubricant most commonly used for sexual intercourse, was also found in the schoolhouse among Roberts' belongings, possibly suggesting multiple motives for the incident.[3]
+>
+>Roberts' suicide note also spoke of the anger he had held against God.[14]
+
+------------------------------------
+
+[Texas warehouse shootings](https://en.wikipedia.org/wiki/John_Felton_Parish#Shooting_spree)\
+Grand Prairie, Texas\
+August 9, 1982\
+6 killed, 4 wounded
+
+Perpetrator(s):\
+**John Felton Parish, 49**\
+United States Navy (USN) associate (Eddie Eugene Ulrich)
+
+Source(s):
+1. [Eddie Eugene Ulrich - Find a Grave](https://www.findagrave.com/memorial/107552949/eddie-eugene-ulrich)
+>At approx 8:00 a.m. on August 9, John Parish entered the Western Transfer Company building in the central business district of Grand Prairie, to discuss for a last time with his supervisor Eddie Ulrich about his payment dispute. When the discussion did not go to his liking, Parish killed Ulrich, as well as truck driver Martin Moran and operations manager Moody Smith, before stealing a bobtail truck and driving to the Western Transport Co office half a block down the street. There he killed executive secretary Wyvonne Kohler.
+>
+>Parish then went to Jewel T warehouse about four miles away, arriving there a few minutes later. There he killed district sales manager Dave Bahl, and then went to the shipping office, where he was confronted by warehouse supervisor Rick Svoboda. Parish was then killed by police after he fired upon them.
+
+------------------------------------
+
+[Trolley Square shooting](https://en.wikipedia.org/wiki/Trolley_Square_shooting)\
+Salt Lake City, Utah\
+February 12, 2007\
+6 killed (including 1 perpetrator), 4 wounded
+
+Perpetrator(s):\
+**Sulejman Talović, 18**\
+Bosnian Army father (Suljo Talovic)
+
+Source(s):
+1. [Bosnian family torn apart by war](https://www.deseret.com/2007/4/8/20011685/bosnian-family-torn-apart-by-war)
+>Why did people leave Talovici? "Serbs attack them and everybody go to Srebrenica and Tuzla.... His wife and his kids going to Srebrenica and Suljo going to Tuzla."
+>
+>Asked why the family split up, Cumurovic replied, "Because he's (Suljo Talovic) in army." He wasn't injured in the war, he added.\
+>[...]\
+>The day of the funeral in Talovici, Hasic located a man who identified himself as Suljo Talovic's military commander in a defensive unit during the war.
+>
+>The man said his first name is Alija but did not give his surname. He refused to speak with the American newspaper during an interview attempt, although he did talk with Hasic.
+>
+>"He was talking about the way they had to run out of here on March 16, 1993, when Serbs came into the village," Hasic translated. "So the family split up. Wife and the kids went on to Srebrenica, Suljo with the army."
+>
+>Alija described Suljo Talovic as an ordinary soldier, not an officer. "He says that he was really good soldier, and says that he knows all his family.
+>
+>"And he keeps asking himself, Why's this (the Trolley Square shootings) happen?" Hasic said.
+>
+>Even during the worst days of the war, Suljo Talovic was a good, steady man, according to Alija. While he was serving, he did not know what had happened to his family, but he "never act in rage. He was always calm and peaceful man."
+>
+>That was true "even in the most awful days of the wartime, when they were completely desperate, without ammunition, without weapons.... They were eating what they found in the forests, in the mountains," Hasic interpreted.
+>
+>Ajka Omerovic said her brother Suljo Talovic wasn't in "the real army. He was just protecting the village and family, that's all." The men of Talovici tried to defend the women and children but may not even have had guns, she said.
+
+------------------------------------
+
+[2013 Santa Monica shooting](https://en.wikipedia.org/wiki/2013_Santa_Monica_shooting)\
+Santa Monica, California\
+June 7, 2013\
+6 killed, 4 wounded
+
+Perpetrator(s):\
+**John Samir Zawahri, 23**\
+United States Central Intelligence Agency (CIA) psychiatric associates (UCLA Neuropsychiatric Institute)
+
+Source(s):
+1. [2013 Santa Monica shooting - Perpetrator](https://en.wikipedia.org/wiki/2013_Santa_Monica_shooting#Perpetrator)
+>In 2006, when Zawahri was a student at Olympic High School in Santa Monica, a teacher saw him surfing the Web for information on assault weapons and instructions on making explosive devices. School staff also learned that he had repeatedly made threats against students, teachers, and campus security officers. Within days, police were involved and bomb-making materials were found at his home. Zawahri was subsequently admitted to the UCLA Neuropsychiatric Institute.[30][34][36] Zawahri was a student of Santa Monica High School before enrolling in Santa Monica College in the winter of 2009.[37] The college had no disciplinary issues with Zawahri, officials said. He left the school in the fall of 2010.[38][39]
+
+2. [MK-Ultra: Mind-Control, LSD and the US Government](https://retrospectjournal.com/2021/10/24/mk-ultra-mind-control-lsd-and-the-us-government/)
+>Gottlieb additionally tested in universities across the US, setting up fraudulent philanthropic foundations to fund research on LSD at institutions such as Yale, Harvard, UCLA, and Georgetown. 
+
+------------------------------------
+
+[Campinas Cathedral shooting](https://en.wikipedia.org/wiki/Campinas_Cathedral_shooting)\
+Campinas, Brazil\
+December 11, 2018\
+6 killed, 4 wounded
+
+Perpetrator(s):\
+**Euler Fernando Grandolpho, 49**\
+Brazilian Government employer
+
+Source(s):
+1. [Gunman who opened fire inside Catholic cathedral ‘mentally ill,’ Brazil authorities say](https://www.foxnews.com/world/gunman-who-opened-fired-inside-catholic-cathedral-mentally-ill-brazil-authorities-say)
+>Grandolpho, a systems analyst from Valinhos, a nearby city, was not a member of the church, authorities said. According to public records, he had held various jobs with government entities, including a stint as an assistant to the prosecutor in the public ministry in Sao Paulo.
+
+------------------------------------
+
+[Málaga shooting](https://amok.fandom.com/wiki/Antonio_Calvente_Guerrero)\
+Málaga, Spain\
+September 13, 1902\
+6 - 8 killed, 3 - 7 wounded
+
+Perpetrator(s):\
+**Antonio Calvente Guerrero**\
+Spanish Civil Guard
+
+Source(s):
+1. [Antonio Calvente Guerrero - Amok Wiki](https://amok.fandom.com/wiki/Antonio_Calvente_Guerrero)
+>Antonio Calvente Guerrero was a Spanish member of the Guardia Civil who killed at least six people and wounded up to seven others in Málaga, Spain on September 13, 1902, before being shot dead.[1][2][3][4][5][6][7][8][9]
+
+------------------------------------
+
+[Purworejo attack](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Purworejo, Indonesia\
+December 13, 1884\
+6 killed, 3 wounded
+
+Perpetrator(s):\
+**Unnamed attacker**\
+Indonesian Military
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military)](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Santiago Mariño military camp shooting](https://amok.fandom.com/wiki/Jhonny_Jos%C3%A9_G%C3%B3mez_Romero)\
+Cumaná, Venezuela\
+January 19, 1987\
+6 killed, 3 wounded
+
+Perpetrator(s):\
+**Jhonny José Gómez Romero**\
+Venezuelan Army (Counterinsurgency Corps)
+
+Source(s):
+1. [Jhonny José Gómez Romero - Amok Wiki](https://amok.fandom.com/wiki/Jhonny_Jos%C3%A9_G%C3%B3mez_Romero)
+>Jhonny José Gómez Romero was a Venezuelan soldier who killed six people and seriously wounded three others at the Santiago Mariño military camp in Cumaná, Venezuela on January 19, 1987. [1][2][3][4]
+>
+>That night Gómez, a member of the counterinsurgency corps, was standing guard at the gate of the military casino. At 3 a.m. he asked another soldier to be relieved, because he had to go to the toilet, but instead of the bathroom he went to his barracks and opened fire at the sleeping soldiers with a submachine gun. Afterwards the 19-year-old escaped to the village Río Caribe, where he tried to rent a boat to escape to Trinidad, but the owner of the vessel distrusted him and drove off, whereupon Gómez Romero opened fire. The shots missed its target, but alerted a policeman, already informed about the murders, who then arrested him.[5]
+
+------------------------------------
+
+[Tanfilyeva barracks shooting](https://news.google.com/newspapers?id=_UZWAAAAIBAJ&sjid=C-sDAAAAIBAJ&pg=6863,5794787&dq=)\
+Tanfilyeva, Russia\
+March 8, 1994\
+6 killed, 3 wounded
+
+Perpetrator(s):\
+**Dmitry Belkov / Andrei Bogdashin**\
+Russian Army
+
+Source(s):
+1. https://news.google.com/newspapers?id=_UZWAAAAIBAJ&sjid=C-sDAAAAIBAJ&pg=6863,5794787&dq=
+
+------------------------------------
+
+[2019 Jersey City shooting](https://en.wikipedia.org/wiki/2019_Jersey_City_shooting)\
+Jersey City, New Jersey\
+December 10, 2019\
+6 killed, 3 wounded
+
+Perpetrator(s):\
+**David Anderson / Francine Graham**\
+United States Army (USA); United States Army (USA) ex-spouse (Kathleen ---)
+
+Source(s):
+1. [Jersey City shooters were lovers who lived in a van](https://nypost.com/2019/12/11/jersey-city-shooting-suspects-were-lovers-who-lived-in-a-van/)
+>Before Anderson met Graham, he was in the Army Reserve, serving as a fuel and electrical system repairer as a specialist from September 1999 to September 2003, according to an Army spokesman. 
+
+2. ['Not the man I knew': Ex-wife of 'Black Hebrew Israelite' who shot dead four in Jersey City massacre insists he was never violent, and reveals he 'carried around a Bible and rapped about life' after they met while in the Army](https://www.dailymail.co.uk/news/article-7791667/Not-man-knew-Ex-wife-Jersey-City-shooter-insists-never-violent.html)
+>Kathleen remembers Anderson as 'a nice looking guy' she met at the Babenhausen base in Germany while serving with the US army. 
+>
+>Kathleen, then 22, met 28-year-old Anderson in 2000 when the former couple worked together in the same maintenance unit. 
+>
+>She worked as an electronics technician and he served as a fuel and electrical system repairer.   
+>
+>After just a few month of courting, the two quickly fell in love, eloped at a German courthouse and moved into an apartment together.  
+
+------------------------------------
+
+[Torpedo boat No. 3213 hijacking](https://zh-m-wikipedia-org.translate.goog/wiki/3213%E8%99%9F%E9%AD%9A%E9%9B%B7%E8%89%87%E4%BA%8B%E4%BB%B6?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)\
+Yellow Sea\
+March 21, 1985\
+6 killed, 2 wounded
+
+Perpetrator(s):\
+**Du Xinli, 20 / Wang Zhongrong, 19**\
+Chinese People's Liberation Army Navy (PLAN)
+
+Source(s):
+1. [Torpedo Boat 3213 Incident (Translated from the Chinese)](https://zh-m-wikipedia-org.translate.goog/wiki/3213%E8%99%9F%E9%AD%9A%E9%9B%B7%E8%89%87%E4%BA%8B%E4%BB%B6?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>The 3213 torpedo boat incident was a betrayal incident on the 3213 torpedo boat of the North Sea Fleet of the Chinese People's Liberation Army Navy on the afternoon of March 21, 1985 . Two crew members wanted to hijack the boat to South Korea, killing six crew members and injuring two others. In the end, the two were sent back to China by South Korea and were sentenced to death .\ 
+>[...]\ 
+>The mastermind of the incident was Du Xinli, a 20-year-old rural native of Hebei, formerly known as Du Xinli, who joined the People's Liberation Army after graduating from high school. Conspired with Wang Zhongrong, a 19-year-old Jiangsu native. The two were transferred from boat 3215 to boat 3213 in 1984, and began planning robbery in mid-January 1985. [2] Torpedo boat No. 3213 is a Type 6625 torpedo boat with a top speed of 55 knots and a range of 500 miles . [3]
+
+------------------------------------
+
+[Chai Vang - Shootings](https://en.wikipedia.org/wiki/Chai_Vang#Shootings)\
+Meteor, Wisconsin\
+November 21, 2004\
+6 killed, 2 wounded
+
+Perpetrator(s):\
+**Chai Soua Vang, 36**\
+California National Guard; United States Central Intelligence Agency (CIA) father (name unknown - Laotian Civil War)
+
+Source(s):
+1. [Chai Vang - Biography](https://en.wikipedia.org/wiki/Chai_Vang#Biography)
+>Vang's father had served in a Laotian Civil War that was funded and organized by the Central Intelligence Agency (CIA). During the war, the CIA recruited the Hmong who lived in Laos and they assisted the CIA by disrupting supply routes which stretched from Laos to Vietnam during the Vietnam War. General Vang Pao was the leader of this army and as a result, he was regarded as a father figure by the Hmong.
+>
+>After the United States made the decision to withdraw troops from Laos in 1972, Vang and his family escaped the Hmong genocide that was ordered by the Pathet Lao in order to "exterminate the Hmong down to the last root" in retaliation for their assistance to the United States. Many Hmong were able to relocate to the U.S., however, thousands of them were left behind and killed. Vang and his siblings eventually relocated to the United States in 1980 and settled in California. Vang lived in Sacramento and eventually enlisted in the California National Guard.[2]
+>
+>Sometime around 2000, Vang and his family moved to St. Paul, Minnesota. Vang is the father of seven children. He is also a family shaman (txiv neeb) and was a hunting enthusiast.[2]
+>
+>On Christmas Eve 2001, police responded to a 911 call from Vang's house, according to a Minneapolis Police Department report. The quarrel began when Vang said he wanted to go out and his wife Xiong did not want him to leave, Vang's daughter Kia remembered. Kia Vang recalled running out of her room and seeing her father with a gun. Police arrested Chai Vang, but charges never were filed because, police said, Xiong did not cooperate with investigators. A few months later, Xiong moved with the couple's five children to live with her parents in Milwaukee. His second marriage ended after he nearly choked his wife to death for gambling away $3,000.[3][4]
+
+------------------------------------
+
+[2008 Skagit County shootings](https://en.wikipedia.org/wiki/2008_Skagit_County_shootings)\
+Skagit County, Washington\
+September 2, 2008\
+6 killed, 2 wounded
+
+Perpetrator(s):\
+**Isaac Zamora, 28**\
+Skagit County Sheriff’s Office associates (Anne Jackson et al.)
+
+Source(s):
+1. [No one wants to help Isaac Zamora, and that's the problem](https://www.seattlepi.com/seattlenews/article/Isaac-Zamora-10781621.php)
+>Skagit County Sheriff Will Reichardt, who led the department’s criminal division in those days, knew that deputies had occasional contact with Zamora. Anne Jackson was one of them. She worked with Zamora's family to try to change his behavior, Reichardt said. Jackson had a "special place in her heart for people struggling with mental health issues," Reichardt said, adding that Jackson had witnessed mental health suffering in her own family. "She took an interest, maybe more than the average deputy would."
+>
+>Jackson had a "special place in her heart for people struggling with mental health issues," Reichardt said, adding that Jackson had witnessed mental health suffering in her own family. "She took an interest, maybe more than the average deputy would."
+>
+>While Dennise Zamora struggled with her son, her son trusted Jackson.
+>
+>"She was the only one that ever asked about him or sensed my frustration," Dennise Zamora said recently. "Whenever he was in trouble ... he would say things like, 'Call Deputy Jackson. Tell her to come and get me.'"
+>
+>Dennise Zamora said that her son was generally an easygoing person, smart and helpful. But he grew aggressive -- not toward people, but toward inanimate objects, like a car or a phone.
+
+------------------------------------
+
+[2015 Chattanooga shootings](https://en.wikipedia.org/wiki/2015_Chattanooga_shootings)\
+Chattanooga, Tennessee\
+July 16, 2015\
+6 killed (including 1 perpetrator), 2 wounded
+
+Perpetrator(s):\
+**Muhammad Youssef Abdulazeez, 24**\
+United States Department of Defense (DOD) contractor employer (Superior Essex); United States Federal Government contractor employer (FirstEnergy - Perry Nuclear Generating Station); United States Federal Government intern (Tennessee Valley Authority)
+
+Source(s):
+1. [2015 Chattanooga shootings - Background](https://en.wikipedia.org/wiki/2015_Chattanooga_shootings#Background)
+>Abdulazeez graduated from Red Bank High School.[28] He earned an electrical engineering degree from the University of Tennessee at Chattanooga in 2012[29] and learned to manage electrical power systems as an intern with the Tennessee Valley Authority.[28] On May 20, 2013, he began working as an engineer at the Perry Nuclear Generating Station in North Perry, Ohio, but was let go ten days later after failing a drug test.[35][36] According to a spokesperson for FirstEnergy, which runs the station, Abdulazeez worked and received general training at an administrative office building only, and did not have access to sensitive information.[37] In the three months prior to the shootings, Abdulazeez was employed with Superior Essex as a supervisor for its Franklin office.[38][39][40]
+
+2. [Superior Essex's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Superior+Essex+Department+of+Defense)
+
+3. [FirstEnergy's Connections to the United States Federal Government - Google](https://www.google.com/search?q=FirstEnergy+Federal+Government+Contractor)
+
+4. [Tennessee Valley Authority - Wikipedia](https://en.wikipedia.org/wiki/Tennessee_Valley_Authority)
+>The Tennessee Valley Authority (TVA) is a federally owned electric utility corporation in the United States. TVA's service area covers all of Tennessee, portions of Alabama, Mississippi, and Kentucky, and small areas of Georgia, North Carolina, and Virginia. While owned by the federal government, TVA receives no taxpayer funding and operates similarly to a private for-profit company. It is headquartered in Knoxville, Tennessee, and is the sixth largest power supplier and largest public utility in the country.[3][4]
+>
+>The TVA was created by Congress in 1933 as part of President Franklin D. Roosevelt's New Deal. Its initial purpose was to provide navigation, flood control, electricity generation, fertilizer manufacturing, regional planning, and economic development to the Tennessee Valley, a region that had suffered from lack of infrastructure and poverty during the Great Depression, relative to the rest of the nation. TVA was envisioned both as a power supplier and a regional economic development agency that would work to help modernize the region's economy and society. Later it evolved primarily into an electric utility.[5] It was the first large regional planning agency of the U.S. federal government and remains the largest.
+
+5. [2015 Chattanooga shootings - Mental instability and substance abuse](https://en.wikipedia.org/wiki/2015_Chattanooga_shootings#Mental_instability_and_substance_abuse)
+>Abdulazeez had drug and alcohol problems, and his family tried to place him in a rehabilitation program. The New York Times reported that limits on the family's health insurance coverage "thwarted their plan to have him go into rehab."[citation needed] The investigation after the shooting revealed that Abdulazeez "had serious psychological problems."[42]
+>
+>According to a family representative, Abdulazeez was abusing sleeping pills, opioids, painkillers, and marijuana along with alcohol. He had also been thousands of dollars in debt and was planning to file for bankruptcy.[8] In 2012 or 2013, Abdulazeez began therapy for his drug and alcohol abuse.[43] He had also received treatment for depression and often stopped taking his medication.[44] Following the shootings, Abdulazeez's parents claimed that their son had been suffering from depression.[45][46] According to a source that was provided by CNN, Abdulazeez was suffering from bipolar disorder.[47]
+
+6. [2015 Chattanooga shootings - Abdulazeez's travel and actions preceding the shooting](https://en.wikipedia.org/wiki/2015_Chattanooga_shootings#Abdulazeez's_travel_and_actions_preceding_the_shooting)
+>Abdulazeez's sole known previous contact with law enforcement was an April 20, 2015 arrest for driving under the influence of alcohol (DUI).[52][53] A family spokesman said that the arrest triggered a severe increase in his depression.[54]
+
+------------------------------------
+
+[2016 Kalamazoo shootings](https://en.wikipedia.org/wiki/2016_Kalamazoo_shootings)\
+Kalamazoo, Michigan\
+February 20, 2016\
+6 killed, 2 wounded
+
+Perpetrator(s):\
+**Jason Brian Dalton, 45**\
+Police Officer aspirant; Michigan Law Enforcement associates (Associate Degree in Law Enforcement - Kalamazoo Valley Community College)
+
+Source(s):
+1. [2016 Kalamazoo shootings - Perpetrator](https://en.wikipedia.org/wiki/2016_Kalamazoo_shootings#Perpetrator)
+>After his arrest, Dalton confessed to committing the shootings.[31] However, he blamed his actions on his Uber mobile app, claiming that its symbol resembled that of the Order of the Eastern Star, and that it took over his body during the events after he pressed the button of a new app resembling the Devil when it abruptly popped up.[4][32][33] He later said that he was no longer experiencing these problems.[34] Police indicated that he had no known criminal history[35] or mental health record.[36]
+
+2. [2016 Kalamazoo shootings - Personal life](https://en.wikipedia.org/wiki/2016_Kalamazoo_shootings#Personal_life)
+>Dalton [...] attended Kalamazoo Valley Community College and graduated in December 1992 with an associate degree in law enforcement, though he did not enroll in the school's police academy program.[39]\
+>[...]\
+>Dalton was generally described as a "nice guy" and a "good family man",[39] though it was reported that he had been acting depressed in the days before the shootings occurred.[44] Later, neighbors said Dalton had been acting paranoid right before the shootings occurred.[45]
+>
+>According to an old friend, Dalton had tried to seek a job as a police officer in Michigan or in nearby states, but was unable to, and had no interest in moving far away to find a police job.
+
+------------------------------------
+
+[Plymouth shooting](https://en.wikipedia.org/wiki/Plymouth_shooting)\
+Plymouth, United Kingdom\
+August 12, 2021\
+6 killed, 2 wounded
+
+Perpetrator(s):\
+**Jake Davison, 22**\
+British Ministry of Defence (MOD) contractor employer (Babcock International Group)
+
+Source(s):
+1. [Plymouth shooting - Perpetrator](https://en.wikipedia.org/wiki/Plymouth_shooting#Perpetrator)
+>The gunman was named by police as Jake Davison,[19] a 22-year-old apprentice crane operator at security and defence company Babcock International.[9][20][21]\
+>[...]\
+>Davison was diagnosed with autism and ADHD as a child and attended Mount Tamar school for special needs children.[24] He was a regular visitor to Shetland, where he spent long periods of time with his mother's relatives; it was there that initial concerns were raised about his mental state.[25] In 2016, Davison was reported to the police for allegedly attacking a man and his pregnant girlfriend not far from where the shooting would occur; Davison was warned by police but not prosecuted.[26] A close source to the family said that Davison had recently deteriorated after suffering from mental health problems for most of his life, and that his mother was "begging for help from the authorities but nobody did a welfare check".[27] During the UK's COVID-19 lockdowns in the eighteen months before the shooting, Davison had accessed a local mental health support charity.[28]
+>
+>Davison had been licensed to own a firearm since 2018, and police believe he used a legally-held firearm in the shooting.[21][29] Police had removed his shotgun and licence in December 2020 following an assault allegation described as "a row with two youths",[30] but the weapons were returned in early July 2021,[31] a month before the killings, after he completed an anger management course.[30][32] Following Devon and Cornwall Police's self-referral to the Independent Office for Police Conduct (IOPC), the agency investigated the service's previous dealings with Davison, its decision to grant him a firearms licence and the decision to reinstate the licence, and the decision to return his gun after it was temporarily revoked.[33][10]
+
+------------------------------------
+
+[Tank, India shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Tank, British India\
+April 13, 1914\
+6 killed , 1 wounded
+
+Perpetrator(s):\
+**Unknown shooter**\
+British Indian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military)](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Uncle Albert Club shooting](https://amok.fandom.com/wiki/DeWitt_Charles_Henry)\
+Klamath Falls, Oregon\
+July 23, 1977\
+6 killed, 1 wounded
+
+Perpetrator(s):\
+**DeWitt Charles Henry, 26**\
+United States Navy (USN); United States Postal Service (USPS) contractor employer (Lanier Brugh, Inc.)
+
+Source(s):
+1. [DeWitt Charles Henry - Life](https://amok.fandom.com/wiki/DeWitt_Charles_Henry#Life)
+>Henry [...] joined the Navy, but was eventually discharged for health reasons and subsequently held various jobs. About a year prior to the shooting he worked as bouncer at the Uncle Albert club, and in 1977 he was employed as relief driver by Lanier Brugh, Inc. in Portland to transport mail from Eugene to Klamath Falls, but was fired there after two months, because he was found to be threatening and belligerent. His last employment in July 1977 was for four days as the driver of a water truck.[5][8][9][10][11]\
+>[...]\
+>Henry apparently suffered from psychological problems. In May 1977 he tried to commit suicide by taking an overdose of drugs, according to his wife, who described him as "a good man" after the shooting, he was "kind of funny" during the three weeks leading up to the murders on July 23, and going by his own testimony he was without sleep for five nights at that time. His wife eventually filed for divorce which deeply upset him.[10][12][13]
+>[...]\
+>According to his own testimony he also smoked marijuana and took amphetamines.[10][12][14][15]
+
+2. [Lanier Brugh Corporation](https://www.brughtrucking.com/)
+>Today, Lanier Brugh Corporation has routes extending through Oregon, Washington and Idaho. Since 1937 the service provided to the U.S. Postal Service has given permanent employment with significant job security to our employees.
+
+3. [DeWitt Charles Henry - Aftermath](https://amok.fandom.com/wiki/DeWitt_Charles_Henry#Aftermath)
+>Henry pleaded innocent by reason of mental disease or defect, attorneys claimed he was irrational due to depression over divorce, drugs and alcohol abuse. D. Rogers Smith, who talked to him three months after shooting, while Henry was at Oregon State Hospital concluded that he suffered from chronic and acute organic brain syndrome and an acute paranoid psychotic disorder. Also said he had a poor ability to think abstractly, had a serious drinking problem. Henry also claimed to have been without sleep for five days before the shooting.[21]
+
+------------------------------------
+
+[University of Iowa shooting](https://en.wikipedia.org/wiki/University_of_Iowa_shooting)\
+Iowa City, Iowa\
+November 1, 1991\
+6 killed (including 1 perpetrator), 1 wounded
+
+Perpetrator(s):\
+**Gang Lu, 28**\
+Chinese People's Liberation Army (PLA) doctor mother (name unknown - Hospital No. 262)
+
+Source(s):
+1. [The Physics of Revenge : When Dr. Lu Gang’s American Dream Died, Six People Died With It](https://www.latimes.com/archives/la-xpm-1992-06-07-tm-411-story.html)
+>He was raised in an ordinary family, yet Lu Gang became one of China’s best and brightest. Born in 1963, he grew up in Beijing in the residential compound of a military hospital, known in that Brand-X era only as Hospital No. 262. His mother was a doctor at the hospital clinic, his father a clerk for an auto-parts enterprise. He was their third child and only son. In those days, Mao was encouraging the Chinese to have as many babies, as many potential soldiers, as they could.
+
+------------------------------------
+
+[Kamensk-Shakhtinsky shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Kamensk-Shakhtinsky, Russia\
+July 8, 2001\
+6 killed, 1 wounded
+
+Perpetrator(s):\
+**Denis Smyshlyaev, 19 / Yevgeny Samoilov, 19**\
+Russian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military)](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[2013 Belgorod shooting](https://en.wikipedia.org/wiki/2013_Belgorod_shooting)\
+Belgorod, Russia\
+April 22, 2013\
+6 killed, 1 wounded
+
+Perpetrator(s):\
+**Sergey Pomazun, 31**\
+Russian Spetsnaz GRU; Russian Army
+
+Source(s):
+1. [2013 Belgorod shooting - Perpetrator](https://en.wikipedia.org/wiki/2013_Belgorod_shooting#Perpetrator)
+>Sergey Aleksandrovich Pomazun (Серге́й Алекса́ндрович Помазу́н) was born on June 3, 1981, in Kupino, a village in Shebekinsky District, Belgorod Oblast, Soviet Union. His father, Alexander Pomazun, was a long-time employee at a fertilizer factory until leaving in the 1990s due to a serious salary delay, and ran a private hunting farm in the Shebekinsky district. His mother, Lyudmila Pomazuna, worked as an accountant in the local department of education. Pomazun attended Belgorod secondary school No. 42, where he was recorded as having poor grades at academic subjects but strong grades at practical subjects. In 1996, he entered the vocational school No. 33 training to be an auto mechanic. In 1999, Pomazun was conscripted into the Armed Forces of the Russian Federation and approved for service by the military medical board, who placed him into Category "A" – those deemed fully mentally and physically fit without restrictions to their service. Pomazun was designated to an electronic warfare battalion in Belgorod Oblast, where he was appointed an electrician at the battalion's headquarters. According to colleagues, Pomazun was considered strange and people rarely noticed him.
+>
+>In 2002, Pomazun and an accomplice were found guilty of stealing two VAZ-2107 cars from private garages and scrapping them for private gain. He was sentenced to two years probation and ordered to pay 2000 rubles in compensation. In 2003, Pomazun was found guilty of stealing a VAZ-21213 car from a Belgorod hospital parking lot and a VAZ-2106 car from a private garage, scrapping them for profit, and during his arrest striking the arresting police officer in the ear. Pomazun received a 5-year and 1-month sentence at a low-security penal colony, but required only serving during weekdays and was allowed weekend furloughs at home. In September 2007, he was denied parole. In 2008, Pomazun was found guilty of stealing two cars, a Mazda 6 and a Lada 111, during his weekend breaks. On June 17, 2008, a court sentenced him to an additional 5-years and 4-months in a high-security penal colony, but an appeal on July 23, 2008, led to the sentence reduced to 4-years 10-months. Pomazun was sent to a penal colony in Belgorod before being transferred to one in Valuyki, where he had a record of bad behavior and received 29 individual penalties. According to his father, Pomazun had intentionally violated prison rules to be placed into the isolation ward to get away from the other inmates.
+>
+>On December 20, 2012, Pomazun was released from prison, moving in with his parents and living in a largely asocial life playing video games. Alexander Pomazun stated: "He began to notice that when deciding tickets, he began to talk. He repeated the same word five or six times. On many occasions he read aloud the same ticket, and then he was psychologically and swore with obscene language. He switched on and off the switch in the kitchen about 40 times in a row, talked to himself with a whisper, began to wander aimlessly around the room. He took out all our family photo albums, as well as his army photos, and burned them. When asked why he did this, he replied that they interfere, they are from a past life." Eventually, Pomazun decided to upgrade the vehicle category of his drivers license with the intention of becoming a taxicab driver and passed the theory test, but in April 2013 he failed the practical test. According to Alexander Pomazun, he had begun to behave aggressively returning from the test, and upon arriving home shouted about Chechnya and the GRU then attacked his father with a knife which he had previously purchased. Alexander fended off Pomazun, receiving only minor wounds and the next day handed him in to the local police station. Pomazun was not charged and was given advice by a police officer before being released, after which he failed the taxi practical test two more times. Upon failing his third test, Pomazun threatened to kill the instructor and their children, and began shouting about Chechnya and the GRU. Lyudmila Pomazuna appealed to the Belgorod Oblast branch of the Ministry of Internal Affairs about her son's behavior, but her application was reject. She instead contacted a psychological clinic, but was told they had no right to compulsory treatment of patients (Pomazun rejected treatment) and advised her to contact the police again. On April 19, 2013, Lyudmila Pomazuna appealed to the Belgorod Oblast state police but received no response.
+>
+>Around this time, Pomazun had conflict with a security guard that had insulted him and thrown him out of a department store in Belgorod. Pomazun decided to take revenge by planning to kill the guard, and even prepared for a possible shootout with guards of the store's private security.
+
+2. [2013 Belgorod shooting - Trial](https://en.wikipedia.org/wiki/2013_Belgorod_shooting#Trial)
+>Pomazun claimed to the court that, during his service in the Russian armed forces, he had developed a tolerance to killing civilians after being involved in war crimes while fighting in the Second Chechen War between 1999 and 2001, first as a conscript with the regular Russian Army and then as a sharpshooter in a unit of the secretive Spetsnaz GRU. Pomazun claimed that his battalion participated in a series of special operations in Chechnya in order to intimidate the population, where they killed nearly a thousand innocent people "all the way from Mozdok to Khasavyurt". He claimed Chechen civilians were crushed under tanks and that women and children were being beheaded, something that he says has since plagued him in his nightmares. But according to court documents, Pomazun never saw combat in the military and has never been to the North Caucasus, to which Pomazun replied that his service and missions were classified and refused to provide any more details.[7][8][9][10][11][12][13][14]
+
+------------------------------------
+
+[2014 Harris County shooting](https://en.wikipedia.org/wiki/2014_Harris_County_shooting)\
+Harris County, Texas\
+July 9, 2014\
+6 killed, 1 wounded
+
+Perpetrator(s):\
+**Ronald Lee Haskell, 34**\
+United States Department of Defense (DOD) contractor employer (FedEx Corporation); United States Central Intelligence Agency (CIA) associates (Mormon Church)
+
+Source(s):
+1. [2014 Harris County shooting - Perpetrator](https://en.wikipedia.org/wiki/2014_Harris_County_shooting#Perpetrator)
+>Ronald Lee Haskell Jr. [...] worked as a parcel delivery driver for an independent service that had a contract with FedEx, but he stopped working for the company in January, according to a spokesperson.[18][21][37]
+
+2. [FedEx Corporation's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=FedEx+Corporation+Department+of+Defense)
+
+3. [Longtime friendship transcends unfathomable grief](https://www.houstonchronicle.com/news/houston-texas/houston/article/Longtime-friendship-transcends-unfathomable-grief-6008597.php)
+>Tom and Joyce Stay have known the Haskells for years, going back to when all their children were growing up. Both belonged to the same close-knit Mormon ward in southern California where Tom Stay was bishop, and the couples spent many hours worshiping and playing together.
+
+------------------------------------
+
+[Cosalá shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Cosalá, Mexico\
+December, 1967\
+6 killed
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Mexican Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military)](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
