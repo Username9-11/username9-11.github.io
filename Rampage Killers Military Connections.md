@@ -7640,7 +7640,7 @@ Perpetrator(s):\
 Filipino Armed Forces
 
 Source(s):
-1. [List of rampage killers (workplace violence in the military) - Wikipedia]https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military)
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
 >This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
 
 ------------------------------------
