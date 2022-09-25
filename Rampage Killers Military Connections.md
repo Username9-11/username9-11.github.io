@@ -8182,3 +8182,681 @@ Source(s):
 >This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
 
 ------------------------------------
+
+[Cherry Hill office shooting](https://murderpedia.org/male.G/g/grace-edwin-james.htm)\
+Cherry Hill, New Jersey\
+June 21, 1972\
+6 killed
+
+Perpetrator(s):\
+**Edwin James Grace, 33**\
+United States Federal Government contractor employer (Pinkerton)
+
+Source(s):
+1. [Edwin James Grace - Murderpedia](https://murderpedia.org/male.G/g/grace-edwin-james.htm)
+>An off-duty Pinkerton guard entered a Cherry Hill office building killing 6 and wounded 6 others. Died July 8 of self-inflicted wounds in Cherry Hill Medical Center.
+
+2. [Pinkerton - Wikipedia](https://en.wikipedia.org/wiki/Pinkerton_(detective_agency))
+>Pinkerton, founded as the Pinkerton National Detective Agency, is a private security guard and detective agency established in the United States by Scotsman Allan Pinkerton in the 1850s and currently a subsidiary of Securitas AB.[1] Pinkerton became famous when he claimed to have foiled a plot to assassinate president-elect Abraham Lincoln in 1861. Lincoln later hired Pinkerton agents to conduct espionage against the Confederacy and act as his personal security during the Civil War.[2][3] The Pinkerton National Detective Agency hired women and minorities from its founding, a practice uncommon at the time, as they were useful as spies.[4] At the height of their power, the Pinkerton Detective Agency was the largest private law enforcement organization in the world.[5]
+>
+>Following the Civil War, the Pinkertons began conducting operations against organized labor. During the labor strikes of the late 19th and early 20th centuries, businesses hired the Pinkerton Agency to infiltrate unions, supply guards, keep strikers and suspected unionists out of factories, and recruit goon squads to intimidate workers.[6] During the Homestead Strike of 1892, Pinkerton agents were called in to reinforce the strikebreaking measures of industrialist Henry Clay Frick, who was acting on behalf of Andrew Carnegie, the head of Carnegie Steel.[7] Tensions between the workers and strikebreakers erupted into violence which led to the deaths of three Pinkerton agents and nine steelworkers.[8][9] During the late nineteenth century, the Pinkertons were also hired as guards in coal, iron, and lumber disputes in Illinois, Michigan, New York, Pennsylvania, and West Virginia. Pinkertons were also involved in other strikes such as the Great Railroad Strike of 1877 and the Battle of Blair Mountain in 1921.
+>
+>During the twentieth century, Pinkerton rebranded itself into a personal security and risk management firm. The company has continued to exist in various forms through to the present day, and is now a division of the Swedish security company Securitas AB, operating as "Pinkerton Consulting & Investigations, Inc. d.b.a. Pinkerton Corporate Risk Management".[10] The former Government Services division, PGS, now operates as "Securitas Critical Infrastructure Services, Inc.".[11]
+
+------------------------------------
+
+[Pagadian City shooting](https://news.google.com/newspapers?id=IsEUAAAAIBAJ&sjid=3uADAAAAIBAJ&pg=5867,3006028&dq=)\
+Pagadian City, Philippines\
+July 11, 1976\
+6 killed
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Filipino Armed Forces
+
+Source(s):
+1. https://news.google.com/newspapers?id=IsEUAAAAIBAJ&sjid=3uADAAAAIBAJ&pg=5867,3006028&dq=
+
+------------------------------------
+
+[McCarthy shooting](https://mail.murderpedia.org/male.H/h/hastings-louis.htm)\
+McCarthy, Alaska\
+March 1, 1983\
+6 killed
+
+Perpetrator(s):\
+**Louis D. Hastings, 39**\
+United States Air Force (USAF); United States Armed Forces father (name unknown - branch unknown)
+
+Source(s):
+1. [Louis Hastings - Life](https://amok.fandom.com/wiki/Louis_Hastings#Life)
+>Hastings was born in Leawood, Kansas on January 1, 1944. When his father, who was said to have been a difficult person, returned home after the end of World War II, he disapproved of his infant son and abused him psychologically. He later left the family. [...] After school he served in the Air Force, later became a computer programmer and began to work in this profession at Stanford University around 1975.
+
+------------------------------------
+
+[Pamplona marine camp shooting](https://amok.fandom.com/wiki/Jaime_Labor)\
+Pamplona, Philippines\
+October 20, 1985\
+6 killed
+
+Perpetrator(s):\
+**Jaime Labor**\
+Filipino Armed Forces
+
+Source(s):
+1. [Jaime Labor - Amok Wiki](https://amok.fandom.com/wiki/Jaime_Labor)
+>Labor, a corporal who had been assigned as a stewart, was reprimanded that day for being drunk and uttering unsavory remarks when calling his superiors for dinner.
+
+------------------------------------
+
+[San Jose City army outpost shooting](https://amok.fandom.com/wiki/Rodelio_Garcia)\
+San Jose City, Philippines\
+December 1, 1991\
+6 killed
+
+Perpetrator(s):\
+**Rodelio Garcia**\
+Filipino Army
+
+Source(s):
+1. [Rodelio Garcia - Amok Wiki](https://amok.fandom.com/wiki/Rodelio_Garcia)
+>Pfc. Garcia, a member of the Army's 56th Infantry Battalion who supposedly suffered from war shock, opened fire with an M-16 assault rifle, while the detachment commander gave instructions to his men. After emptying his magazine Garcia escaped towards the nearby mountains, leaving five people dead at the scene, and one more fatally wounded.[3][4][5][6]
+
+------------------------------------
+
+[Bijeljina and Modran shootings](https://en.wikipedia.org/wiki/Bijeljina_and_Modran_shootings)\
+Bijeljina / Modran, SFR Yugoslavia\
+February 2, 1992\
+6 killed
+
+Perpetrator(s):\
+**Drago Miličić, 20**\
+Yugoslav People's Army (JNA)
+
+Source(s):
+1. [Bijeljina and Modran shootings - Perpetrator](https://en.wikipedia.org/wiki/Bijeljina_and_Modran_shootings)
+>At age 20, Miličić had been drafted into the army four and a half months before the shooting. During a medical examination before conscription, the psychiatrist noted that he was emotionally immature and that he had an anxiety-depression disorder, but that this was not a sufficient reason to prevent his enrollment in the army. Lieutenant Dragoslav Radovanovic, Miličić's superior and subsequent victim, had tried in early October 1991 to inform his superiors that Miličić should be released due to mental issues. His claims were ignored at the time, and Miličić remained in the army.[1][2]
+
+------------------------------------
+
+[Fort Lauderdale shooting](https://www.nytimes.com/1996/02/11/us/florida-killer-said-victims-were-racists-police-say.html)\
+Fort Lauderdale, Florida\
+February 9, 1996\
+6 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**Clifton McCree, 41**\
+United States Marine Corps (USMC); United States Air Force (USAF) applicant; Fort Lauderdale Municipal Government employer (Parks Department)
+
+Source(s):
+1. [Clifton McCree - Murderpedia](https://murderpedia.org/male.M/m/mccree-clifton.htm)
+>Becoming a pilot was his dream, but he failed the required Air Force tests and settled on the Marines.
+>
+>He excelled during his two years at Camp Pendleton near San Diego, where he became an expert rifleman, a team leader with two soldiers under his command and earned a promotion from private to lance-corporal.
+>
+>McCree came home in 1977 and got a part-time job in the city parks department. That turned full-time a year later and became his career for the next 18 years. His job evaluations glowed from the beginning, but there were early signs of an attitude problem.\
+>[...]\
+>In October 1994 -- with his outbursts and threats more frequent and his co-workers afraid of him -- he was fired after he failed a drug test.
+>
+>The firing came after a series of increasingly serious threats of violence. The issue came to a head when workers overcame their fear of reporting McCree, at the same time the city announced a policy to address workplace violence.
+>
+>By the time he was fired, McCree had become so paranoid he accused a dog of staring at him, screamed insults and racial slurs at tourists and threatened to exact revenge on any co- worker who reported his behavior.
+>
+>He left the city officially on Dec. 9, 1994, with his lump sum pension payout -- $27,360.\
+>[...]\
+>McCree tried to get work, applying to be a corrections officer with the Broward Sheriff's Office. But he was rejected because of his firing by the city and drug use.
+>
+>He told his family he was attending a six-month law- enforcement course at Broward Community College. "He was hitting those books really hard every night," Ezerma said. BCC has no record McCree ever attended.
+
+------------------------------------
+
+[Chita military base shooting](https://murderpedia.org/male.G/g/gorbunov-yevgeny.htm)\
+Chita, Russia\
+May 29, 1997\
+6 killed
+
+Perpetrator(s):\
+**Yevgeny Gorbunov, 20**\
+Russian Armed Forces
+
+Source(s):
+1. [Yevgeny Gorbunov - Murderpedia](https://murderpedia.org/male.G/g/gorbunov-yevgeny.htm)
+>Police and federal agents in the Chita region of Siberia announced an all-points bulletin for Pvt. Yevgeny Gorbunov. While on guard duty at a military installation Gorbunov ran amok killing five fellow soldiers and an officer.
+
+------------------------------------
+
+[Awang Kasom Khullen shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Awang Kasom Khullen, India\
+January 21, 2009\
+6 killed
+
+Perpetrator(s):\
+**Sheneyi Mede-O, 23**\
+Indian Army
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Zamboanga Sibugay shooting](https://www.gmanetwork.com/news/topstories/regions/204237/govt-militiaman-runs-amok-kills-6-in-zambo-sibugay/story/)\
+Zamboanga Sibugay, Philippines\
+October 24, 2010\
+6 killed
+
+Perpetrator(s):\
+**Olegario Vocal Jr.**\
+Filipino Government Militia (name unknown)
+
+Source(s):
+1. [Govt militiaman runs amok, kills 6 in Zambo Sibugay](https://www.gmanetwork.com/news/topstories/regions/204237/govt-militiaman-runs-amok-kills-6-in-zambo-sibugay/story/)
+>A government militiaman in Zamboanga Sibugay in southern Philippines went on a shooting rampage on Sunday evening, killing six of his colleagues, a military official said on Monday. Olegario Vocal Jr. (earlier identified as Olegario Bua) was also killed by a police-military team that pursued him[.]
+
+------------------------------------
+
+[Orlando factory shooting](https://en.wikipedia.org/wiki/Orlando_factory_shooting)\
+Orlando, Florida\
+June 5, 2017\
+6 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**John Robert Neumann, Jr., 45**\
+United States Army (USA)
+
+Source(s):
+1. [Orlando factory shooting - Perpetrator](https://en.wikipedia.org/wiki/Orlando_factory_shooting#Perpetrator)
+>John Robert Neumann Jr. (May 2, 1972 – June 5, 2017) received an honorable discharge from the U.S. Army in 1999.[1] He did not have a concealed weapons permit.[1] He had a history of minor crimes before the shooting, mostly associated with traffic.[1]
+>
+>Neumann once worked for Fiamma, which made awnings for recreational vehicles and campervans. He was fired in April 2017 for starting fights with people.[1] The lead manager who fired him later feared he would return for revenge.[1][2] Police dealt with him in 2014 when he was accused of battering a coworker at the factory.[1][2]
+
+------------------------------------
+
+[2021 Nairobi shooting](https://www.newsweek.com/police-officer-kills-wife-five-others-shooting-spree-1656797)\
+Nairobi, Kenya\
+December 7, 2021\
+6 killed
+
+Perpetrator(s):\
+**Benson Imbasi**\
+Kenya Police Service
+
+Source(s):
+1. [Cop Kills Wife, Five Others in Shooting Spree: Police](https://www.newsweek.com/police-officer-kills-wife-five-others-shooting-spree-1656797)
+>The officer, identified as Police Constable Benson Imbasi, went on a "killing spree" in Kabete, outside the capital Nairobi, in the early morning hours of Tuesday, Kenya's Directorate of Criminal Investigations (DCI) said on Twitter.
+
+------------------------------------
+
+[Fairchild Air Force Base](https://en.wikipedia.org/wiki/Fairchild_Air_Force_Base#1994_shooting)\
+Fairchild Air Force Base, Washington\
+June 20, 1994\
+5 killed, 22 wounded
+
+Perpetrator(s):\
+**Dean Mellberg, 20**\
+United States Air Force (USAF)
+
+Source(s):
+1. [Fairchild Air Force Base - 1994 shooting](https://en.wikipedia.org/wiki/Fairchild_Air_Force_Base#1994_shooting)
+>On 20 June 1994, Dean Mellberg, an ex-Air Force member, entered the base hospital and shot and killed four people and wounded 22 others.[50][51]
+>
+>Previously, psychologists Major Thomas Brigham and Captain Alan London at Fairchild AFB had found him unfit for duty, which resulted in a transfer to the Wilford Hall Medical Center at Lackland AFB for further psychological examination.[52] With Congressional pressure brought by Mellberg's mother, Airman Mellberg was found to be fit for military service. Airman Mellberg then was reassigned to Cannon Air Force Base where similar events led to him being returned to psychologists for evaluation. After this evaluation, he was discharged from Cannon AFB as being unfit for military service; he had been diagnosed with mild autism, generalized anxiety disorder and paranoid personality disorder.[53][54] He traveled to Spokane, Washington, near Fairchild AFB, where he purchased a rifle and planned his attack on the base.
+
+------------------------------------
+
+[2001 anthrax attacks](https://en.wikipedia.org/wiki/2001_anthrax_attacks)\
+United States\
+September 18 - October 12, 2001\
+5 killed, 17 wounded
+
+Perpetrator(s):\
+**Bruce Edwards Ivins**\
+United States Army Medical Research Institute of Infectious Diseases (USAMRIID)
+
+Source(s):
+1. [Bruce Edwards Ivins - Wikipedia](https://en.wikipedia.org/wiki/Bruce_Edwards_Ivins)
+>Bruce Edwards Ivins (/ˈaɪvɪnz/; April 22, 1946 – July 29, 2008)[1] was an American microbiologist, vaccinologist,[1] senior biodefense researcher at the United States Army Medical Research Institute of Infectious Diseases (USAMRIID), Fort Detrick, Maryland, and the suspected perpetrator of the 2001 anthrax attacks.[2] Ivins died on July 29, 2008, of an overdose of acetaminophen (Tylenol) in a suicide after learning that criminal charges were likely to be filed against him by the Federal Bureau of Investigation (FBI) for an alleged criminal connection to the attacks.[3][4][5]
+
+------------------------------------
+
+[FOB Gwan base shooting](https://www.dw.com/en/afghan-soldier-sentenced-to-death-for-killing-french-troops/a-16101861)\
+Tagab, Afghanistan\
+January 20, 2012\
+5 killed, 14 wounded
+
+Perpetrator(s):\
+**Abdul Sabor**\
+Afghan Army
+
+Source(s):
+1. [Afghan soldier sentenced to death for killing French troops](https://www.dw.com/en/afghan-soldier-sentenced-to-death-for-killing-french-troops/a-16101861)
+>An Afghan court has handed down the death penalty to an Afghan soldier who killed five French troops during a training operation in January. His attack prompted France to withdraw its contingent early. 
+>
+>A spokesman for the Afghan Ministry of Defense, Zahir Azimi, said on Tuesday that a military court in Kabul had ordered the soldier, Abdul Sabor, to be hanged.
+
+------------------------------------
+
+[Shefa-Amr attack](https://en.wikipedia.org/wiki/Eden_Natan-Zada)\
+Shefa-Amr, Israel\
+August 4, 2005\
+5 killed (including 1 perpetrator), 12 wounded
+
+Perpetrator(s):\
+**Eden Natan-Zada, 19**\
+Israel Defense Forces (IDF)
+
+Source(s):
+[Eden Natan-Zada - Early life](https://en.wikipedia.org/wiki/Eden_Natan-Zada#Early_life)
+>Natan-Zada was born to an Israeli-Jewish family that had immigrated to Israel from Iran and Yemen.[7][8] Natan-Zada's parents describe him as having been a "bright and studious Israeli schoolboy" prior to his becoming involved with the Jewish extremist Kahanism movement, to which he was introduced via the Internet.[9] He then began spending weekends in Kfar Tapuach, an Orthodox West Bank settlement. During his national service in the Israel Defense Forces (IDF), Natan-Zada deserted the army and hid in Kfar Tapuach to avoid further service.[9] According to Matthew Gutman of The Jerusalem Post, Kfar Tapuach "became the unofficial headquarters of the Jewish terrorist group Kahane Chai in 1990," but supporters deny the existence of a Kahane headquarters.
+>
+>In a letter left behind after his desertion, Natan-Zada expressed dismay to his parents over the disengagement plan, saying 'Just as I couldn't carry out an order that desecrates the Sabbath, I cannot be part of an organization that expels Jews.'[10] He added the anti-pullout slogan 'Jews don't expel Jews' to his letter, and concluded the message with the words: 'I will consider how I will continue to serve.'
+>
+>His mother claims that prior to the shooting she alerted the IDF and other security services that her son was still in possession of his military-issued weapon. 'We told everyone he's AWOL, that he could do something with his gun. We begged them to take away his gun. He also asked them to take his gun. The army destroyed my child. The army destroyed my life.' According to The New Republic, 'an army psychiatrist warned that he wasn't fit for weapons or uniform, but his professional judgment was awaiting approval by a panel of medical experts. A 'former chief of staff of the IDF' had reportedly 'speculated that the killer's parents might have a chance to win damages in court for neglect by the army of the welfare of their son.'[11]
+
+------------------------------------
+
+[Daingerfield church shooting](https://en.wikipedia.org/wiki/Daingerfield_church_shooting)\
+Daingerfield, Texas\
+June 22, 1980\
+5 killed, 11 wounded (including 1 perpetrator)
+
+Perpetrator(s):\
+**Alvin Lee King III, 45**\
+United States Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor employer (IBM); United States Federal Government assocaites (National Science Foundation grant)
+
+Source(s):
+1. [Blood of the Lamb](https://www.texasmonthly.com/news-politics/blood-of-lamb-daingerfield-church-shooting/)
+>Alvin Lee King III was born in Freer two days before Christmas, 1934, and he grew up in a decaying section of Corpus Christi known as the Cut. The King home shared a building with their pawnshop and liquor store. The menagerie of household pets included a lion, a cougar, and a baboon. An only child, Alvin Lee graduated from Miller High School in 1953, majored in education at North Texas State, and married a newspaperman’s daughter, Gretchen Gaines, in 1956. With an honors degree and an infant son, the fourth Alvin Lee, he returned to Corpus and taught math at Ray High School until 1961.
+>
+>King was admitted to medical school, but for reasons that were as much psychological as academic, he failed as an apprentice physician: he couldn’t stand the sight of blood. A National Science Foundation grant enabled him to complete the master’s program in math at Bowling Green State University in Bowling Green, Ohio. He was a minor prodigy from the Sputnik era, a devotee of the cold war crusade for technology. His faith in math and science was exclusive and absolute.
+>
+>The second child, Cynthia, was born in 1959, and in 1962 the family moved to Longview, where King worked as a systems engineer for IBM. He had a reputation as a crank in the well-clipped neighborhood where they lived; he used to run outside and holler at kids who disrupted his quiet. He was a science fiction buff and a collector of coins and guns that came his way through his parents’ pawnshop in Corpus.\
+>[...]\
+>Daingerfield, which was on a collision course with Alvin Lee King, had a legacy of bloodshed. Captain London Daingerfield, for whom the settlement was named about 1830, died in a fight with local Indians. Soon after helping plot the town square in 1841, another prominent early citizen stood trial in Daingerfield for the murder of an author of the Republic of Texas’ constitution.
+>
+>But in recent years the haze of rust-colored smog on the horizon has said all that need be said about the town’s identity. An East Texas archconservative with the ironic name of E. B. Germany organized Lone Star Steel as a component of this country’s World War II defense buildup. Sprawled along U.S. 259, just inside the Morris County line, the steel mill and its attendant industries employed thousands of workers in the area and altered the social fabric of Daingerfield. To Germany, whose company sponsored local broadcasts of H. L. Hunt’s Life Line harangues, unhindered profit and production were the safeguards of democracy, and the United Steelworkers of America were legions of the damned. During a 1968 strike by members of the AFL-CIO local, company trucks were blown up in Mount Pleasant. A sniper fired shots at a Texas Ranger, and a more efficient marksman murdered a scab worker from nearby Pittsburg. Even after the strike was settled, the potential for renewed violence still floated in the air like the particles of oxidized dust. Steelworkers encountered a telling sign at the entrances to company parking lots: “No Firearms, Intoxicants, or Cameras Allowed Beyond This Point.”
+
+2. [IBM's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=IBM+Central+Intelligence+Agency)
+
+3. [IBM's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=IBM+Department+of+Defense)
+
+------------------------------------
+
+[Joachim Lelewel high school massacre](https://en.wikipedia.org/wiki/Wilno_school_massacre)\
+Wilno, Poland\
+May 6, 1925\
+5 killed (including 2 perpetrators), 10 wounded
+
+Perpetrator(s):\
+**Stanisław Ławrynowicz / Janusz Obrąpalski**\
+Polish–Soviet War combatant; Soviet Main Intelligence Directorate (GRU) associates
+
+Source(s):
+1. [Wilno school massacre - Attack](https://en.wikipedia.org/wiki/Wilno_school_massacre#Attack)
+>Various accounts of the incident were reported by the newspapers worldwide. That the students were in possession of military grade weapons suggests that they might have been in contact with the illegal Soviet agents deployed to Poland for sabotage and espionage operations.[6]\
+>[...]\
+>An investigation revealed that the students had established a Communist youth organization to counter the principal's strict management of the school. The members of this organization had met one day before the exams in a tavern to discuss their further actions.[9] 
+>
+>However, the most likely motive was the bad mental state of both perpetrators, who were unable to adapt to the school lifestyle after the war experiences (Ławrynowicz took an active part in the Polish-Soviet War, while Obrapalski lost all his family possessions as a result). A bomb was later found in one classroom, large enough to blow up the school building.[10][11]
+
+------------------------------------
+
+[Westside School shooting](https://en.wikipedia.org/wiki/Westside_School_shooting)\
+Craighead County, Arkansas\
+March 24, 1998\
+5 killed, 10 wounded
+
+Perpetrator(s):\
+**Mitchell Johnson, 13**\
+Arkansas Department of Corrections mother (Gretchen Johnson)
+
+**Andrew Golden, 11**\
+United States Postal Service (USPS) parents (Dennis Golden / Jacqueline Golden); United States Fish and Wildlife Service (FWS) paternal grandfather
+
+Source(s):
+1. [Westside School shooting - Mitchell Johnson](https://en.wikipedia.org/wiki/Westside_School_shooting#Mitchell_Johnson)
+>Mitchell Johnson was born August 11, 1984 in Rochester, Minnesota to Gretchen and Scott Johnson.[14] When Mitchell was seven, his parents divorced, and he and his brother moved with their mother to Jonesboro, Arkansas. His mother soon remarried to Terry Woodward, an inmate at the prison where she was employed as a Correctional Officer. Johnson had a good relationship with his stepfather and brother, and adults who remembered him described him as being quiet and respectful. He was a former member of the Central Baptist Church youth choir, later joining the youth group at the Revival Tabernacle Church, in Jonesboro.
+>
+>Following the shooting, Johnson's attorney claimed that he had been sexually abused when he was 6 and 7 years old by a "family member of the daycare where he was placed". One year before the shooting, Mitchell, then aged 12, was charged with molesting a 3-year-old girl while visiting southern Minnesota with his family. However, the record of the case was expunged because of Mitchell's age.[14]
+
+2. [Westside School shooting - Andrew Golden](https://en.wikipedia.org/wiki/Westside_School_shooting#Andrew_Golden)
+>Andrew Douglas Golden was born May 25, 1986 in Jonesboro, Arkansas to Jacqueline and Dennis Golden; and died July 27, 2019 near Cave City, Arkansas. By all accounts, he came from a stable household, having a good relationship with both his parents, and he regularly visited his grandparents and great-grandmother.[24] Both of his parents worked as postal workers, and his paternal grandfather, Douglas Golden, was a wildlife conservation officer in Jonesboro.
+
+3. [Patterns Among School Shooters: Body-Related Issues and the Military - Secondary School Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Mitchell Johnson\
+>Brutally raped by older male peer repeatedly over four years\
+>[...]\
+>Mitchell Johnson\
+>Mother: corrections officer\
+>[...] 
+>Andrew Golden\
+Grandfather: fish and game warden\
+
+------------------------------------
+
+[2009 Saipan shooting](https://en.wikipedia.org/wiki/2009_Saipan_shooting)\
+Saipan, Commonwealth of the Northern Mariana Islands\
+November 20, 2009\
+5 killed (including 1 perpetrator), 9 wounded
+
+Perpetrator(s):\
+**Li Zhongren, 42**\
+United States Bureau of Alcohol, Tobacco, Firearms and Explosives (BATFE) licensed employer (Saipan International Shooting Range, Inc)
+
+Source(s):
+1. [2009 Saipan shooting - Perpetrator](https://en.wikipedia.org/wiki/2009_Saipan_shooting#Perpetrator)
+>The gunman was identified as 42-year-old Li Zhongren, who was employed at the Kannat Tabla shooting range as a contract worker. He was also living at the shooting range at the time of the shootings. It had been reported that he left a suicide note behind detailing his motive as a "business deal gone bad".[4] Police officials believed that the shootings, reported as premeditated, were sparked by a frustration over financial issues.[2]
+
+2. [Saipan International Shooting Range](https://vymaps.com/MP/Saipan-International-Shooting-Range-110896743865481/)
+>Place Types:	Gun Range, Shooting/Hunting Range\
+>Address:	Kannat Tabla Drive, 96950 Saipan, Northern Mariana Islands, Northern Mariana Islands
+
+3. [Saipan International Shooting Range, Inc - OpenGovUS](https://opengovus.com/firearms-license/9-98-010-01-3C-00069)
+>SAIPAN INTERNATIONAL SHOOTING RANGE, INC is licensed by Bureau of Alcohol, Tobacco, Firearms, and Explosives (BATFE), Department of Justice. The Federal Firearms License (FFL) number is #9-98-010-01-3C-00069. The business address is Inasahan Dr, Kannat Tabla, MP 96950.
+
+------------------------------------
+
+[Upper Cabengbeng army base shooting](https://amok.fandom.com/wiki/Tahiruddin_Taha)\
+Upper Cabengbeng, Philippines\
+October 22, 2015\
+5 killed, 9 wounded
+
+Perpetrator(s):\
+**Tahiruddin Taha**\
+Filipino Army
+
+Source(s):
+1. [Tahiruddin Taha - Amok Wiki](https://amok.fandom.com/wiki/Tahiruddin_Taha)
+>Taha, a Moro originating from Indanan, Sulu, had been a member of the Moro National Liberation Front before he was integrated into the army along with hundreds of other fighters of the group under the terms of the 1996 peace process. 
+>
+>At the time of the shooting he was a gunner of the mortar section of the 64th Infantry Battalion, had been in service for twelve years, and had no record of problematic behaviour. Due to issues in his family he requested a two-week long vacation to resolve them, and when he returned to the headquarters of the Bravo Company in Upper Cabengbeng a week prior to the shooting he appeared unusually quiet and withdrawn according to his comrades.[1][2][3][4][5][6]
+
+------------------------------------
+
+[1916 Vienna shooting](https://amok.fandom.com/wiki/Leopold_Fichtner)\
+Vienna, Austria-Hungary\
+April 17, 1916\
+5 killed, 7 wounded
+
+Perpetrator(s):\
+**Leopold Fichtner**\
+Austro-Hungarian Army
+
+Source(s):
+1. [Leopold Fichtner - Amok Wiki](https://amok.fandom.com/wiki/Leopold_Fichtner)
+>Leopold Fichtner was an Austrian soldier who killed five people and wounded seven others in Vienna, Austria-Hungary on April 17, 1916.[1][2] [...] Fichtner, an infantryman of the reserve battalion of the Landwehrinfanterieregiment
+
+------------------------------------
+
+[Sopore army camp shooting](https://amok.fandom.com/wiki/Sopore_amok_case)\
+Sopore, India\
+December 25, 1996\
+5 killed, 7 wounded
+
+Perpetrator(s):\
+**C. B. Rai**\
+Indian Army
+
+Source(s):
+1. [Sopore amok case - Amok Wiki](https://amok.fandom.com/wiki/Sopore_amok_case)
+>On December 25, 1996 an Indian soldier named C. B. Rai killed at least five people and wounded seven others at an army camp in Sopore, India. Rai, a member of the Rashtriya Rifles, opened fire on his colleagues with a gun, killing a major, a junior commissioned officer, and three or four jawans, before he was subdued. The reason for the shooting was apparently homesickness, or a domestic problem.[1][2][3][4][5]
+
+------------------------------------
+
+[Bad Reichenhall shooting](https://en.wikipedia.org/wiki/Martin_Peyerl)\
+Bad Reichenhall, Germany\
+November 1, 1999\
+5 killed (including 1 perpetrator), 7 wounded
+
+Perpetrator(s):\
+**Martin Peyerl, 16**
+German Army father (Rudolf Peyerl)
+
+Source(s):
+1. [Martin Peyerl - Biography](https://en.wikipedia.org/wiki/Martin_Peyerl#Biography)
+>Born to Rudolf and Theresa Peyerl on August 11, 1983, Martin Peyerl and his sister Daniela lived with their parents on a busy street in Bad Reichenhall, Germany.
+>
+>After the shooting, no clear motive has been presented for Peyerl's actions. Peyerl's status as an outsider at school, and that he had an alcoholic father at home who was frequently unemployed, have been regarded as possible influences. Peyerl was an avid gun enthusiast and frequently purchased gun magazines. He told classmates that he sometimes went to the forest looking for birds "to shoot" and sometimes practiced shooting with his father in the garage. Rudolf Peyerl, a twelve-year veteran of the German Army, was himself enthusiastic about firearms, owning as many as nineteen. A few months prior to November 1, Martin was temporarily expelled from school because of Nazi photographs pasted in his notebook.
+
+------------------------------------
+
+[Gangwon-do Goseong Military Base Massacre](https://ko-m-wikipedia-org.translate.goog/wiki/%EA%B0%95%EC%9B%90%EB%8F%84_%EA%B3%A0%EC%84%B1_%EA%B5%B0%EB%B6%80%EB%8C%80_%EC%B4%9D%EA%B8%B0_%EB%82%9C%EC%82%AC_%EC%82%AC%EA%B1%B4?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)\
+Goseong, South Korea\
+June 21, 2014\
+5 killed, 7 wounded
+
+Perpetrator(s):\
+**Lim Do-bin**\
+South Korean Army
+
+Source(s):
+1. [Gangwon-do Goseong Military Base Massacre - Wikipedia (Translated from the Korean)(https://ko-m-wikipedia-org.translate.goog/wiki/%EA%B0%95%EC%9B%90%EB%8F%84_%EA%B3%A0%EC%84%B1_%EA%B5%B0%EB%B6%80%EB%8C%80_%EC%B4%9D%EA%B8%B0_%EB%82%9C%EC%82%AC_%EC%82%AC%EA%B1%B4?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en-US&_x_tr_pto=wapp)
+>Sgt. Lim Do-bin was originally an A-class interested soldier, but was transferred to the 22nd Infantry Division after being upgraded to a B-class in November 2013. Criticism was raised that the military personnel system was not properly implemented. [5] In addition, Sgt. Lim was pointed out as one of the motives for the crime, as it was known that he suffered ' outside the class ', being bullied by both upper and lower ranks within his unit . [6] Sgt. Lim is silent on the motive for the crime, and the Ministry of National Defense has also officially denied the theory of motives outside the class. [ Source required ]
+
+------------------------------------
+
+[Bangui shooting](https://www.business-standard.com/article/pti-stories/five-rwandan-troops-killed-in-c-africa-shooting-drama-army-115080801176_1.html)\
+Bangui, Central African Republic\
+August 8, 2015\
+5 killed, 7 wounded
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Rwandan Armed Forces; United Nations (UN) peacekeeper
+
+Source(s):
+1. [Five Rwandan troops killed in C Africa shooting drama: army](https://www.business-standard.com/article/pti-stories/five-rwandan-troops-killed-in-c-africa-shooting-drama-army-115080801176_1.html)
+>A Rwandan UN peacekeeper in the Central African Republic shot dead four colleagues today and injured eight others before being gunned down, military sources said. "A Rwandan soldier picked up his gun and killed his colleagues before being felled. There were five dead and eight injured," said a source close to the UN mission in Central Africa, known by its French acronym of MINUSCA. A Central African army official also confirmed the toll.
+
+------------------------------------
+
+[La Unión shooting](https://amok.fandom.com/wiki/Jos%C3%A9_Ovidio_Hern%C3%A1ndez)\
+La Unión, El Salvador\
+September 17, 1993\
+5 killed (including 1 perpetrator), 6 wounded
+
+Perpetrator(s):\
+José Ovidio Hernández\
+Salvadoran Armed Forces
+
+Source(s):
+1. [José Ovidio Hernández - Amok Wiki](https://amok.fandom.com/wiki/Jos%C3%A9_Ovidio_Hern%C3%A1ndez)
+>José Ovidio Hernández was a Salvadoran sub-sergeant who killed four people and wounded six others at the Armed Forces Training Center in La Unión, El Salvador during the night of September 17, 1993. Hernandez, who was said to have been under the influence of drugs, opened fire with an M16 assault rifle at a group of soldiers and instructors, fatally hitting three sergeants and a sub-sergeant. He was then killed, when the other soldiers returned fire.[1][2][3][4][5]
+
+------------------------------------
+
+[Popov Island shooting](https://amok.fandom.com/wiki/Vyacheslav_Bugakov)\
+Popov Island, Russia\
+July 30, 1995\
+5 killed, 6 wounded
+
+Perpetrator(s):\
+**Vyacheslav Bugakov, 19**\
+Russian Federal Security Service (FSB) (Border Service of Russia)
+
+Source(s):
+1. [Vyacheslav Bugakov - Amok Wiki](https://amok.fandom.com/wiki/Vyacheslav_Bugakov)
+>Vyacheslav Bugakov (Russian: Вячеслав Бугаков) was a Russian border guard who killed five of his comrades and wounded six others at a military post on Popov Island, Russia on July 30, 1995.[1][2][3][4][5]
+
+------------------------------------
+
+[Ptysh shooting]*https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Ptysh, Russia\
+November 29, 2002\
+5 killed, 6 wounded
+
+Perpetrator(s):\
+**Denis Solovyev, 18**\
+Russian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Gerishk shootings](http://news.bbc.co.uk/2/hi/south_asia/4211587.stm)\
+Gerishk, Afghanistan\
+January 27, 2005\
+5 killed, 6 wounded
+
+Perpetrator(s):\
+**Unnamed shooter**\
+Afghan Army
+
+Source(s):
+1. [Afghan soldier on shooting spree](http://news.bbc.co.uk/2/hi/south_asia/4211587.stm)
+>An Afghan soldier has shot dead five of his fellow troops at a coalition base in southern Helmand province, Afghan and US authorities say. Six others were wounded before he was shot and killed. The reason for the incident is unclear.
+
+------------------------------------
+
+[Christopher Dorner shootings and manhunt](https://en.wikipedia.org/wiki/Christopher_Dorner_shootings_and_manhunt)\
+Orange County / Los Angeles County / Riverside County / San Bernardino County, California\
+February 3 - 12, 2013\
+5 killed (including 1 perpetrator), 6 wounded (3 by the perpetrator, 2 by Los Angeles PD, 1 by Torrance P.D)
+
+Perpetrator(s):\
+**Christopher Jordan Dorner, 33**\
+United States Navy Reserve (USNR); Los Angeles Police Department (LAPD)
+
+Source(s):
+1. [Christopher Dorner shootings and manhunt - Navy Reservist](https://en.wikipedia.org/wiki/Christopher_Dorner_shootings_and_manhunt#Navy_Reservist)
+>Dorner was a United States Navy Reserve officer, commissioned in 2002. He commanded a security unit at the Naval Air Station Fallon (Fallon, Nevada), served with a Mobile Inshore Undersea Warfare Unit from June 2004 to February 2006, and was deployed to Bahrain with Coastal Riverine Group Two from November 2006 to April 2007.[17] He was honorably discharged from the Navy Reserve as a lieutenant on February 1, 2013.[18]
+>
+>In 2002, while a student at Undergraduate Pilot Training at Vance Air Force Base (Enid, Oklahoma), Dorner and a classmate found a bag containing nearly US$8,000 (equivalent to about $12,100 in 2021) that belonged to the nearby Enid Korean Church of Grace. The two handed the money to the police. When asked their motive, Dorner replied that, "The military stresses integrity. ... There was a couple of thousand dollars, and if people are willing to give that to a church, it must be pretty important to them." Dorner also stated his mother taught him honesty and integrity.[19] During his time as a reservist, Dorner received a Navy Rifle Marksmanship Ribbon and a Navy Pistol Shot Ribbon with expert device.[20][21]
+
+2. [Christopher Dorner shootings and manhunt - Los Angeles Police Department](https://en.wikipedia.org/wiki/Christopher_Dorner_shootings_and_manhunt#Los_Angeles_Police_Department)
+>During his time https://en.wikipedia.org/wiki/Christopher_Dorner_shootings_and_manhunt#Los_Angeles_Police_Departmentas a naval reservist, Dorner joined the Los Angeles Police Department (LAPD). He entered the police academy in 2005, graduating in 2006.[15] Shortly afterwards, his duties as a probationary officer were interrupted when he was deployed by the Navy Reserve to Bahrain. On his return from duty in July 2007, Dorner was paired with training officer Teresa Evans to complete his probationary training. According to the Los Angeles Times, Evans said that on Dorner's first day working with her, he told her that he planned to sue the LAPD after he completed his probationary period, in response to how the LAPD had responded to complaints he had previously made against his classmates.[15]
+
+3. [Christopher Dorner shootings and manhunt - Allegations against training officer](https://en.wikipedia.org/wiki/Christopher_Dorner_shootings_and_manhunt#Allegations_against_training_officer)
+>On July 28, 2007, Dorner and Evans responded to the Doubletree Hotel in San Pedro, California regarding a disturbance being caused by Christopher Gettler, who had schizophrenia with severe dementia.[22][23] Dorner filed a report alleging that Evans had used excessive force in her treatment of Gettler,[24] accusing her of twice kicking Gettler in the chest and once in the face while he was handcuffed and lying on the ground. Gettler's father testified that his son told him he had been kicked by a police officer.[25][26][27] Dorner filed the report the day after being told that Evans had given an evaluation saying that he needed to improve his performance.[25]
+>
+>The LAPD investigated the complaint, examining the allegation against Evans and the truthfulness of Dorner's report, through an internal review board of three members—two LAPD captains and a criminal defense attorney. During the seven-month investigation of Dorner's complaint, Evans was assigned to desk duty and was not allowed to earn money outside of her LAPD job. Dorner's attorney at the board hearing was former LAPD captain Randal Quan.[25]
+>
+>The review board heard testimony from a number of witnesses. Two hotel employees testified that they did not see Evans kick Gettler.[24] Additionally a port police officer testified that he did not see Evans kick Gettler, however some aspects of his statement contradict photographs from the scene.[24] Gettler was brought to the police station and given medical treatment for injuries to his face, but did not mention being kicked at that time.[15] According to Gettler's father, later that day, Gettler told his father that he had been kicked by an officer, and his father testified to that at Dorner's disciplinary hearing.[15][28] In a videotaped interview with Dorner's attorney, shown at the hearing, Gettler stated that he was kicked in the face by a female police officer on the day and in the place in question; however, when Gettler testified at the hearing, his responses to questioning were described as "generally ... incoherent and nonresponsive."[29][30] The investigation concluded that there was no kicking and, later, decided that Dorner had lied.[31]
+
+4. [Christopher Dorner shootings and manhunt - Termination and failed appeal](https://en.wikipedia.org/wiki/Christopher_Dorner_shootings_and_manhunt#Termination_and_failed_appeal)
+>In 2008, Dorner was fired by the LAPD for making false statements in his report and in his testimony against Evans.[28][32] Dorner's attorney, Quan, stated that Dorner was treated unfairly and was being made a scapegoat.[25][33][34] Dorner appealed his termination by filing a writ of mandamus with the Los Angeles County Superior Court.[29] Judge David Yaffe wrote that he was "uncertain whether the training officer kicked the suspect or not" but nevertheless upheld the department's decision to fire Dorner, according to the Los Angeles Times.[35] Yaffe ruled that he would presume that the LAPD's accusations that Dorner's report was false would stand even though he did not know if his report of Evans kicking Gettler was false.[36] This enraged Dorner, who yelled out in disbelief at the end of the hearing, "I told the truth! How can this [ruling] happen?".[37]
+>
+>Dorner appealed to the California Court of Appeal, which affirmed the lower court's ruling on October 3, 2011. Under California law, administrative findings (in this case by the LAPD) are entitled to a presumption of correctness and the petitioner (in this case Dorner) bears the burden of proving that they were incorrect. The appeals court concluded that the LAPD had substantial evidence for its finding that Dorner was not credible in his allegations against Evans.[29]
+
+5. [Christopher Dorner shootings and manhunt - Manifesto for killings](https://en.wikipedia.org/wiki/Christopher_Dorner_shootings_and_manhunt#Manifesto_for_killings)
+>In early February 2013, coincident with the start of a series of revenge shootings, Dorner was purported to have posted a detailed note on his Facebook page, discussing his history, motivations, and plans.[4] This 11,000-word post became known as his "manifesto".[38]
+>
+>Dorner listed 40 law enforcement personnel whom he was prepared to kill and stated: "I know most of you who personally know me are in disbelief to hear from media reports that I am suspected of committing such horrendous murders and have taken drastic and shocking actions in the last couple of days", the posting began. "Unfortunately, this is a necessary evil that I do not enjoy but must partake and complete for substantial change to occur within the LAPD and reclaim my name. The department has not changed since the Rampart and Rodney King days. It has gotten worse...."[39][40] Dorner issued a single demand: a public admission by the LAPD that his termination was in retaliation for reporting excessive force. He also asked journalists to pursue "the truth", pointing out specific lines of investigation for reporters to follow under the Freedom of Information Act.
+>
+>On February 9, 2013, in response to Dorner's manifesto and the start of the killing spree, LAPD Chief Charlie Beck informed Dorner through the media that there would be a review of the disciplinary case that led to Dorner's dismissal.[41][42] Beck said officials would re-examine the allegations by Dorner that his law enforcement career was undone by racist colleagues.[42][43][44]
+
+------------------------------------
+
+[Fort Lauderdale airport shooting](https://en.wikipedia.org/wiki/Fort_Lauderdale_airport_shooting)\
+Broward County, Florida\
+January 6, 2017\
+5 killed, 6 wounded
+
+Perpetrator(s):\
+**Esteban Santiago-Ruiz, 26**\
+Puerto Rico National Guard; Alaska Army National Guard; United States Government contractor employer (Signal 88 Security)
+
+Source(s):
+1. [Fort Lauderdale airport shooting - Perpetrator](https://en.wikipedia.org/wiki/Fort_Lauderdale_airport_shooting#Perpetrator)
+>Esteban Santiago-Ruiz (born March 16, 1990), a 26-year-old resident of Alaska, unemployed, and a former National Guard member[18] was arrested immediately after the shooting.[5]
+>
+>Santiago flew on a Delta Air Lines flight from Ted Stevens Anchorage International Airport in Alaska, connecting through Minneapolis–Saint Paul International Airport. Investigators say that he declared a 9mm pistol with two magazines, locked in a secure container, his only checked baggage. He retrieved it in Fort Lauderdale and loaded the gun in the airport bathroom just before the attack.[2][19][20] Santiago was reported to be carrying military identification at the time of the shooting.[21]
+>
+>Santiago was born in New Jersey in 1990 and moved to Puerto Rico two years later.[22] He lived most of his life in Peñuelas, Puerto Rico, and attended high school there.[23] He joined the Puerto Rico National Guard on December 14, 2007, and served in the Iraq War from April 23, 2010, to February 19, 2011, as a combat engineer. He later served in the Alaska Army National Guard from November 21, 2014, until receiving a general discharge in August 2016 for "unsatisfactory performance."[22] He was a private first class and received ten awards during his time in the military.[24] According to his family members, he had become mentally ill after his tour in Iraq and was severely affected by seeing a bomb explode near two of his friends while in service. They also stated he had recently received psychological treatment,[25][26] which was confirmed by federal officials.[27]
+>
+>The Puerto Rico Police opened an investigation into his errant behavior and confiscated his firearms in March 2012. They were, however, returned to him in May 2014.[28][29] He also obtained a Florida driver's license in August 2012 even though he never lived in Florida, per official records. He provided the license on his successful application for permission to carry a concealed gun in Puerto Rico.[30][31][28] He later moved from Puerto Rico to Alaska, along with his brother, in the same year.[28][32]
+>
+>While in Alaska, Santiago worked as a security guard for a private company,[17] where he was described as being "quiet and solitary." He became increasingly violent over the following year.[33] In January 2016, Santiago was arrested and charged with assault in an incident involving his girlfriend in Anchorage, Alaska. Police alleged that Santiago yelled at her, broke down the door, and choked her. The case resulted in a deferred prosecution agreement, and a domestic violence temporary protection order had expired.[34]
+>
+>Santiago was subsequently scheduled to appear by telephone for sentencing in the domestic violence case in mid-April 2017.[35][36]
+>
+>Santiago visited the FBI field office in Anchorage in November 2016 and reported that the U.S. government was controlling his mind and making him watch online videos by the Islamic State of Iraq and the Levant,[37] and that he was being forced to join that group by the CIA.[38] He stated that he was hearing voices in his head telling him to commit acts of violence, but he also said that he was in control and did not intend to hurt anyone.[5][6][39] The FBI urged the man to seek mental health treatment[6] and notified the local police who detained him and took him to a medical facility for a mental health evaluation.[5][40] He was later investigated by the FBI, which discovered no links to terrorism or any violation of laws occurring during the Alaska incident.[41] Alaska police took his handgun from him due to the incident, holding it for twenty nine days, but returned it in December because Santiago had not been convicted of a serious crime, involuntarily committed to a mental institution, or adjudicated as mentally defective.[42][43] His weapon was not seized by the FBI, nor was he prevented from checking it for a flight, according to Karen Loeffler, the Alaska U.S. Attorney. She said federal law requires someone to be “adjudicated” as mentally ill before they can be kept from flying with a firearm. “This is not somebody that would have been prohibited, based on the information that they had,” she said of the Anchorage Police Department and the F.B.I. “We’re a country of laws, and they operate within them.”[3] He had also been dismissed as a security guard at Signal 88 Security on November 15, due to his mental health problems.[44][45]
+
+2. [Signal 88 Security's Connections to the United States Government - Google](https://www.google.com/search?q=Signal+88+Security+United+States+Government)
+
+------------------------------------
+
+[Wonju army base shooting](https://amok.fandom.com/wiki/Yun_Sang-tai)\
+Wonju, South Korea\
+June 5, 1969\
+5 killed, 5 wounded
+
+Perpetrator(s):\
+**Yun Sang-tai, 22**\
+South Korean Army
+
+Source(s):
+1. [Yun Sang-tai - Amok Wiki](https://amok.fandom.com/wiki/Yun_Sang-tai)
+>Yun Sang-tai (Korean: 윤하사) was a South Korean army sergeant who killed five people and wounded at least five others at a military base in Wonju, South Korea on June 5, 1969.[1][2][3][4][5][6][7]
+
+------------------------------------
+
+[Paraćin massacre](https://en.wikipedia.org/wiki/Para%C4%87in_massacre)\
+Paraćin, SFR Yugoslavia\
+September 3, 1987\
+5 killed (including 1 perpetrator), 5 wounded
+
+Perpetrator(s):\
+**Aziz Kelmendi, 20**\
+Yugoslav People's Army (JNA)
+
+Source(s):
+1. [Paraćin massacre - Background](https://en.wikipedia.org/wiki/Para%C4%87in_massacre#Background)
+>Aziz Kelmendi (Serbian: Азиз Кељменди/Aziz Keljmendi; born 15 January 1967 in Lipljan, SFR Yugoslavia) was a Kosovo Albanian conscript in the Yugoslav People's Army (JNA). Yugoslav authorities described him as a "misfit and loner".[1]
+
+2. [Paraćin massacre - Aftermath](https://en.wikipedia.org/wiki/Para%C4%87in_massacre#Aftermath)
+>It was claimed that "Kelmendi was assisted by eight associates, members of a hostile Albanian separatist and irredentist group".[9][better source needed] These eight, six ethnic Albanians, an ethnic Muslim and a Roma, were later convicted for helping the attack.[4] Yugoslav authorities concluded that Kelmendi had planned the attack shortly before it occurred. They stated that the military unit in which he served had no reason to suspect that he was mentally unstable and that he was "a loner who had a personal complex because he was ugly and quite nervous". He apparently socialized only with other Albanians and sometimes acted aggressively.[5]
+
+------------------------------------
+
+[Pasto shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Pasto, Columbia\
+January 14, 2005\
+5 killed, 5 wounded
+
+Perpetrator(s):\
+**Jaime Vásquez Mojomboy, 24**\
+Columbian Military Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[2007 Colorado YWAM and New Life shootings](https://en.wikipedia.org/wiki/2007_Colorado_YWAM_and_New_Life_shootings)\
+Arvada / Colorado Springs, Colorado\
+December 9, 2007\
+5 killed, 5 wounded
+
+Perpetrator(s):\
+**Matthew John Murray, 24**
+United States Army Reserves (USAR) applicant; United States Central Intelligence Agency (CIA) / Department of Defense (DOD) associates (Youth With A Mission / Mormon Church)
+
+Sources:
+1. [Matthew John Murray - Murray obsesses with guns, shootings](https://murderpedia.org/male.M/m/murray-matthew.htm)
+>One of the employees asked Murray if he went to a shooting range a lot. Murray replied he did because he was trying to get into the Army.
+
+2. [Manipulated Shootings: The Profile - 12-9-07 YWAM/New Life Church Matthew Murray, 24](https://www.tapatalk.com/groups/signofthetimes/manipulated-shootings-the-profile-t1355-s10.html)
+>Murray recently talked to an army recruiter about enlisting in the army reserves. The family did not know what happened with that. Steve states Matthew told him he was trying to get into the Army.
+
+------------------------------------
+
+[2022 Dnipro shooting](https://en.wikipedia.org/wiki/2022_Dnipro_shooting)\
+Dnipro, Ukraine\
+January 27, 2022\
+5 killed, 5 wounded
+
+Perpetrator(s):\
+**Artemiy Yuryovich Riabchuk**\
+National Guard of Ukraine (NGU)
+
+Source(s):
+1. [2022 Dnipro shooting - Suspect](https://en.wikipedia.org/wiki/2022_Dnipro_shooting#Suspect)
+>Artemiy Riabchuk, a National Guard of Ukraine serviceman from the Odessa Oblast, born in 2001, was the one who had shot at the servicemen. The State Bureau of Investigation informed the detainee of suspicion of murder, desertion, and theft of weapons. A possible terrorist motive is not to be ruled out.[8] 
+>
+>According to one lawmaker, Riabchuk had been bullied in the past.[5]
+
+------------------------------------
