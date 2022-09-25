@@ -6255,6 +6255,30 @@ Source(s):
 
 ------------------------------------
 
+[Highland Park parade shooting](https://en.wikipedia.org/wiki/Highland_Park_parade_shooting)\
+Highland Park, Illinois\
+July 4, 2022\
+7 killed, 48 wounded
+
+Perpetrator(s):\
+**Robert Eugene Crimo III, 21**\
+United States Department of Defense (DOD) contractor / Highland Municipal Government associate (Nancy Rotering - General Motors)
+
+Source(s):
+1. [Highland Park mayor recalls being Cub Scout leader to alleged July 4 gunman](https://abcnews.go.com/US/highland-park-mayor-recalls-cub-scout-leader-alleged/story?id=86371875)
+>Before Nancy Rotering was mayor of Highland Park, she served her suburban community in another way: as a Cub Scout leader. One of the members of her troop was Robert “Bobby” Crimo III, the alleged gunman accused of opening fire on a Fourth of July parade, killing seven residents and injuring at least 30 others.
+>
+>“I hadn't seen him in probably 15 years. But, you know, at the time I knew him he was a little boy,” the mayor said Thursday in an interview with ABC News Live. “I'm not sure what has happened in his life that brought him to this point.”
+
+2. [Nancy Rotering - Representing Lake County](https://www.cmap.illinois.gov/about/nancy-rotering)
+>Nancy Rotering was the first woman elected Mayor of Highland Park in April 2011, and was re-elected in April 2015 and 2019. She served as a Highland Park City Councilman from 2009-11. As Mayor, she has made fiscal responsibility, infrastructure, public safety, and community vibrancy her priorities. Rotering has worked in the private sector for General Motors Corporation and as an attorney at McDermott Will & Emery, as well as in the private sector as a Legislative Aide to State Representative Karen May. She has served on a broad range of civic and philanthropic commissions, boards and committees including the Illinois Comptroller’s Local Government Advisory Board, US Conference of Mayors, Northwestern University Leadership Council, and the Northwest Municipal Conference Legislative Committee.
+>
+>Rotering earned a bachelor’s degree in economics from Stanford University, an MBA from Northwestern University and a law degree from the University of Chicago.
+
+3. [General Motors' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=General+Motors+Department+of+Defense)
+
+------------------------------------
+
 [2001 Greyhound bus attack](https://en.wikipedia.org/wiki/2001_Greyhound_bus_attack)\
 Manchester, Tennessee\
 October 3, 2001\
