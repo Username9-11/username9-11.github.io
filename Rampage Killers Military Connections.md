@@ -1812,7 +1812,7 @@ June 28, 2016\
 48 killed (including 3 perpetrators), 230+ wounded
 
 Perpetrator(s):\
-**Akhmed Chatayev / Rakim Bulgarov / Vadim Osmanov / Unnamed Bomber**
+**Akhmed Chatayev / Rakim Bulgarov / Vadim Osmanov / Unnamed Bomber**\
 Georgian Intelligence Service (GIS); United States Central Intelligence Agency (CIA) associates (Timber Sycamore)
 
 Source(s):
@@ -1879,7 +1879,7 @@ May 7, 1964\
 
 Perpetrator(s):\
 **Francisco Paula Gonzales, 28**\
-Filipino Government associates (1960 Summer Olympics)\
+Filipino Government associates (1960 Summer Olympics)
 
 Source(s):
 1. [Francisco Gonzales - Wikipedia](https://en.wikipedia.org/wiki/Francisco_Gonzales)
@@ -1900,7 +1900,7 @@ Source(s):
 1. [Pacific Southwest Airlines Flight 1771 - David A. Burke](https://en.wikipedia.org/wiki/Pacific_Southwest_Airlines_Flight_1771#David_A._Burke)
 >David Augustus Burke [...] had previously worked for USAir in Rochester, New York, where he was a suspect in a drug-smuggling ring that was bringing cocaine from Jamaica to Rochester via the airline. Never officially charged, he reportedly relocated to Los Angeles to avoid future suspicions.
 
-2. [USAir's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=%22USAirways%22+United+States+Department+of+Defense+Civil+Reserve+Air+Fleet)
+2. [USAir's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=%22USAir%22+Department+of+Defense)
 
 ------------------------------------
 
@@ -2155,7 +2155,7 @@ Source(s):
 >Mutsuo Toi, a 21-year-old from a wealthy family, had been shunned by women and rejected from military service for having tuberculosis.
 
 2. [After failing the medical examination for joining the army, he killed 30 people in one day, and only one person was spared in the end](https://min.news/en/world/df1666181f03b13c6ae9eac2f6e1b299.html)
-	In 1937, Japan launched a full-scale war of aggression against China. The Japanese government began to call on the young and middle-aged in Japan to enlist in the army. Toi Mutsuo also came to the enlistment office to undergo an enlistment test. However, I don't know if he was infected by his parents, and Mutsuo Toi was also diagnosed with tuberculosis. Therefore, the conscription office assessed Mutsuo Toi's physical condition as "Class C" (equivalent to unqualified) and rejected his application to join the army.
+>In 1937, Japan launched a full-scale war of aggression against China. The Japanese government began to call on the young and middle-aged in Japan to enlist in the army. Toi Mutsuo also came to the enlistment office to undergo an enlistment test. However, I don't know if he was infected by his parents, and Mutsuo Toi was also diagnosed with tuberculosis. Therefore, the conscription office assessed Mutsuo Toi's physical condition as "Class C" (equivalent to unqualified) and rejected his application to join the army.
 
 ------------------------------------
 
@@ -2166,11 +2166,40 @@ February 25, 1994\
 
 Perpetrator(s):\
 **Baruch Goldstein, 37**\
-Israel Defense Forces (IDF)
+Israel Defense Forces (IDF); United States Central Intelligence Agency (CIA) / Federal Bureau of Investigation (FBI) / Israeli Institute for Intelligence and Special Operations (Mossad) associate (Meir Kahane)
 
 Source(s):
 1. [Baruch Goldstein - Immigration to Israel](https://en.wikipedia.org/wiki/Baruch_Goldstein#Immigration_to_Israel)
 >Goldstein immigrated to Israel in 1983.[1] He served as a physician in the Israel Defense Forces (IDF), first as a conscript, then in the reserve forces. Following the end of his active duty, Goldstein worked as a physician, and lived in the Israeli settlement of Kiryat Arba near Hebron, where he worked as an emergency doctor, and was involved in treating victims of Arab-Israeli violence.[12] He changed his name from Benjamin to Baruch, married a Soviet immigrant named Miriam,[13] and had four children. Israeli press reports claimed that Goldstein refused to treat Arabs, even Arab soldiers serving in the IDF, believing it was against Jewish laws to treat non-Jews even for payment.[14][15] This was also reflected in comments by his acquaintances.[16] Goldstein was active in Kahane's Kach party, and was third on the party list for the Knesset during the 1984 elections.[17] He compared Israel's democracy to the Nazi regime, and was in the habit of wearing a yellow star with the word JUDE on it.[18]
+
+2. [Baruch Goldstein - My Jewish Learning](https://www.myjewishlearning.com/article/baruch-goldstein/)
+>Goldstein was born in Brooklyn, New York, in 1956 to an Orthodox family. He studied at Yeshiva of Flatbush, Yeshiva University, and at the Albert Einstein College of Medicine, where he trained as a physician. He was a member of the Jewish Defense League, an extremist Jewish organization which advocated the use of violence to combat antisemitism, and a disciple of its leader, Meir Kahane. After immigrating to Israel, Goldstein served as a doctor in the Israeli army. He settled in Kiryat Arba, a Jewish settlement bordering Hebron, and continued to work as an emergency physician.
+
+3. [The False Prophet: Rabbi Meir Kahane: From FBI Informant to Knesset Member - Publisher's Weekly](https://www.publishersweekly.com/978-1-55652-078-5)
+>During the late 1960s Kahane's Jewish Defense League (JDL) waged an anti-Soviet bombing campaign to protest the plight of Jews in the U.S.S.R. In a riveting, well-documented expose, Village Voice contributing editor Friedman charges that this JDL guerrilla campaign was orchestrated by Mossad operative Yitzhak Shamir, Israel's future prime minister. Kahane, elected to Israel's Knesset in 1984, heads the ultra-rightist Kach party, whose stated goal is to drive all Arabs out of Israel. Friedman demonstrates that Kahane continues to receive heavy funding from the American Jewish community, even though purportedly a majority of U.S. Jews reject his politics. The author discloses that Kahane, early in his career, spied on student groups for the FBI and promoted the U.S. government's position on Vietnam for the CIA. The orthodox rabbi's sexual affairs, his alleged ties to Mafia boss Joseph Colombo Sr. and his apparent links to an Israeli anti-PLO terrorist group are also explored. (Apr.)
+
+4. [The False Prophet: Rabbi Meir Kahane: From FBI Informant to Knesset Member [Full Book] - Archive.org](https://archive.org/details/falseprophetrabb0000frie/)
+
+5. [Kahane the Plan Behind the Fury](https://www.washingtonpost.com/archive/opinions/1990/04/22/kahane-the-plan-behind-the-fury/1c5f0521-42e7-43c7-8218-82bb530088fd/)
+>Twenty years ago, virtually no politician of any significance in Israel or America talked about the plight of Soviet Jews -- that is, until Rabbi Meir Kahane and his Jewish Defense League (JDL) commenced a violent, headline-grabbing, anti-Soviet campaign in the early 1970s to protest the Soviet's ban on Jewish emigration. By 1970, the JDL's bombing and shooting attacks against Soviet facilities in the United States and Europe were so numerous that the U.S. government was compelled to make the free immigration of Soviet Jews a top priority. It was Kahane's crowning achievement. He gained the support of prominent U.S. labor leaders, politicians and Jewish philanthropists.
+>
+>Little did they know that the JDL's guerrilla war against the Soviet Union was orchestrated by right-wing Mossad officers led by a future Israeli prime minister, Yitzhak Shamir. In addition, the group's other key member was Geula Cohen, according to Cohenhead of the ultra-nationalist Tehiya Party. Despite Shamir and Cohen's vehement denunciations of Kahane in recent years, the two helped make the militant rabbi an international figure and a force to be reckoned with in Israel, where he is on trial for sedition for a speech he made in Jerusalem last year that allegedly provoked pogrom-like attacks on Arabs.
+>
+>The secret relationship between Cohen, Shamir and Kahane was forged one blustery cold morning in December 1969. Cohen, who had just been elected to the Knesset as a member of Menachem Begin's Herut Party, visited Kahane in his cramped JDL office on Manhattan's Fifth Avenue. Kahane had co-founded the JDL the previous year, ostensibly to defend Jews from antisemitism. In reality, the JDL emerged out of racial tensions generated by the 1968 New York City teachers' strike, which pitted the predominantly Jewish teachers' union against militant blacks seeking greater control of neighborhood schools.
+>
+>Kahane, then an editor of the Brooklyn-based Jewish Press, filled the weekly tabloid with lurid stories of antisemitic violence by blacks and Puerto Ricans against Jews too old and too poor to leave America's decaying inner cities. The stories further exacerbated racial tensions, while creating a pretext for Kahane to dispatch squads of armed vigilantes to "patrol" mixed Jewish-black neighborhoods.
+>
+>Geula Cohen, however, thought that Kahane was frittering away his talents. "Why are you wasting time fighting the {blacks}," asked Cohen, who in the 1940s had dropped out of Menachem Begin's Irgun underground to fight with the more extreme Stern Gang because she found Begin "too mild." "The vital issue for Jews is the plight of Soviet Jewry," Cohen said she told Kahane, "The Russians are planning to liquidate our people." She complained that the Golda Meir government favored using back-channel diplomacy, exactly the kind of passive policy that, in her view, had led to the Holocaust. "I really influenced him," Cohen told me. "He changed his program overnight."
+>
+>During the next few months, Cohen helped lay the groundwork for a guerrilla war against the Soviet Union that would be waged by the JDL -- and orchestrated by Shamir, the morose former Stern Gang commander who had been Mossad's chief of operations until 1965 but maintained close ties to the agency. Besides Shamir and Cohen, the group included Bernard Deutsch, a wealthy stockbroker and the chairman of the Anti-Defamation League's powerful Brooklyn chapter, and three top Mossad officers. "The JDL's decisions weren't made by Meir," says Deutsch. "If I were to tell you that Shamir was the head of our group and planned our activities, he would absolutely deny it. But I sat on his bed in his bedroom, which is where we had many of our meetings. I'm not looking to hurt Shamir, but that's a fact." Shamir's spokesman in Jerusalem said that the prime minister would not confirm or deny allegations about his involvement with the JDL. He did say, however, that Shamir was very sympathetic to the JDL's early work on behalf of Soviet Jews. Although the exact workings of the operation are still partly shrouded in mystery, many of Deutsch's and Cohen's statements have been independently confirmed by sources in the United States and Israel, as well as by personal letters that I obtained. "Our group planned how to fight the Soviet Union," says Cohen. "We wanted to pressure the Russian Embassy in the U.S., to warn them, to frighten them." She adds that they did not intend to use lethal violence.\
+>[...]\
+>It is not surprising that Shamir turned to Kahane, given his penchant for working on secret U.S. government projects, as well as his Orthodox Jewish, right-wing Zionist upbringing. Kahane's father was a respected Orthodox rabbi in the Flatbush section of New York, where he was a leader of the American branch of the right-wing Zionist Revisionist Movement.\
+>[...]\
+>In the spring of 1965, Kahane set up the July Fourth Movement with his childhood friend Joseph Churba, who went on to become a Middle East specialist for Air Force intelligence, a foreign affairs adviser to Ronald Reagan during the 1980 presidential campaign and a senior policy adviser to the Arms Control and Disarmament Agency.
+>
+>According to Kahane, the group created cells on several U.S. college campuses to support the Vietnam War and to block the spread of the radical student left. They received seed money and support from certain groups within the labor movement, including the AFL-CIO's legendary cold warriors, Jay Lovestone and Irving Brown, whose son Robert, became one of the group's student directors. Robert Brown says he only knew Kahane by the pseudonym he used then, Michael King, and had no idea that Kahane was an Orthodox rabbi with a wife and two children in Queens. As Michael King, Kahane had infiltrated the ultra-right-wing John Birch Society for the FBI in order to expose the source of their funding. In 1968 Churba and Kahane co-authored a pro-Vietnam polemic called "The Jewish Stake in Vietnam," which Kahane claimed was published by the CIA.
+
+6. [AFL-CIO's Connections to the United States Central Intelligence Agency - Startpage.com](https://www.startpage.com/sp/search?t=device&lui=english&language=english&query=AFL-CIO+Central+Intelligence+Agency)
 
 ------------------------------------
 
@@ -2248,8 +2277,8 @@ Source(s):
 >He has been an adjunct faculty member at Northeastern University in Boston since 1995 and also teaches a partnership tax class in the master's in taxation degree program at Fairfield University in Fairfield, Connecticut, according to CNN.
 >
 >On LinkedIn, Peter wrote of his experience: 'Career dedicated to developing and refining partnership tax planning and transactional skills' and 'Work closely with many of the preeminent partnership tax advisers in the United States on a daily basis.'
->
-3. [General Electric's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=General+Electric+Department+of+Defense)
+
+3. [General Electric's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/do/dsearch?query=General+Electric+Department+of+Defense)
 
 4. [Newtown Killer’s Obsessions, in Chilling Detail](https://www.nytimes.com/2013/03/29/nyregion/search-warrants-reveal-items-seized-at-adam-lanzas-home.html)
 >Marvin LaFontaine, 53, a mechanical engineer who considered himself a friend of Nancy Lanza from Kingston, N.H., where Ms. Lanza grew up, kept in touch with her chiefly by e-mail, Facebook and phone until 2010. He remembered that Adam Lanza deeply admired one of his mother’s brothers, a retired Kingston police officer named James Champion. Mr. LaFontaine said Mr. Lanza was keen on joining the military, as his uncle, Mr. Champion, had done.
@@ -2272,9 +2301,11 @@ Source(s):
 >
 >Lanza appears to have had no contact with mental health providers after 2006. The report from the Office of the Child Advocate stated: "In the course of Lanza's entire life, minimal mental health evaluation and treatment (in relation to his apparent need) was obtained. Of the couple of providers that saw him, only one—the Yale Child Study Center—seemed to appreciate the gravity of (his) presentation, his need for extensive mental health and special education supports, and the critical need for medication to ease his obsessive-compulsive symptoms."[165]
 
-7. [Yale’s Forgotten Master of Mind Control](https://www.ctinsider.com/connecticutmagazine/health/article/Yale-s-Forgotten-Master-of-Mind-Control-17039481.php)
+7. [Yale University's Connections to the United States Central Intelligence Agency's MK-ULTRA Mind Control Program - Startpage.com](https://www.startpage.com/sp/search?query=Yale+University+MKULTRA)
 
-8. [Newly released FBI documents reveal disturbing details about Sandy Hook shooter Adam Lanza - Neighbors say agents previously questioned Lanza for hacking](https://www.usatoday.com/story/news/politics/2017/10/24/newly-released-fbi-documents-reveal-disturbing-details-sandy-hook-shooter-adam-lanza/794585001/)
+8. [Yale’s Forgotten Master of Mind Control](https://www.ctinsider.com/connecticutmagazine/health/article/Yale-s-Forgotten-Master-of-Mind-Control-17039481.php)
+
+9. [Newly released FBI documents reveal disturbing details about Sandy Hook shooter Adam Lanza - Neighbors say agents previously questioned Lanza for hacking](https://www.usatoday.com/story/news/politics/2017/10/24/newly-released-fbi-documents-reveal-disturbing-details-sandy-hook-shooter-adam-lanza/794585001/)
 >Years before the Sandy Hook shooting, law enforcement agents visited Lanza's family home after he hacked into a government computer system in ninth grade, his neighbors told FBI agents investigating the Sandy Hook shooting. 
 >
 >Lanza's mother, Nancy, told neighbors at a party that her son made it to the second level of security on a government site. A third layer of security was able to thwart his hack. 
@@ -2295,7 +2326,7 @@ Perpetrator(s):\
 United States Air Force (USAF); United States Department of Defense (DOD) contractor psychiatric associates (Peak Behavioral Health Services)
 
 Source(s):
-1. [Sutherland Springs church shooting - Military service and violent behavior)(https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting#Military_service_and_violent_behavior)
+1. [Sutherland Springs church shooting - Military service and violent behavior](https://en.wikipedia.org/wiki/Sutherland_Springs_church_shooting#Military_service_and_violent_behavior)
 >After graduating, Kelley enlisted in the United States Air Force (USAF). He served in logistics readiness at Holloman Air Force Base in New Mexico from 2009 until 2014. He married in April 2011.[39][40] In October 2012, he was charged with assaulting his wife and fracturing his toddler stepson's skull. In response, Kelley made death threats against the superior officers who charged him, and he was caught sneaking firearms onto Holloman Air Force Base.[41] Around that same time, he made threats of self-harm to a coworker.[37] He was then admitted to Peak Behavioral Health Services, a mental health facility in Santa Teresa, New Mexico.[41]
 >
 In June 2012, Kelley escaped from Peak Behavioral Health Services but was soon apprehended ten miles away at a bus terminal in El Paso, Texas.[41][42] The facility's director of military affairs later recalled that Kelley had stayed at the facility for several weeks, until he was brought to court-martial. While there, he had expressed a desire for "some kind of retribution to his chain of command" and was discovered to have used computers to order "weapons and tactical gear to a P.O. box in San Antonio".[42]
@@ -2575,7 +2606,7 @@ Source(s):
 >[...]\
 >Ross describes his previous interactions with Sydney Gottlieb. Notoriously accredited with spearheading the CIA’s efforts to control the human mind, Gottlieb took part in numerous military intelligence experiments, from using LSD on unsuspecting Americans, to leading the charge on MK ULTRA.
 
-2. [Universal Health Services' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Universal+Health+Services+Department+of+Defense)
+2. [Universal Health Services' Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=Universal+Health+Services+Department+of+Defense)
 
 ------------------------------------
 
@@ -2725,7 +2756,7 @@ Source(s):
 1. [Sep 9 1949: Albert Guay Affair](https://worldhistoryproject.org/1949/9/9/albert-guay-affair)
 >Guay had met Rita, nee Morel, during World War II when both were working at Canadian Arsenals Limited in St. Malo, Quebec.
 
-2. [Canadian Arsenals Limited's Connections to the Canadian Department of National Defence - Google](https://www.google.com/search?q=Canadian+Arsenals+Limited+WW2)
+2. [Canadian Arsenals Limited's Connections to the Canadian Department of National Defence - Startpage.com](https://www.startpage.com/sp/search?query=Canadian+Arsenals+Limited+WW2)
 
 ------------------------------------
 
@@ -3183,9 +3214,9 @@ Source(s):
 1. [How teacher stopped the school slaughter: A look at the horror and heroism in Erfurt school massacre](https://www.theguardian.com/world/2002/apr/28/schools.education)
 >Frau Steinhäuser, who lived with her 19-year-old son Robert on the top floor, worked for a local skin clinic. Her estranged husband heads a department of the giant electronics concern, Siemens.
 
-2. [Siemens' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Siemens+Department+of+Defense)
+2. [Siemens' Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=Siemens+Department+of+Defense)
 
-3. [Siemens' Connections to the United States Central Intelligence Agency and German Federal Intelligence Service - Google](https://www.google.com/search?q=Operation+Rubicon+Siemens)
+3. [Siemens' Connections to the United States Central Intelligence Agency and German Federal Intelligence Service - Startpage.com](https://www.startpage.com/sp/search?query=Siemens+Operation+Rubicon)
 
 ------------------------------------
 
@@ -3777,14 +3808,14 @@ Source(s):
 2. [Binghamton shooting - Possible motives](https://en.wikipedia.org/wiki/Binghamton_shooting#Possible_motives)
 >Several sources suggested possible motives for Wong's attack, including feelings of being "degraded and disrespected" for his poor English language skills, depression over losing his job, and difficulty in finding work in New York.[26] A few years before the killings, he had worked as an engineer at Endicott Interconnect Technologies, a high-tech electronics company. In 2004, the company laid off five percent of its workforce. A coworker from that time said of him, "He was quiet—not a violent person" and "I can't believe he would do something like this."[37]
 
-3. [Endicott Interconnect Technologies' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Endicott+Interconnect+Technologies+Department+of+Defense)
+3. [Endicott Interconnect Technologies' Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=Endicott+Interconnect+Technologies+Department+of+Defense)
 
 4. [NY gunman angry over poor English skills, job loss](https://nbc24.com/news/local/ny-gunman-angry-over-poor-english-skills-job-loss)
 >Initial reports suggested Voong had recently been let go from IBM, which has roots in the region, but a person at IBM said there was no record of a Jiverly Voong ever working there. His father, Henry Voong, does work there.
 
-5. [IBM's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=IBM+Central+Intelligence+Agency)
+5. [IBM's Connections to the United States Central Intelligence Agency - Startpage.com](https://www.startpage.com/sp/search?query=IBM+Central+Intelligence+Agency)
 
-6. [IBM's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=IBM+Department+of+Defense)
+6. [IBM's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=IBM+Department+of+Defense)
 
 7. [Binghamton shooting - Package mailed to TV station](https://en.wikipedia.org/wiki/Binghamton_shooting#Package_mailed_to_TV_station)
 >Several days after the shooting, an envelope was received by the Syracuse, New York, TV station News 10 Now[27] dated March 18, 2009, and postmarked April 3, 2009, the day of the shooting.[40] The three stamps used for the postage were a Liberty Bell and two Purple Hearts.[27]
@@ -4351,9 +4382,9 @@ Sixteen days in, Minassian asked to be discharged. When he stood to leave, his f
 
 4. [Compugen's Connections to the Canadian Department of National Defence](https://buyandsell.gc.ca/procurement-data/request-your-own-supplier-contract-history-letter/compugen-inc)
 
-5. [Red Hat's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Red+Hat+Department+of+Defense)
+5. [Red Hat's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=Red+Hat+Department+of+Defense)
 
-6. [Red Hat's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=Red+Hat+Central+Intelligence+Agency)
+6. [Red Hat's Connections to the United States Central Intelligence Agency - Startpage.com](https://www.startpage.com/sp/search?query=Red+Hat+Central+Intelligence+Agency)
 
 =============================================================================================================================
 
@@ -4497,7 +4528,7 @@ Source(s):
 >
 >He also believed that the FBI was tapping his telephone not only at home, but also in the restaurants and bars he happened to visit. Over the years, he felt, the intrusion of the FBI into his personal life continued to grow. Other groups were also implicated by Ruppert in the plot to sabotage his career, his social contacts, and his car. By 1975, he told psychiatrists of being followed by the State Highway Patrol, the local Sheriff's Department, private detectives, and the Hamilton Police.
 
-2. [General Electric's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=General+Electric+Department+of+Defense)
+2. [General Electric's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=General+Electric+Department+of+Defense)
 
 ------------------------------------
 
@@ -4641,7 +4672,7 @@ Source(s):
 2. [Rose Marie Pagourtzis, Dimitrios Pagourtzis’ Mother: 5 Fast Facts](https://heavy.com/news/2018/05/rose-maria-pagourtzis-dimitrios-mother-kosmetatos/)
 >Rosemarie K Pagourtzis is listed in a Texas Tribune salaries database as “Administrative Associate in Pediatric Endocrinology, a department of The University of Texas Medical Branch at Galveston.” She makes $42,201, and her race was listed as Hispanic/Latina in that database, although she shared posts about Greek heritage on Facebook. She was hired in September 2013.
 
-3. [University of Texas Medical Branch at Galveston's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=University+of+Texas+Medical+Branch+at+Galveston+%22Department+of+Defense%22)
+3. [University of Texas Medical Branch's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=%22University+of+Texas+Medical+Branch%22+%22Department+of+Defense%22)
 
 4. [Welcome to the Galveston National Lab](https://www.utmb.edu/gnl/home)
 >The Galveston National Laboratory (GNL) is a sophisticated high containment research facility that serves as a critically important resource in the global fight against infectious diseases. The GNL is located on the campus of the University of Texas Medical Branch and operates under the umbrella of UTMB’s Institute for Human Infections and Immunity.
@@ -4909,7 +4940,7 @@ Source(s):
 1. [2021 San Jose shooting - Perpetrator](https://en.wikipedia.org/wiki/2021_San_Jose_shooting#Perpetrator)
 >Police identified the gunman as 57-year-old VTA employee Samuel James Cassidy.[36][37] He had been employed at the VTA since 2001; for his first two years, he was an electro-mechanic, and he was eventually promoted to a substation maintainer position in 2014.[38][39]
 
-2. [Santa Clara Valley Transportation Authority's Connections to the United States Department of Energy - Google](https://www.google.com/search?q=Santa+Clara+Valley+Transportation+Authority+Department+of+Energy)
+2. [Santa Clara Valley Transportation Authority's Connections to the United States Department of Energy - Startpage.com](https://www.startpage.com/do/search?query=Santa+Clara+Valley+Transportation+Authority+Department+of+Energy)
 
 3. [2021 San Jose shooting - 2016 detainment](https://en.wikipedia.org/wiki/2021_San_Jose_shooting#2016_detainment)
 >An August 2016 memo by the United States Department of Homeland Security (DHS) described how, after taking a trip to the Philippines, Cassidy was detained by officers with U.S. Customs and Border Protection (CBP) for a secondary inspection. They subsequently found books about terrorism in his possession, along with a memo book filled with notes about his hatred of the VTA. He was asked whether he had problems with anyone at his workplace, and he said he did not. According to a DHS official, Cassidy was detained by the officers partly because of red flags regarding sex tourism, but nothing relating to sex tourism was found, and the detention did not result in an arrest or apparently any follow-up action.[3][17][19]
@@ -5188,7 +5219,7 @@ Source(s):
 >[...]\
 >Hole had been diagnosed with several behavioral disorders starting in the fourth grade and had undergone behavioral therapy sessions for them. His behavior in childhood deteriorated to a point where police had to be called to the home on at least two occasions, and where he could not attend school and graduate. As a teenager, he became suicidal and physically abusive towards his mother.[2] In March 2020, Hole's mother contacted the local authorities and warned them about her son's intent to die by suicide by cop and his purchase of a shotgun the day before, prompting an investigation to be opened. Police responded to the home and took him to a hospital. While being placed in handcuffs, an anxious Hole instructed the officers to turn off his computer, since he did not want anyone to see what was on it. An officer went upstairs to seize the shotgun and observed what he identified as white supremacist websites on Hole's computer in the process.[12][24][25] Hole was placed in an "immediate detention mental health temporary hold" by the Indianapolis Metropolitan Police Department, but he was released after less than two hours.[2][26] In April 2020, the FBI questioned Hole about the websites. The investigation was later closed due to insufficient evidence of any criminal violation or a racially motivated extremist ideology held by Hole, though the shotgun was not returned to him.[27][28]
 
-3. [FedEx Corporation's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=FedEx+Corporation+Department+of+Defense)
+3. [FedEx Corporation's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=FedEx+Corporation+Department+of+Defense)
 
 ------------------------------------
 
@@ -5476,7 +5507,7 @@ Source(s):
 >
 >The couple stopped living together in March, and Meredith filed for divorce in July citing “discord or conflict of personalities".[2][4] Meredith Hight's mother claims that her daughter wanted the divorce since her husband was physically abusive and an alcoholic. She says her daughter had tried helping him for two years before filing the divorce.[5] Friends of Spencer Hight reported that before the shooting, he was unable to find work, had become isolated, and was drinking alcohol heavily.[6]
 
-2. [Texas Instruments' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Texas+Instruments+Department+of+Defense)
+2. [Texas Instruments' Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=Texas+Instruments+Department+of+Defense)
 
 3. [Meredith Emily Lane Hight - Find a Grave](https://www.findagrave.com/memorial/183321294/meredith-emily-hight)
 >Meredith was 2nd runner-up for Miss Teen of Georgia at age thirteen. At the age of fifteen, as high school sophomore, she was one of two students to represent the State of Georgia at the Presidential Classroom in Washington DC. Her most memorable meetings were with current Georgia Governor, Nathan Deal, and the late Supreme Court Justice Antonin Scalia. She graduated West Hall High School, Oakwood, Georgia, which was a proud moment for her parents. Her last two years of high school she was part of Georgia Academy of Math Engineering and Science (GAMES), where she attended Georgia Middle College on a dual enrollment program receiving high school and college credit. She graduated University of Texas, Dallas with a Bachelor's of Science in Mathematics.
@@ -5868,11 +5899,14 @@ United States Coast Guard (USCG); United States Department of Defense (DOD) cont
 
 Source(s):
 1. [Ratzmann served in Coast Guard, had distant father](https://www.gmtoday.com/business/ratzmann-served-in-coast-guard-had-distant-father/article_ccc91956-b86f-57ce-ae18-110963513bee.html)
->Terry Ratzmann is shown in this undated family photo. WAUKESHA - Terry Ratzmann was ambitious growing up. In his teens and early 20s, he would build things just for the sake of being challenged. A sailboat, a greenhouse, a voice amplifier - whatever snared his curiosity. In those years, he also served his country, in the U.S. Coast Guard. That's how his best friend growing up, Mike Ruzicka, now of Belleville, Mich., remembered Ratzmann. Ruzicka talked Tuesday about a different Ratzmann than the man who rampaged through a church service Saturday at the Sheraton Hotel in Brookfield, shooting 11 fellow members and killing seven, along with himself. He said Ratzmann served four years in the U.S. Coast Guard, and that he had no interest in guns before joining the military. Ruzicka discussed Ratzmann's family life, including a father who was distant from his kids. Despite some unusual tendencies, Ratzmann never showed signs of depression back then, he said. The two men started drifting apart when Ruzicka went to college and Ratzmann joined the military. They stopped regularly communicating after that when Ruzicka moved to Janesville and then Michigan. "I was in complete shock," Ruzicka, 44, said of Ratzmann's actions. "It was really confusing and foreign to me." [...] Though the Ratzmann household was usually their hangout spot of choice, Ruzicka didn't remember much about Ratzmann's father. His dad was "distant" from his two sons and two daughters, he said. The rest of the family, he said, had a close bond. Ratzmann, at 44, was still living with his mother and one sister before the shootings. "I don't know if it's because he worked a lot or what," Ruzicka said of the elder Ratzmann's job at Allis-Chalmers. Ratzmann's mother and father divorced at some point in the four years following high school, Ruzicka said. During that time, while in the Coast Guard, Ratzmann was an electronic technician. That eventually became a career, as he had been a contracted electronic technician for GE Healthcare before Saturday. U.S. Coast Guard spokeswoman Julie Shifflet confirmed Ratzmann served from 1978 to 1982 and was honorably discharged.
+>Terry Ratzmann was ambitious growing up. In his teens and early 20s, he would build things just for the sake of being challenged. A sailboat, a greenhouse, a voice amplifier - whatever snared his curiosity. In those years, he also served his country, in the U.S. Coast Guard. That's how his best friend growing up, Mike Ruzicka, now of Belleville, Mich., remembered Ratzmann. Ruzicka talked Tuesday about a different Ratzmann than the man who rampaged through a church service Saturday at the Sheraton Hotel in Brookfield, shooting 11 fellow members and killing seven, along with himself. He said Ratzmann served four years in the U.S. Coast Guard, and that he had no interest in guns before joining the military. Ruzicka discussed Ratzmann's family life, including a father who was distant from his kids. Despite some unusual tendencies, Ratzmann never showed signs of depression back then, he said. The two men started drifting apart when Ruzicka went to college and Ratzmann joined the military. They stopped regularly communicating after that when Ruzicka moved to Janesville and then Michigan. "I was in complete shock," Ruzicka, 44, said of Ratzmann's actions. "It was really confusing and foreign to me." [...] Though the Ratzmann household was usually their hangout spot of choice, Ruzicka didn't remember much about Ratzmann's father. His dad was "distant" from his two sons and two daughters, he said. The rest of the family, he said, had a close bond. Ratzmann, at 44, was still living with his mother and one sister before the shootings. "I don't know if it's because he worked a lot or what," Ruzicka said of the elder Ratzmann's job at Allis-Chalmers. Ratzmann's mother and father divorced at some point in the four years following high school, Ruzicka said. During that time, while in the Coast Guard, Ratzmann was an electronic technician. That eventually became a career, as he had been a contracted electronic technician for GE Healthcare before Saturday. U.S. Coast Guard spokeswoman Julie Shifflet confirmed Ratzmann served from 1978 to 1982 and was honorably discharged.
 
-2. [General Electric's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=General+Electric+Department+of+Defense)
+2. [General Electric's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/do/dsearch?query=General+Electric+Department+of+Defense)
 
-3. [Allis-Chalmers' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Allis-Chalmers+Department+of+Defense)
+3. [Allis-Chalmers' Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=Allis-Chalmers+Department+of+Defense)
+
+4. [Allis-Chalmers - 1940s](https://en.wikipedia.org/wiki/Allis-Chalmers#1940s)
+>World War II caused Allis-Chalmers, like most other manufacturing companies, to become extremely busy. As happened with many firms, its civilian product lines experienced a period of being "on hold", with emphasis on parts and service to keep existing machines running,[20] but its war materiel production was pushed to the maximum of productivity and output. In the late 1930s through mid-1940s, Allis-Chalmers made machinery for naval ships, such as Liberty ship steam engines, steam turbines, generators, and electric motors; artillery tractors and tractors for other army use; electrical switches and controls; and other products. Allis-Chalmers was also one of many firms contracted to build equipment for the Manhattan Project.[21] Its experience in mining and milling machinery made it a logical choice for uranium mining and processing equipment. Allis-Chalmers ranked 45th among United States corporations in the value of wartime military production contracts.[22]
 
 ------------------------------------
 
@@ -6096,7 +6130,10 @@ Source(s):
 3. [2021 Atlanta spa shootings - Motive](https://en.wikipedia.org/wiki/2021_Atlanta_spa_shootings#Motive)
 >According to the police, Long described his actions as being the result of a sex addiction that conflicted with his religious beliefs.[44][47] Long had been a customer at two of the massage parlors, and saw them as sources of sexual temptation.[47] Police records show that two of the massage parlors had been the site of 10 prostitution arrests, the latest of which took place in 2013.[48] All three targeted spas appeared on an online guide to brothels.[49] Long claims to have initially thought about killing himself but instead decided to target the businesses to "help" others dealing with sex addiction.[46][47] According to the Cherokee County Sheriff's Department, Long wanted to "eliminate the temptation" by targeting spas.[50][51]
 
-4. [Prostitution's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=Operation+Midnight+Climax)
+4. [The CIA's Chain of Brothels](http://www.keiththomsonbooks.com/blog/brothels)
+>The reality: In 1959, the Central Intelligence Agency indeed got into the prostitution business, opening whorehouses in New York City, San Francisco and Stinson Beach, California, in each case with the blessing and cooperation of the local police. The Federal Bureau of Narcotics took a piece of the action, too, in the role of drug dealer.
+>
+>The San Francisco branch, a Telegraph Hill duplex with sweeping waterfront views, was located at 225 Chestnut, a short stumble away from North Beach’s saloon district. The prostitutes, many of whom were placed on government payroll, duped johns into taking acid. Researchers from Operation Midnight Climax (yes, really) sat on the other side of two-way mirrors in hope of learning to use LSD to induce subjects to reveal secrets or do the bidding of the United States government.
 
 ------------------------------------
 
@@ -6276,8 +6313,6 @@ Source(s):
 >Nancy Rotering was the first woman elected Mayor of Highland Park in April 2011, and was re-elected in April 2015 and 2019. She served as a Highland Park City Councilman from 2009-11. As Mayor, she has made fiscal responsibility, infrastructure, public safety, and community vibrancy her priorities. Rotering has worked in the private sector for General Motors Corporation and as an attorney at McDermott Will & Emery, as well as in the private sector as a Legislative Aide to State Representative Karen May. She has served on a broad range of civic and philanthropic commissions, boards and committees including the Illinois Comptroller’s Local Government Advisory Board, US Conference of Mayors, Northwestern University Leadership Council, and the Northwest Municipal Conference Legislative Committee.
 >
 >Rotering earned a bachelor’s degree in economics from Stanford University, an MBA from Northwestern University and a law degree from the University of Chicago.
-
-4. [General Motors' Connections to the United States Department of Defense - Google](https://www.google.com/search?q=General+Motors+Department+of+Defense)
 
 5. [Highland Park parade shooting - Accused](https://en.wikipedia.org/wiki/Highland_Park_parade_shooting#Accused)
 >Police records and people who knew Crimo indicate that Crimo came from a troubled household. When Crimo was two, his mother left him unattended on a hot August day inside a car with windows rolled up.[40] She pleaded guilty to child endangerment and was ordered to undergo an evaluation at a child advocacy center. Between 2009 and 2014, police officers visited the Crimos' home nearly 20 times, nine of which involved reports of domestic violence. In 2010, Crimo's father reported that his wife struck him with a screwdriver but later retracted the accusation. Officers recommended that the couple go through marriage counseling or separate. Crimo's parents no longer live together.[40]
@@ -7000,9 +7035,10 @@ Source(s):
 >
 >In the period leading up to the shootings, Xerox management had become increasingly committed to phasing out the type of photocopier that Uyesugi serviced. He resisted learning the replacement machine, fearing that he could not keep up with its technical demands. After working around his refusal to train on the new machine, Uyesugi's manager insisted on November 1, 1999, that he would begin training the next day. In his interview with Dr. Michael Welner, who examined Uyesugi when the defendant brought an insanity defense, Uyesugi said he had believed that if he refused to take the training, management would fire him. He told Dr. Welner, "I decided to give them a reason to fire me."[8]
 
-2. [Xerox's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=Xerox+CIA)
+2. [Xerox's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=Xerox+Department+of+Defense)
 
-3. [Xerox's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Xerox+Department+of+Defense)
+3. [Xerox's Connections to the United States Central Intelligence Agency - Startpage.com](https://www.startpage.com/sp/search?query=Xerox+Central+Intelligence+Agency)
+
 
 ------------------------------------
 
@@ -7069,9 +7105,9 @@ Source(s):
 2. [Phillip Adams (American football) - Shooting and death](https://en.wikipedia.org/wiki/Phillip_Adams_(American_football)#Shooting_and_death)
 >Adams had no prior criminal record.[29] His father, Alonzo, suggested that his football career may have played a role in the shooting, stating that the sport "messed him up".[28] An autopsy revealed that Adams suffered from an "unusually severe" case of the brain disease chronic traumatic encephalopathy.[30]
 
-3. [National Football League's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=National+Football+League+Department+of+Defense)
+3. [National Football League's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=National+Football+League+Department+of+Defense)
 
-4. [National Football League's Connections to the United States Armed Forces](https://www.google.com/search?q=National+Football+League+US+Military)
+4. [National Football League's Connections to the United States Armed Forces - Startpage.com](https://www.startpage.com/do/dsearch?query=National+Football+League+US+Military)
 
 ------------------------------------
 
@@ -7996,7 +8032,7 @@ Source(s):
 
 2. [Superior Essex's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=Superior+Essex+Department+of+Defense)
 
-3. [FirstEnergy's Connections to the United States Federal Government - Google](https://www.google.com/search?q=FirstEnergy+Federal+Government+Contractor)
+3. [FirstEnergy's Connections to the United States Federal Government - Startpage.com](https://www.startpage.com/sp/search?query=FirstEnergy+Federal+Government)
 
 4. [Tennessee Valley Authority - Wikipedia](https://en.wikipedia.org/wiki/Tennessee_Valley_Authority)
 >The Tennessee Valley Authority (TVA) is a federally owned electric utility corporation in the United States. TVA's service area covers all of Tennessee, portions of Alabama, Mississippi, and Kentucky, and small areas of Georgia, North Carolina, and Virginia. While owned by the federal government, TVA receives no taxpayer funding and operates similarly to a private for-profit company. It is headquartered in Knoxville, Tennessee, and is the sixth largest power supplier and largest public utility in the country.[3][4]
@@ -8161,7 +8197,7 @@ Source(s):
 1. [2014 Harris County shooting - Perpetrator](https://en.wikipedia.org/wiki/2014_Harris_County_shooting#Perpetrator)
 >Ronald Lee Haskell Jr. [...] worked as a parcel delivery driver for an independent service that had a contract with FedEx, but he stopped working for the company in January, according to a spokesperson.[18][21][37]
 
-2. [FedEx Corporation's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=FedEx+Corporation+Department+of+Defense)
+2. [FedEx Corporation's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=FedEx+Corporation+Department+of+Defense)
 
 3. [Longtime friendship transcends unfathomable grief](https://www.houstonchronicle.com/news/houston-texas/houston/article/Longtime-friendship-transcends-unfathomable-grief-6008597.php)
 >Tom and Joyce Stay have known the Haskells for years, going back to when all their children were growing up. Both belonged to the same close-knit Mormon ward in southern California where Tom Stay was bishop, and the couples spent many hours worshiping and playing together.
@@ -8476,9 +8512,9 @@ Source(s):
 >
 >But in recent years the haze of rust-colored smog on the horizon has said all that need be said about the town’s identity. An East Texas archconservative with the ironic name of E. B. Germany organized Lone Star Steel as a component of this country’s World War II defense buildup. Sprawled along U.S. 259, just inside the Morris County line, the steel mill and its attendant industries employed thousands of workers in the area and altered the social fabric of Daingerfield. To Germany, whose company sponsored local broadcasts of H. L. Hunt’s Life Line harangues, unhindered profit and production were the safeguards of democracy, and the United Steelworkers of America were legions of the damned. During a 1968 strike by members of the AFL-CIO local, company trucks were blown up in Mount Pleasant. A sniper fired shots at a Texas Ranger, and a more efficient marksman murdered a scab worker from nearby Pittsburg. Even after the strike was settled, the potential for renewed violence still floated in the air like the particles of oxidized dust. Steelworkers encountered a telling sign at the entrances to company parking lots: “No Firearms, Intoxicants, or Cameras Allowed Beyond This Point.”
 
-2. [IBM's Connections to the United States Central Intelligence Agency - Google](https://www.google.com/search?q=IBM+Central+Intelligence+Agency)
+2. [IBM's Connections to the United States Central Intelligence Agency - Startpage.com](https://www.startpage.com/sp/search?query=IBM+Central+Intelligence+Agency)
 
-3. [IBM's Connections to the United States Department of Defense - Google](https://www.google.com/search?q=IBM+Department+of+Defense)
+3. [IBM's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=IBM+Department+of+Defense)
 
 ------------------------------------
 
@@ -8774,7 +8810,7 @@ Source(s):
 >
 >Santiago visited the FBI field office in Anchorage in November 2016 and reported that the U.S. government was controlling his mind and making him watch online videos by the Islamic State of Iraq and the Levant,[37] and that he was being forced to join that group by the CIA.[38] He stated that he was hearing voices in his head telling him to commit acts of violence, but he also said that he was in control and did not intend to hurt anyone.[5][6][39] The FBI urged the man to seek mental health treatment[6] and notified the local police who detained him and took him to a medical facility for a mental health evaluation.[5][40] He was later investigated by the FBI, which discovered no links to terrorism or any violation of laws occurring during the Alaska incident.[41] Alaska police took his handgun from him due to the incident, holding it for twenty nine days, but returned it in December because Santiago had not been convicted of a serious crime, involuntarily committed to a mental institution, or adjudicated as mentally defective.[42][43] His weapon was not seized by the FBI, nor was he prevented from checking it for a flight, according to Karen Loeffler, the Alaska U.S. Attorney. She said federal law requires someone to be “adjudicated” as mentally ill before they can be kept from flying with a firearm. “This is not somebody that would have been prohibited, based on the information that they had,” she said of the Anchorage Police Department and the F.B.I. “We’re a country of laws, and they operate within them.”[3] He had also been dismissed as a security guard at Signal 88 Security on November 15, due to his mental health problems.[44][45]
 
-2. [Signal 88 Security's Connections to the United States Government - Google](https://www.google.com/search?q=Signal+88+Security+United+States+Government)
+2. [Signal 88 Security's Connections to the United States Government - Startpage.com](https://www.startpage.com/sp/search?query=Signal+88+Government)
 
 ------------------------------------
 
