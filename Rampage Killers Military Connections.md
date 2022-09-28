@@ -8896,3 +8896,525 @@ Source(s):
 >According to one lawmaker, Riabchuk had been bullied in the past.[5]
 
 ------------------------------------
+
+[Melrose Park shooting](https://abcnews.go.com/US/story?id=94154&page=1)\
+Melrose Park, Illinois\
+February 5, 2001\
+5 killed (including 1 perpetrator), 4 wounded
+
+Perpetrator(s):\
+**William D. Baker, 66**\
+United States Department of Defense (DOD) contractor employer (Navistar International)
+
+Source(s):
+1. [Ex-Employee Kills 4, Self](https://abcnews.go.com/US/story?id=94154&page=1)
+>William Baker, a 66-year-old former Navistar worker who was fired by the company, opened fire around 10 a.m. at the firm's factory in the Chicago suburb of Melrose Park, the FBI said.
+
+------------------------------------
+
+[Columbus nightclub shooting](https://en.wikipedia.org/wiki/Columbus_nightclub_shooting)\
+Columbus, Ohio\
+December 8, 2004\
+5 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**Nathan Gale, 25**\
+United States Marine Corps (USMC); United States Department of Veteran Affairs (USDVA) associates
+
+Source(s):
+1. [Columbus nightclub shooting - Perpetrator](https://en.wikipedia.org/wiki/Columbus_nightclub_shooting#Perpetrator)
+>Nathan Gale was born on September 11, 1979,[15] in Marysville, Ohio.[11] He was a wrestler at Benjamin Logan High School, but transferred to Marysville High partway through his junior year and enrolled in a vocational program at the Ohio Hi-Point Career Center, where he studied construction and electrical work. He graduated in 1998.[21][22] He lived with his mother after graduation, working a variety of minimum wage jobs and developing a substance abuse problem. Gale often complained of being watched, which his mother Mary Clark attributed to his drug use. When a violent confrontation with Clark led to a police visit, Gale was thrown out of the house and supported himself through panhandling and theft until he agreed to enter a drug rehabilitation program.[23] His encounters with law enforcement at this time were minor: some trespassing charges from skateboarding, as well as one instance where he was accused of stealing from work.[21]
+>
+>In February 2002, inspired by the September 11 attacks, Gale enlisted in the United States Marine Corps.[11][23] Proud of her son's new career, Clark purchased the Beretta pistol as a Christmas present for Gale after he completed basic training.[21] He was stationed at Camp Lejeune in North Carolina with the 2nd Marine Division until November 2003, less than halfway through the typical four-year enlistment period. A Marine Corps spokeswoman declined to explain the reason behind Gale's military discharge.[24] Gale told his mother that he had been discharged due to a paranoid schizophrenia diagnosis, and he had returned with medication, but he declined additional treatment after returning home.[21] After his discharge, the Department of Veteran Affairs found Gale a job as a mechanic, and he informed his employer, Rich Cencula, of his condition.[10][25] An autopsy performed by the Franklin County coroner's office found no trace of drugs in Gale's system, prescription or otherwise.[8]
+>
+>Standing 6 ft 3 in (1.91 m) and weighing 266 lb (121 kg), Gale decided to take up boxing and American football after his military discharge.[26] He joined the Lima Thunder, a semi-professional football team in northwest Ohio, as an offensive lineman, and would listen to Pantera before games.[27] Gale, a lifelong fan of heavy metal, became obsessed with Pantera while he was in high school, and remained fixated on the band even after their 2003 breakup.[28] Gale's former friend Dave Johnson told reporters that Gale had shown up at a mutual friend's house with Pantera lyrics that he had claimed were his own, and that Gale asserted that Pantera had stolen lyrics from him and were attempting to steal his identity.[29] Many of Gale's friends began to distance themselves from him as his behavior became increasingly erratic; once, he told his former friend Mark Break that God was asking him to kill Marilyn Manson.[26] Others noted that he would talk and laugh to himself, would pretend to hold an imaginary dog, and that he would bother patrons at the tattoo parlor across the street from his apartment, staring at clients and engaging them in conversations about heavy metal music.[26][29]
+>
+>Gale was relatively unknown in Marysville, a town of about 16,000. His neighbors remembered him as quiet and aloof, and many noted the thick, dark-rimmed eyeglasses that he wore. He had been stopped multiple times for traffic citations, and had been charged with criminal trespassing for both skateboarding and sleeping outside. At the time of the shooting, Gale lived alone in an apartment above an abandoned storefront.[30] After the shooting, police officers found two handwritten notes inside his apartment. One read, "You'll see come alive. I'll take your life and make it mine. This is my life I'm gone. Git me." The other read, "You'll see the sky fall. I'll makes Pig fly. Come on and give me some, Come on give me some. Do it and Die, Do it and Die."[31]
+
+------------------------------------
+
+[Marysville Pilchuck High School shooting](https://en.wikipedia.org/wiki/Marysville_Pilchuck_High_School_shooting)\
+Marysville, Washington\
+October 24, 2014\
+5 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**Jaylen Ray Fryberg, 15**\
+United States Marine Corps (USMC) grandfather; United States Air Force (USAF) / White House / Government family associate (John Richard McCoy)
+
+Source(s):
+1. [Patterns Among School Shooters: Body-Related Issues and the Military - Secondary School Shooters](https://schoolshooters.info/sites/default/files/patterns_body_related_issues_and_military_1.28.pdf)
+>Jaylen Fryberg\
+>Grandfather: U.S. Marine Corps
+
+2. [Marysville Pilchuck High School shooting - Reactions](https://en.wikipedia.org/wiki/Marysville_Pilchuck_High_School_shooting#Reactions)
+>Washington State Senator John McCoy, a member of the Tulalip tribe, said in a released statement, "I do know the family. We're all related in one shape or form. We live and work and play together."[67] Washington Governor Jay Inslee also said in a Twitter post regarding the shooting, "Like all of WA, [my wife] and I have everyone at #MPHS in our hearts and prayers. Please take care of each other."[68] He later declared November 3 "Red and White Day" in the state, urging Washington residents to wear red and white, the school colors of Marysville Pilchuck High, as a sign of support.[69]
+
+3. [John McCoy (American politician) - Wikipedia](https://en.wikipedia.org/wiki/John_McCoy_(American_politician))
+>John Richard McCoy (born October 29, 1943) (Tulalip Tribes of Washington) is an American politician of the Democratic Party based in Washington state. In 2013, he was appointed to the State Senate to fill a vacancy and represents the 38th Legislative District. He previously served more than 10 years in the Washington House of Representatives (2003-2013). 
+
+4. [John McCoy (American politician) - Early life](https://en.wikipedia.org/wiki/John_McCoy_(American_politician)#Early_life)
+>McCoy was born into a Tulalip Tribes family on the reservation. He attended local schools.
+>
+>He spent 20 years in the Air Force before retiring in 1981. He then became a computer technician at the White House, before leaving to start a career in the private sector.[2]
+>
+>He would later become active in tribal affairs. He served as general manager of Quil Ceda Village,[1] the tribe's new municipality established in 2001. It included a gaming casino and business park. In 2005 the tribe also opened a 125-store retail outlet, all part of its efforts to diversify the tribe's economy and provide new jobs.
+
+5. [John McCoy (American politician) - Political career](https://en.wikipedia.org/wiki/John_McCoy_(American_politician)#Political_career)
+>McCoy had joined the Democratic Party and become active. In 2002 he ran for office as state representative and won. He served from 2003–2013, being re-elected several times.[3]
+>
+>In his fifth term in the state legislature, McCoy gained passage of a bill to establish a procedure "for the state to cede jurisdiction over criminal and civil matters on tribal lands to federal and tribal governments."[1] In 2013 he was chairman of the Community Development, Housing and Tribal Affairs Committee; vice chairman of the Environment Committee; and member of the Education Committee.[1]
+>
+>McCoy has also served as chairman of the executive committee of the National Caucus of Native American State Legislators; there are 79 Native legislators in 18 states.[1]
+>
+>On November 27, 2013, the Snohomish County Council selected McCoy to fill the vacancy left when Senator Nick Harper resigned. McCoy was the leading vote-getter of the Democratic Precinct Committee Officers in Washington's 38th Legislative District.[4] He retired from the State Senate on April 17, 2020, citing concerns about his health, and will be replaced by an appointee until a special election is held in November 2020.[2]
+
+------------------------------------
+
+[2016 shooting of Baton Rouge police officers](https://en.wikipedia.org/wiki/2016_shooting_of_Baton_Rouge_police_officers)\
+Baton Rouge, Louisiana\
+July 17, 2018\
+5 killed (including 1 perpetrator), 3 wounded
+
+Perpetrator(s):\
+**Gavin Eugene Long, 29**\
+United States Marine Corps (USMC); United States Department of Veterans Affairs (DVA) psychiatric associates
+
+Source(s):
+1. [2016 shooting of Baton Rouge police officers - Personal life](https://en.wikipedia.org/wiki/2016_shooting_of_Baton_Rouge_police_officers#Personal_life)
+>Long served in the U.S. Marine Corps as a data network specialist from August 22, 2005, to August 1, 2010. He was honorably discharged with the rank of sergeant.[6][18][43][49][50] During his military service, he was deployed to Iraq from June 2008 to January 2009.[51] He was also assigned to units in San Diego, California, and Okinawa, Japan.[49] Long was awarded the Good Conduct Medal, along with an Iraq Campaign Medal, a National Defense Service Medal, a Navy Unit Commendation, and others.[18][50]
+>
+>Following his military service, Long told relatives and friends that he suffered from posttraumatic stress disorder (PTSD). He reportedly had prescriptions for Ativan and Valium, both anti-anxiety drugs; Lunesta, a sleep aid; and citalopram, an antidepressant.[52][53] Health records from the U.S. Department of Veterans Affairs (VA) reportedly indicated contacts with Long from 2008 to August 2013.[54] The VA records said that Long told doctors that he contracted PTSD after a friend showed him photos of maimed and decapitated bodies while they were in Iraq. In November 2011, doctors contradicted Long's suspicions of PTSD and instead diagnosed him as having "adjustment disorder with depressed mood." They eventually concluded that he was mentally stable, with no evidence that he was a threat to himself or others.[53] According to Long's mother, the VA then sent him a letter denying him further treatment on the grounds that his disorder was not related to his military service.[55] Long's mental health and related combat experience may have been a factor leading to the shooting.[56]
+>
+>Long graduated from Central Texas College, attending the college's San Diego site at Marine Corps Air Station Miramar and via an online education program from fall 2007 to summer 2011; he received an associate of arts degree in general studies.[57]
+
+2. [2016 shooting of Baton Rouge police officers - Views and statements](https://en.wikipedia.org/wiki/2016_shooting_of_Baton_Rouge_police_officers#Views_and_statements)
+>Long was identified as a "black separatist" by a law enforcement official.[60] Mass shooting scholars said that Long displayed hallmarks of a "disgruntled, paranoid loner" (a common type of mass killer), with a narcissistic and grandiose personality.[59]
+>
+>Social media posts indicated that he was an active member of the anti-government New Freedom Group.[61] According to CNN, a card was found on Long's body, suggesting that he was a member of the Washitaw Nation, a group of African Americans associated with the sovereign citizen movement that originated in Richwood.[62] In addition to changing his legal name, he claimed his nationality was "United Washitaw de Dugdahmoundyah Mu'ur",[63][c] and expressed his support for the Moorish Science Temple of America, another African American organization associated with the sovereign citizen movement.[64] However, Long disavowed all prior associations in a recent video, saying, "Don't affiliate me with nothing. ... I'm affiliated with the spirit of justice."[59]
+>
+>In April 2015, while in West Africa, Long also became a member of a group dedicated to helping "Targeted Individuals" suffering from "remote brain experimentation, remote neural monitoring of an entire humans body." He asked to be put on the group's "buddy list", but he unexpectedly deactivated his account a month later.[42][47] His mother said he once believed the Central Intelligence Agency was following him.[65] He appeared as a guest on an online show discussing "Targeted Individuals", but downplayed his belief that he was being tracked, saying, "That's just a small aspect of me. It's not a complete picture of who I am." However, the show's host, who had frequent phone and email correspondence with Long, claimed that Long was adamant about being tracked during their communications.[59]
+>
+>In a "rambling" series of YouTube clips, Long claimed to be a former Nation of Islam member and referred to Alton Sterling, a black man killed by Baton Rouge police officers on July 5, in online videos.[6] Long operated his YouTube channel under his new legal name, Cosmo Setepenra, making references to oppression against blacks and police protests. At one point less than two weeks before committing the shooting, Long called the shootings of five Dallas police officers an act of "justice".[6][43] In one video, he said, "One hundred percent of revolutions... have been successful through fighting back through bloodshed."[60] In another, he said the act of peaceful protesting was a futile method based on emotion and was easily forgettable.[62] Long also maintained a personal website in which he described himself as a "freedom strategist, mental game coach, nutritionist, author and spiritual advisor."[51] The website contained dozens of additional videos and podcasts.[44]
+>
+>Long wrote and self-published (also under the name "Cosmo Setepenra") three books about "how to be a strong man" and self-empowerment for black males,[59][66] which all appeared on Amazon.com in October and November 2015. The books were described by the Los Angeles Times as "bizarre" works featuring a "combination of New Age-style jargon, pseudoscience, motivational bromides, health tips and racial theory." In the books, Long harshly criticized Western medicine, denied the germ theory of disease, and asserted that "[t]he abundance of Melanin in Black humans produces a superior organism both mentally and physically."[67] The books were pulled from Amazon.com after the shooting.[67] According to one of his books, he spent two years in several African countries studying their histories and cultures.[50] In addition to the books, Long wrote two diaries—one in 2014 and the other in 2015—where he shared "rambling thoughts" about philosophy, religion, and politics.[55]
+>
+>Sahib Taylor, a nephew of Long, told The Los Angeles Times that his uncle would teach him about the importance of self-reliance, share his views on racism, and assert that "only advanced survival skills and decisive action" could overthrow the U.S. government. Taylor said that Long recently began sharing his beliefs that international corporations, federal banks, and political organizations were influencing ethnic groups for their own gain; and that the government was using police to control and kill people.[68]
+
+3. [2016 shooting of Baton Rouge police officers - Before the shooting](https://en.wikipedia.org/wiki/2016_shooting_of_Baton_Rouge_police_officers#Before_the_shooting)
+>Within the preceding six months, Long visited the shooting range of a gun shop in Olathe, Kansas, and purchased a target that he used in shooting practice, according to an employee. The same employee also said Long did not purchase any firearms or exhibit any strange behavior at the store.[69]
+>
+>In a ten-minute video, Long claimed that he arrived at Baton Rouge not to protest Sterling's death, but to educate local blacks. He also expressed his distaste for white people and mentioned Huey P. Newton, co-founder of the Black Panther Party, in a rambling, one-sided conversation. He had previously made a similar recording using a body camera while visiting barbershops in Dallas sometime after the shooting there, to promote one of his books.[69][70] A friend said that Long visited him in DeSoto, Texas, two days after the Dallas shooting; during the visit, Long obsessively watched video footage of Sterling's death and praised the Dallas shooter Micah Xavier Johnson, saying "at least he did something".[71] The same friend said that Long also showed him a Washitaw Nation card and unsuccessfully urged him to join.[48] Long's mother said that he would get upset at news stories of black men being shot by police, often renting cars and using them to drive to locations where such shootings occurred to pass out his books.[55][65][66]
+>
+>Less than an hour before the shooting, Long purportedly emailed a three-page, handwritten letter, self-described as a "manifesto", to a Columbus, Ohio, musician whose YouTube videos he commented on. In the letter, Long described his belief that the shooting was necessary to "create substantial change within America's police force." He also wrote his belief that there was a "concealed war" between "good cops" and "bad cops", and that he had to attack "bad cops" as vengeance for perceived destruction that they continued to inflict on blacks.[72]
+
+------------------------------------
+
+[1950 New Jersey spree killings](https://en.wikipedia.org/wiki/Ernest_Ingenito#Killings)\
+Franklin Township / Minotola, New Jersey\
+October 7, 1950\
+5 killed, 2 wounded
+
+Perpetrator(s):\
+**Ernest Ingenito, 26**
+United States Army (USA)
+
+Source(s):
+1. [Ernest Ingenito - Early life](https://en.wikipedia.org/wiki/Ernest_Ingenito#Early_life)
+>Ingentio was drafted to serve in the US Army; during World War II, he was stationed at Fort Belvoir in Virginia. He was dishonorably discharged in 1946 after being court-martialed twice: once for going AWOL (Ingenito left without permission after hearing that his wife was living with another man), and a second for striking two superior officers.[4] He served two years of an eight-year sentence at Green Haven Correctional Facility, the military prison at Sing Sing, for the second offense.
+
+------------------------------------
+
+[Rose-Mar College of Beauty shooting](https://murderpedia.org/male.S/s/smith-robert-benjamin.htm)\
+Mesa, Arizona\
+November 12, 1966\
+5 killed, 2 wounded
+
+Perpetrator(s):\
+**Robert Benjamin Smith, 18**
+United States Air Force (USAF) father (name unknown)
+
+Source(s):
+1. [Robert Benjamin Smith - Rose-Mar Killings (November 13, 1966)](https://murderpedia.org/male.S/s/smith-robert-benjamin.htm)
+>Robert’s father was a Major in the air Force Reserves. As a result, the family moved around a lot as he was growing up. He was teased in school for his lack of coordination—something he would never grow out of, fully. He grew up reading books about his heroes—Caesar, Napoleon, and John F. Kennedy. Of the three, Kennedy was his favorite. That’s why on November 22, 1963, Smith’s world nearly ended. Living in Baltimore at the time, Smith begged his father to let him attend President Kennedy’s funeral. His father declined and Smith seemed to accept the answer, understanding.
+>
+>Robert Smith turned more antisocial, divesting a lot of attention and involvement in books—about Brutus, Jesse James, John Wilkes Booth, and Lee Harvey Oswald. His interests turned toward books about crime and mass murders, serial killers, and murders. His world grew darker, but no one seemed to take notice.
+>
+>The family moved to Mesa, Arizona in 1965. Smith’s father had retired from the Air Force and was working at an electronics plant in Phoenix. Smith still kept to himself at school, but despite his awkwardness and antisocial behaviors, his classmates still respected his intelligence enough to elect him to student council.
+
+------------------------------------
+
+[Moses Montefiore Academy shooting](https://en.wikipedia.org/wiki/Moses_Montefiore_Academy#1988_shooting)\
+Chicago, Illinois\
+September 22, 1988\
+5 killed (including 1 perpetrator), 2 wounded
+
+Perpetrator(s):\
+**Clemmie Henderson, 40**\
+United States Army (USA)
+
+Source(s):
+1. [Gunman Slain After Killing 4 on West Side](https://www.chicagotribune.com/news/ct-xpm-1988-09-23-8802010552-story.html)
+>Residents of the area said that Henderson, an army veteran of Vietnam during the late 1960s, grew up across the street from the school, and still lived in the neighborhood. They said he is married and has two children.
+
+2. [Clemmie “Clem” Henderson - Find a Grave](https://www.findagrave.com/memorial/205370259/clemmie-henderson)
+>SOURCE: Dept. of Veterans Affairs
+
+>Name: C. Henderson\
+>Birth Date: 26 Nov 1947\
+>Death Date: 22 Sep 1988\
+>Cause of Death: Natural [NOT]\
+>Branch 1: ARMY\
+>Enlistment Date 1: 8 Dec 1966\
+>Release Date 1: 24 Apr 1970
+
+------------------------------------
+
+[Capital Gazette shooting](https://en.wikipedia.org/wiki/Capital_Gazette_shooting)\
+Annapolis, Maryland\
+June 28, 2018\
+5 killed, 2 wounded\
+
+Perpetrator(s):\
+**Jarrod Ramos, 38**\
+United States Bureau of Labor Statistics (BLS); United States National Security Agency (NSA) father (Miguel Ramos); United States Armed Forces family
+
+Source(s):
+1. [Jarrod Ramos: 5 Fast Facts You Need to Know)
+>According to the news article from 2011, “Ramos, a tall, thin man with long hair he wears in a ponytail, did not speak at the hearing and did not return a call for comment left with his attorney. He has a degree in computer engineering and has worked for the U.S. Bureau of Labor Statistics for six years, (his attorney) said. He had no previous criminal record.”
+
+2. [Jarrod Ramos’ Family & Parents: 5 Fast Facts You Need to Know](https://heavy.com/news/2018/06/jarrod-ramos-family-parents/)
+>According to Miguel Ramos’ Facebook profile, he used to work for the NSA. After that, he worked for the Metropolitan Washington Airports Authority. He studied at the Data Processing Institute. His Facebook profile also mentions that he went to Arundel High School. Some people, in an attempt to start false flag conspiracy rumors, have pointed out that Edward Snowden also went to Arundel High School. However, Snowden has said that he struggled in high school and dropped out. Snowden is also much younger than Miguel Ramos, so their time at the school did not overlap.\
+>[...]\
+>Many people in Jarrod’s family have served in the military. On Veteran’s Day in 2017, Miguel Ramos listed many of the men who have been in military service. He mentioned that his father and uncle were both veterans, along with his cousin, brother-in-law, and nephew. Even his sister, Jarrod’s aunt, served in the military.
+
+3. [Capital Gazette shooting - Perpetrator](https://en.wikipedia.org/wiki/Capital_Gazette_shooting#Perpetrator)
+>In a court filing, Ramos stated he had seen five mental health professionals for at least 75 visits before the shooting, and exhibited a pattern of threats.[40] Many of those around Ramos believed him to be a calculated, manipulative loner, who would become angry when things did not go his way, with those afflicted by him convinced he would one day hurt someone.[41] None of Ramos's immediate family responded to requests for comment and other relatives have stated that they have not had contact with him for several years.[42]
+
+------------------------------------
+
+[Paris police headquarters stabbing](https://en.wikipedia.org/wiki/Paris_police_headquarters_stabbing)\
+Paris, France\
+October 3, 2019\
+5 killed (including perpetrator), 2 wounded
+
+Perpetrator(s):\
+**Mickaël Harpon, 45**\
+Paris Police (Intelligence Unit)
+
+Source(s):
+1. [Paris police headquarters stabbing - Attacker](https://en.wikipedia.org/wiki/Paris_police_headquarters_stabbing#Attacker)
+>The attacker was reported as being 45-year-old Mickaël Harpon, an IT specialist who worked in the intelligence unit of the police headquarters for the last 16 years and held a military secrecy security clearance, giving him access to restricted information like the watchlist of terror suspects, addresses of police officers and data on French citizens and their families who had returned after they fought in the Syrian Civil War.[7][8][10]
+
+------------------------------------
+
+[2021 Denver tattoo parlor shootings](https://www.nytimes.com/2021/12/28/us/denver-shooting-lakewood.html)\
+Denver, Colorado\
+December 27, 2021\
+5 killed, 2 wounded
+
+Perpetrator(s):\
+**Lyndon James McLeod, 47**\
+United States Armed Forces family (branches unknown)
+
+Source(s):
+1. [Denver ‘shooter’ Lyndon McLeod ranted about wanting to ‘go out and wreak havoc’ before ‘killing 5 in rampage’](https://www.the-sun.com/news/4361194/denver-shooter-lyndon-mcleod-rant-lakewood-colorado/)
+>[McLeod] also claims that he grew up as a military brat moving from one place to another, joined a cult at the age of 24 and lived in a tent for five months. 
+
+------------------------------------
+
+[Khemis El Khechna shooting](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))\
+Khemis El Khechna, French Algeria\
+November 29, 1958\
+5 killed, 1 wounded
+
+Perpetrator(s):\
+**Unnamed shooter**\
+French Algerian Armed Forces
+
+Source(s):
+1. [List of rampage killers (workplace violence in the military) - Wikipedia](https://en.wikipedia.org/wiki/List_of_rampage_killers_(workplace_violence_in_the_military))
+>This section of the list of rampage killers contains those cases, where soldiers willfully killed their own comrades.
+
+------------------------------------
+
+[Richard Baumhammers killing spree](https://en.wikipedia.org/wiki/Richard_Baumhammers#Killing_spree)\
+Pittsburgh, Pennsylvania\
+April 28, 2000\
+5 killed, 1 wounded
+
+Perpetrator(s):\
+**Richard Scott Baumhammers, 34**\
+United States Army (USA) father (Andrejs Baumhammers); Russian Imperial Army / Latvian Red Cross paternal grandfather (Arturs Baumhammers)
+
+Source(s):
+1. [Love of freedom, bravery characterize Baumhammers' family history](https://old.post-gazette.com/regionstate/20000514gramps9.asp)
+>Richard Baumhammers' grandparents, Arturs and Margrieta Anna Baumhammers, packed up their two children and whatever they could carry and started on a trek that would leave them as citizens of nowhere for 11 years.
+>
+>This was no easy flight for Arturs Baumhammers. Born Jan. 6, 1893, the son of Albert Baumhammers, he was an office worker in Riga when, at age 21, he was drafted into the Russian Imperial Army to fight against Germany in World War I.
+>
+>He completed officer-training school and was commissioned a lieutenant in the Seventh Bauskas Latvian Rifleman Regiment. On July 3, 1916, his war and his life nearly came to an end.
+>
+>According to an official published account of that day, Arturs "led half a company under fire and crossed a marsh and this resulted in the success of the entire assault. After a short rest, they crossed Smerdeklu Marsh and broke through the German fortifications and captured the positions in a bayonet fight. He was wounded and continued to command his company. He then was wounded very seriously the second time and suffered 20 wounds to the head, both arms and legs."
+>
+>The wounds would require that he undergo surgery 16 times, and he was left disabled, forced to wear leg braces to walk.
+>
+>After Latvia gained independence from Russia in 1918, it began recognizing its war heroes. In 1921, Arturs was awarded the Lacplesa Cavalier medal for bravery, Latvia's highest military honor.
+>
+>A family of Lutherans, Arturs and Margrieta Anna had two children, including Andrejs -- Richard's father -- who was born Oct. 12, 1935, in Riga, and Andrejs' older sister, Ilze. By the time of the Soviet occupation of 1940, the family was living in a nice apartment at 8 Pulkveza Brieza, one of Riga's finest addresses at the time. Arturs worked in a prosthetics manufacturing and fitting department for the Latvian Red Cross -- a department kept busy by the escalating war.\
+>[...]\
+>The Baumhammers would be refugees until 1950, when they made their way to North America and to the Pittsburgh region.
+>
+>Sponsored into the country by First Presbyterian Church in Wilkinsburg, the Baumhammers changed their denomination when they moved to the borough. Arturs worked as a janitor at the church and also made and sold Latvian crafts. Andrejs was an honor student at Wilkinsburg High School, while Ilze studied to become a medical technician.
+>
+>They were living at 735 Franklin Ave., Wilkinsburg, when they became naturalized citizens on Nov. 9, 1955. Arturs was 62, Margrieta Anna was 57. Andrejs was a 20-year-old liberal arts student at the University of Pittsburgh.
+>
+>An exceptional student, Andrejs graduated summa cum laude from Pitt in 1959, finishing his liberal arts and dental degrees the same year. In dental school, he met Inese, whose parents also were post-war Latvian immigrants. They married in 1959.
+>
+>While Inese was finishing at Pitt, Andrejs went into the Army, serving four years in the Dental Corps and reaching the rank of captain. During Andrejs' final year in the service, Inese was an instructor at Pitt's dental school and practiced dentistry in Monroeville.
+>
+>Andrejs was discharged in 1963, the year the couple's first child, Daina, was born. From 1963 to 1965, the family lived in Rochester, N.Y., where Andrejs earned his certificate in periodontics and a master's in dental research. That same year, the family had its second child, Richard Scott Baumhammers, born May 17, 1965.
+>
+>By this time, Arturs and Margrieta were living in Rockville, Md., with their daughter, Ilze, and her husband and three children. Arturs died March 29, 1967, when his grandson, Richard, was less than 2 years old. Margrieta died Sept. 11, 1971. They are buried in the Latvian section of Rock Creek Cemetery in Washington, D.C.
+>
+>After teaching at Temple University in 1965-67, Andrejs, along with Inese and their two children, returned to Pittsburgh.
+>
+>Andrejs joined Pitt's School of Dental Medicine faculty in 1967, with Inese following as an instructor in the department a year later.
+>
+>She has been an assistant professor at the school since 1972, the same year Andrejs became a full professor. The family has operated a practice in the city since 1967, moving to its current Fifth Avenue location in 1969.
+
+------------------------------------
+
+[John List - Murders](https://en.wikipedia.org/wiki/John_List#Murders)\
+Westfield, New Jersey\
+November 9, 1971\
+5 killed
+
+Perpetrator(s):\
+**John Emil List, 46**\
+United States Army (USA); United States Central Intelligence Agency (CIA) / Department of Defense (DOD) contractor employer (Xerox Corporation)
+
+Source(s):
+1. [John List - Early life and education](https://en.wikipedia.org/wiki/John_List#Early_life_and_education)
+>Born in Bay City, Michigan, List was the only child of German-American parents John Frederick List (1859–1944) and Alma Barbara Florence List (1887–1971). Like his father, List was a devout Lutheran and a Sunday school teacher. The year before his father's death in 1944, List graduated from Bay City Central High School. In 1943, he enlisted in the United States Army and served as a laboratory technician during World War II. After his discharge in 1946, List enrolled at the University of Michigan in Ann Arbor, where he earned a bachelor's degree in business administration and a master's degree in accounting, and was commissioned a second lieutenant through ROTC.[3]
+
+2. [John List - Military service and civilian career](https://en.wikipedia.org/wiki/John_List_(murderer)#Military_service_and_civilian_career)
+>In November 1950, as the Korean War escalated, List was recalled to active military service. At Fort Eustis in Virginia, he met Helen Morris Taylor, the widow of an infantry officer killed in action in Korea, who lived nearby with her daughter, Brenda. John and Helen married on December 1, 1951, in Baltimore, Maryland, the family moving to northern California. The Army, realizing List's accounting skills, reassigned him to the Finance Corps.[4]
+>
+>After completion of his second tour in 1952, List worked for an accounting firm in Detroit, and then as an audit supervisor at a paper company in Kalamazoo, where his three children were born.[5] By 1959, List had risen to general supervisor of the company's accounting department; but Helen, an alcoholic, had become increasingly unstable.[6] In 1960, Brenda married and left the household, and List moved with the remainder of his family to Rochester, New York, to take a job with Xerox. There, he eventually became director of accounting services.[7] In 1965, List accepted a position as vice president and comptroller at a bank in Jersey City, New Jersey, and moved with his wife, children, and mother into Breeze Knoll, a 19-room Victorian mansion at 431 Hillside Avenue in Westfield.[8]
+
+3. [Xerox's Connections to the United States Department of Defense - Startpage.com](https://www.startpage.com/sp/search?query=Xerox+Department+of+Defense)
+
+4. [Xerox's Connections to the United States Central Intelligence Agency - Startpage.com](https://www.startpage.com/sp/search?query=Xerox+Central+Intelligence+Agency)
+
+------------------------------------
+
+[Russian Jack Springs Park shooting](https://en.wikipedia.org/wiki/Charles_L._Meach)\
+Anchorage, Alaska\
+1973 (murder of Robert Johnson) - May 3, 1982 (shooting)\
+5 killed
+
+Perpetrator(s):\
+**Charles L. Meach**
+Alaska State Government psychiatric associates (Alaska Psychiatric Institute)
+
+Source(s):
+1. [Charles L. Meach - Wikipedia](https://en.wikipedia.org/wiki/Charles_L._Meach)
+>[Meach] made his way to Anchorage, Alaska, and in 1973 he beat 22-year-old Robert Johnson, who worked as a grocery clerk, to death in Earthquake Park.[1] He was charged with murder, found not guilty by reason of insanity and sent to a mental hospital in California. In 1980, psychiatrists decided that his illness was in remission and he was returned to Alaska under the supervision of the Alaska Psychiatric Institute. On May 3, 1982, armed with a .38-caliber revolver that he had bought from a man on the street, he shot four teenagers to death in Russian Jack Springs Park; two 19-year-old boys while robbing their campsite and two 16-year-old girls who came to investigate the gunshots.[2][3] He confessed to the killings when confronted and was charged.[4] He again pleaded not guilty by reason of insanity, but was convicted and sentenced to 396 years in prison without the possibility of parole — the longest sentence in the state's history.[5]
+
+2. [Alaska Psychiatric Institute - Wikipedia](https://en.wikipedia.org/wiki/Alaska_Psychiatric_Institute)
+>The Alaska Psychiatric Institute is a psychiatric hospital in Anchorage, Alaska that provides inpatient and outpatient mental health services for the state.[1]
+
+------------------------------------
+
+[Lake Worth cottage killings](https://murderpedia.org/male.R/r1/robison-larry.htm)\
+Lake Worth, Texas\
+August 10, 1982\
+5 killed
+
+Perpetrator(s):\
+**Larry Keith Robison, 24**\
+United States Air Force (USAF)
+
+Source(s):
+1. [Larry Keith Robison - Murderpedia](https://murderpedia.org/male.R/r1/robison-larry.htm)
+>Larry was quiet and easy going, a day dreamer who loved Captain Kangaroo -- but also an avid reader with high marks, active in Boy Scouts, the swim team, the church youth group and the school band. He was 12 when his parents first noticed something was wrong. He disrupted class. His grades dropped.
+>
+>He collected strange things, lots of pencils and staplers. By high school he was into drugs, running away from home, suffering bouts of irrational fear and hearing voices. A Kansas City psychiatric center couldn't identify his problem, nor could a mental health center in Fort Worth.
+>
+>At 17, he enlisted in the Air Force, but his condition deteriorated -- he was now hallucinating -- and he was honorably discharged after a year. By then, Larry thought he could move things with his mind. He built a plywood pyramid and slept under it because he thought it would give him special powers.
+>
+>He worked briefly as a wallboard hanger and got married, but the relationship only lasted a few weeks. He called home, sometimes begging for help, and said his roommates were trying to hurt him. People could read his mind. He had been flying out of his body over the middle of Fort Worth while singing the story of his life.
+>
+>The CIA and Air Force were chasing him. The power coming out of his head had exploded a car and killed its passengers. He was responsible for everything in the newspapers: wars, accidents, disasters, divorces. The CIA was giving him secret messages on the TV news and the programs were making fun of him.
+>
+>Finally, emergency-room doctors diagnosed him as paranoid schizophrenic and said he needed long-term treatment. But upon discovering that Larry was 21 and his parents' insurance didn't cover him, Lois Robison said, the hospital discharged him.
+>
+>Repeatedly, Larry was pronounced mentally ill, a condition intensified by drug abuse. Repeatedly, he was released, his mother said, because he wasn't "violent" and the hospital needed the bed, or because he didn't have insurance.
+>
+>When in 1979 he was arrested for stealing a truck, his parents left him in jail for six months; the judge would not commit Larry to a mental hospital. "I am frankly afraid for him to be turned loose on the streets again, which is one reason we did not arrange for bail ," Lois Robison wrote to her attorney, Kenneth Price, three years before the murders. "I was told by a doctor at the VA hospital that if he doesn't get (treatment) he will continue to get worse and could be a danger to himself and others." Eventually, a residental drug treatment program took Larry. He worked construction jobs and had a daughter with a woman who, spooked by his behavior, soon left.
+>
+>Then, on Aug. 10, 1982, five people were mutilated, shot and stabbed at the home of Larry's friend, Rickey Bryant -- where Larry was living temporarily -- and a neighboring cottage near Fort Worth.
+
+------------------------------------
+
+[The Kimberley Killer](https://en.wikipedia.org/wiki/Joseph_Schwab#Killings)\
+Northern Territory / Western Australia, Australia\
+June 9 - 14, 1987\
+5 killed
+
+Perpetrator(s):\
+**Joseph Thomas Schwab, 26**\
+West German Bundeswehr
+
+Source(s):
+1. [Josef Schwab murder spree, 30 years on: on the trail of a killer in WA’s remote north](https://thewest.com.au/news/wa/josef-schwab-murder-spree-30-years-on-on-the-trail-of-a-killer-in-was-remote-north-ng-b88502609z)
+>The killer, a deranged German tourist with a military background, had flown into Brisbane two months earlier, hired a four-wheel-drive and loaded it with an arsenal of guns and ammunition.
+
+------------------------------------
+
+[1991 Post Office shooting](https://murderpedia.org/male.M/m/mcilvane-thomas.htm)\
+Royal Oak, Michigan\
+November 14, 1991\
+5 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**Thomas McIlvane, 31**
+United States Marine Corps (USMC); United States Postal Service (USPS); United States Marine Corps (USMC) father (Richard McIlvane Sr.); United States Marine Corps (USMC) associate (Mark Mitchell)
+
+Source(s):
+1. [Two Sides Of A Gunman: Affable, Then Intensely Angry](https://archive.seattletimes.com/archive/?date=19911115&slug=1317398)
+>Like his late father Richard McIlvane Sr. - a tough ex-Marine who chain-smoked Pall Malls - Tom McIlvane was proud, tough and self-sufficient with a streak of niceness, as long as you didn't cross him.\
+>[...]\
+>Following his father's footsteps, McIlvane joined the Marines, serving in Okinawa, Japan, and Twentynine Palms, a base near Palm Springs, Calif. "One time at Twentynine Palms, there was a guy he was mad at and he drove a tank over his car," said Mark Mitchell, who served in the Corps with McIlvane and later worked with him at the post office.
+
+------------------------------------
+
+[Oxnard shooting](https://murderpedia.org/male.W/w/winterborne-alan.htm)\
+Oxnard, California\
+December 2, 1993\
+5 killed
+
+Perpetrator(s):\
+**Alan Winterbourne, 33**\
+United States Department of Defense (DOD) contractor employer (Northrop Corporation); United States Republican Party candidate (California's 19th Congressional District)
+
+Source(s):
+1. [Alan Winterborne - Murderpedia](https://murderpedia.org/male.W/w/winterborne-alan.htm)
+>Mr. Winterbourne had been unemployed since 1986 after resigning as a computer engineer for the Northrop Corporation, citing an inability to adapt to a change in assignment. Six months after quitting, he filed for unemployment benefits at the Oxnard office, but his application was denied after Northrop said he had left voluntarily.
+>
+>The envelope left at the newspaper included a transcript of his appeal to an administrative law judge on Dec. 3, 1986. Mr. Winterbourne told the judge he quit Northrop, where he worked on a missile contract, out of fear for his personal safety, but could not elaborate because of Government secrecy.
+>
+>In 1990 he lost a Republican primary contest to Robert J. Lagamarsino, then an incumbent Congressman representing California's 19th Congressional District. Mr. Winterbourne said before the primary that he was attracted by a Congressman's salary of more than $100,000. "I think it would be a good job," he said.
+
+------------------------------------
+
+[Andrew Cunanan - Murders](https://en.wikipedia.org/wiki/Andrew_Cunanan#Murders)\
+Miami Beach, Florida\
+April 27 - July 15, 1997\
+5 killed
+
+Perpetrator(s):\
+**Andrew Phillip Cunanan, 27**\
+United States Navy (USN) father (Modesto "Pete" Dungao Cunanan); United States Navy (USN) associate (Jeffrey "Jeff" Trail)
+
+Source(s):
+1. Andrew Cunanan - Early life and education / Adult life
+https://en.wikipedia.org/wiki/Andrew_Cunanan#Early_life_and_education
+>The youngest of four children, Andrew Phillip Cunanan was born August 31, 1969, in National City, California, to Modesto "Pete" Dungao Cunanan, a Filipino-American,[6] and Mary Anne Schillaci (died 2012), an Italian-American. Modesto was serving in the United States Navy in the Vietnam War at the time of his son's birth. After leaving the Navy, where he had served as a chief petty officer, Modesto worked as a stockbroker.[7]
+>
+>In his youth, Cunanan lived with his family in National City and attended Bonita Vista Middle School.[8] In 1981, his father enrolled him in The Bishop's School, an independent day school located in the affluent La Jolla neighborhood of San Diego. There Cunanan met his lifelong best friend, Elizabeth "Liz" Cote. At school, he was remembered as being bright and very talkative, and testing with an IQ of 147.[9]
+>
+>As a teenager, Cunanan developed a reputation as a prolific liar, given to telling tall tales about his family and personal life.[7] He was adept at changing his appearance according to what he felt was most attractive at a given moment.[7] Cunanan identified as gay in high school, when he began having liaisons with wealthy older men.[10] He was voted "least likely to be forgotten."[11] After graduating from high school in 1987, Cunanan enrolled at the University of California, San Diego (UC San Diego), where he majored in American history.[12]
+>
+>In 1988, when Cunanan was 19, his father deserted his family and moved to the Philippines to evade arrest for embezzlement.[13] That same year, Cunanan had begun frequenting local gay clubs and restaurants, and his mother, who was deeply religious, learned about his sexual orientation. During an argument, Cunanan threw his mother against a wall, dislocating her shoulder. Later examination of his behavior indicates that he may have suffered from antisocial personality disorder, characterized by a lack of remorse and empathy.[14] In 1989, Cunanan dropped out of UC San Diego and settled in the Castro District of San Francisco, a center of gay culture, moving in with Cote and her boyfriend, Phil Merrill.[7]
+
+2. [Andrew Cunanan - Adult life](https://en.wikipedia.org/wiki/Andrew_Cunanan#Adult_life)
+>In San Francisco, Cunanan continued his practice of befriending wealthy older men, and also reportedly began creating violent pornography.[7] He also socialized in the Hillcrest and La Jolla neighborhoods of San Diego, as well as in Scottsdale, Arizona, "apparently living off the largesse of one wealthy patron or another."[10] Cunanan is also believed to have been dealing drugs, including prescription opioids, cocaine, and marijuana.[15][16] He used several aliases: Andrew DeSilva,[17] Lt. Cmdr. Andy Cummings, Drew Cunningham, and Curt Matthew Demaris.[18]
+>
+>Cunanan allegedly first met fashion designer Gianni Versace in San Francisco in October 1990,[19] when Versace was in town to fit the costumes he had designed for the San Francisco Opera production of Richard Strauss's opera Capriccio,[20] although Versace's family has always denied that the two men ever met.[16] In December 1995, Cunanan met David Madson, a Minneapolis architect, in a San Francisco bar. They began a long-distance relationship shortly after, but Madson ended the relationship in the spring of 1996, telling friends he sensed something "shady" about Cunanan.[16][21] Cunanan told friends that Madson was the "love of my life".[13]
+>
+>In September 1996, Cunanan broke up with Norman Blachford, a wealthy older man who had been hosting and financially supporting him.[16] He soon maxed out his credit cards.[11][20] Cunanan's close friend Jeffrey "Jeff" Trail, a former Naval officer working as a district manager for a propane delivery company in Minneapolis, had told his former roommate Michael Williams that Cunanan had resumed selling drugs.[22] Cunanan also was known to regularly consume these drugs, especially methamphetamine.[20]
+>
+>By April 1997, friends reported Cunanan was abusing painkillers and was drinking alcohol "like there was no tomorrow".[13][16] Later that month, he told friends he was leaving San Diego for Minneapolis to "take care of some business matters" with Trail,[17] who had recently distanced himself from Cunanan.[23] Trail expected Cunanan to return to San Francisco upon leaving Minneapolis. Before Cunanan's visit, Trail told his sister that he "did not want Andrew to come."[24] A week before his death, Trail told Williams that he had had a "huge falling out" with Cunanan and said, "I made a lot of enemies this weekend ... I've got to get out of here. They're going to kill me."[20]
+>
+>On April 24, Cunanan and four friends attended a going-away party at Hillcrest's California Cuisine, a rare occasion when Cunanan did not cover the tab.[15] He had reached the credit limit on both his credit cards, and had to ask for a credit extension to afford his plane ticket to Minneapolis.[5] Upon arriving there the next day, Cunanan stayed with Madson, a mutual friend of his and Trail's, in Madson's apartment.[11] That night, Cunanan and Madson dined at Nye's Restaurant and visited The Gay 90's nightclub.[24] On April 26, Cunanan stayed in Trail's apartment while Trail was out of town with his boyfriend, Jon Hackett. The following afternoon, Trail told Hackett that he needed to have a "pretty important" conversation with Cunanan. When Trail and Hackett later returned to the apartment, there was no sign of Cunanan or his belongings. Trail left his apartment to see Cunanan shortly after 9 p.m. and was likely let into Madson's apartment at 9:45 p.m.[16]
+
+------------------------------------
+
+[Dallas County house shooting](https://murderpedia.org/male.O/o/ochoa-abel-revilla.htm)\
+Dallas County, Texas\
+August 4, 2002\
+5 killed
+
+Perpetrator(s):\
+**Abel Revilla Ochoa, 29**\
+United States Department of Health and Human Services (DHHS) spouse (Cecilia Ochoa - Head Start of Greater Dallas)
+
+1. [Father arrested on charges he killed five](https://www.myplainview.com/news/article/Father-arrested-on-charges-he-killed-five-8863009.php)
+>Cecilia Ochoa had been a teacher for Head Start of Greater Dallas since 1996, teaching at two south Dallas locations, said Rob Massonneau, director of external affairs for the organization.
+>
+>Child Protective Services investigated the Ochoas after a referral in 1999, said CPS spokeswoman Marleigh Meisner. The agency was unable to determine any abuse, she said, declining to release any other information.
+>
+>Massonneau said Head Start planned to set up a memorial fund for the family.
+>
+>Rebecca Ortiz, a Head Start teacher who worked with Cecilia Ochoa, said the victim was dedicated to her family and her students, whom she often called "her kids."
+>
+>"She loved to be around children," Ortiz said. "She would treat them like her own. She'd spend her own money to buy school supplies."
+>
+>Ortiz said she had met Abel Ochoa and the couple's daughters several times and "they seemed like such a good family."
+>
+>"She never said anything to me about any problems. She really didn't bring her problems into the workplace."
+
+2. [Head Start (program) - Wikipedia](https://en.wikipedia.org/wiki/Head_Start_(program))
+>Head Start is a program of the United States Department of Health and Human Services that provides comprehensive early childhood education, health, nutrition, and parent involvement services to low-income children and families. The program's services and resources are designed to foster stable family relationships, enhance children's physical and emotional well-being, and establish an environment to develop strong cognitive skills. The transition from preschool to elementary school imposes diverse developmental challenges that include requiring the children to engage successfully with their peers outside the family network, adjust to the space of a classroom, and meet the expectations the school setting provides.[1]
+>
+>Launched in 1965[2] by its creator and first director Jule Sugarman and Bernice H. Fleiss. Head Start was originally conceived as a catch-up summer school program that would teach low-income children in a few weeks what they needed to know to start elementary school. The Head Start Act of 1981[3] expanded the program.[4] The program was revised and reauthorized in December 2007. As of late 2005, more than 22 million children had participated. The current director of Head Start is Dr. Bernadine Futrell.[5]
+
+3. [Head Start (program) - History](https://en.wikipedia.org/wiki/Head_Start_(program)#History)
+>Head Start began as part of President Lyndon B. Johnson's Great Society campaign. Its justification came from the staff of the President's Council of Economic Advisers.[6] Stan Salett, civil rights organizer, national education policy adviser, and creator of the Upward Bound Program, is also credited with initiating the Head Start program.
+>
+>Johnson started the War on Poverty shortly after President Kennedy's assassination. The murder shook the nation, and Johnson attempted to gain public trust by passing legacy legislation during the subsequent months. Johnson received an initial briefing from Walter Heller, who informed Johnson of Kennedy's poverty program. By March 1964, the legislation, now known as the Economic Opportunity Act of 1964, had been prepared for Congress. The legislation included training, educational, and service programs for communities, including the Job Corps.[7]
+>
+>The Office of Economic Opportunity's Community Action Program launched Project Head Start as an eight-week summer program in 1965. The program was led by Dr. Robert Cooke, a pediatrician at Johns Hopkins University, and Dr. Edward Zigler, a professor of psychology and director of the Yale Child Study Center. They designed a comprehensive child development program intended to help communities meet the needs of disadvantaged preschool children. The following year it was authorized by Congress as a year–round program. In 1968, Head Start began funding a television series that would eventually be called Sesame Street, operated by the Carnegie Corporation Children's Television Workshop (CTW).
+>
+>In 1969, Head Start was transferred to the Office of Child Development in the Department of Health, Education, and Welfare (later the Department of Health and Human Services (DHHS)) by the Nixon Administration. Today the program is in the Administration for Children and Families (ACF) division of DHHS.
+>
+>In 1994, the Early Head Start program was established to serve children from birth to age three, in an effort to capitalize on research evidence that showed that the first three years are critical to children's long-term development.
+>
+>In the early years, some 700,000 children enrolled at a per-capita cost of $2,000 to $3,000 (2011 dollars). Under the full-time program, enrollment dropped to under 400,000 by the early 1970s. Enrollment reached close to 1 million children by 2011.
+
+------------------------------------
+
+[Mayerthorpe tragedy](https://en.wikipedia.org/wiki/Mayerthorpe_tragedy)\
+Rochfort Bridge, Canada\
+March 3, 2005\
+5 killed (including 1 perpetrator)
+
+Perpetrator(s):\
+**James Roszko, 46**\
+Canadian Armed Forces (CAF) step-father (Warren Charles Fifield); Edmonton Police Service (EPS) nephew (name unknown)
+
+Source(s):
+1. [Mother and stepfather of cop-killer James Roszko die in a car crash](https://edmontonsun.com/2015/01/09/mother-and-stepfather-of-cop-killer-james-roszko-die-in-a-car-crash)
+>The mother and stepfather of notorious cop-killer James Roszko died last month.
+>
+>A Park Memorial obituary states that Stephanie Fifield, 81, and Warren Fifield, 76 of Rochfort Bridge, both died on Dec. 15.
+>
+>Stephanie Fifield, James Roszko’s mother, was one of the few people who were close to Roszko. She had been known to defend her son throughout the years, despite his reputation as a violent loner and pedophile.
+
+2. [Warren Charles Fifield - Find a Grave](https://www.findagrave.com/memorial/179222915/warren-charles-fifield)
+>On December 15, 2014, Warren Charles (age 76) of Rochfort Bridge, AB passed away. Funeral Service Tuesday, December 23 at 11:00 a.m. at the Royal Canadian legion, Mayerthorpe, 5111 45 Avenue. Private family interment in Mayerthorpe Cemetery.
+
+3. [Stephanie Liwczak Fifield - Find a Grave](https://www.findagrave.com/memorial/179223022/stephanie-fifield)
+>On December 15, 2014, Stephanie Fifield (age 81) of Rochfort Bridge, AB passed away. Funeral Service Tuesday, December 23 at 11:00 a.m. at the Royal Canadian legion, Mayerthorpe, 5111 45 Avenue. Private family interment in Mayerthorpe Cemetery.
+
+4. [Royal Canadian Legion - Wikipedia](https://en.wikipedia.org/wiki/Royal_Canadian_Legion)
+>The Royal Canadian Legion is a non-profit Canadian ex-service organization (veterans' organization) founded in 1925.[1] Membership includes people who have served as military, Royal Canadian Mounted Police, provincial and municipal police, Royal Canadian Air, Army and Sea Cadets, direct relatives of members and also affiliated members. Membership is now also open to the general public.
+
+5. [Brother of Roszko wants to meet with families of slain Mounties](https://www.cbc.ca/news/canada/brother-of-roszko-wants-to-meet-with-families-of-slain-mounties-1.563511)
+>The brother of James Roszko says he wants to meet with the families of the slain Mounties and discuss ways to prevent a similar tragedy from occurring, the CBC has learned.
+>
+>John Roszko wrote condolence letters to the families of the four constables who were shot to death by his brother, saying he wanted them to know that "we're going to apply all our efforts to see that something good comes of all this."\
+>[...]\
+>Roszko, whose own son is a member of the Edmonton Police Service, said the lack of funding to prosecute cases has allowed people like his brother to run free when they should have been in prison. He also blamed some judges and lawyers for playing the system.
