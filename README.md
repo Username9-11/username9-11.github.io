@@ -1,2 +1,2 @@
 Test\
-theme: Architect
+theme: Minimal
